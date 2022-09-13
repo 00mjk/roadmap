@@ -5,10 +5,7 @@ Subject: [PATCH] Update post-checkout Gmail	ZACHRY WOOD <zachryiixixiiwood@gmail
 COMPENSATION FROM JP MORGAN CHASE BANK
 ZACHRY WOOD <zachryiixixiiwood@gmail.com>	Mon, Sep 12, 2022 at 2:18 AM
 To: chasebank2040@gmail.com, Gmail ZACHRY WOOD <zachryiixixiiwood@gmail.com>, "To: Securities and Exchange Commission" <sec@service.govdelivery.com>
-
-
-1 Earnings Statement
-
+1 Earnings Statement 👍
 ALPHABET         Period Beginning:
 1600 AMPITHEATRE PARKWAY DR Period Ending:
 MOUNTAIN VIEW, C.A., 94043 Pay Date:
