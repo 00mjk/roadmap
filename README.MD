@@ -1,11 +1,177 @@
-The U.S. Internal Revenue Code of 1986, as amended, the Treasury Regulations promulgated thereunder, published pronouncements of the Internal Revenue 
+**The U.S. Internal Revenue Code of 1986, as amended, the Treasury Regulations promulgated thereunder, published pronouncements of the Internal Revenue 
 Service, which may be cited or used as precedents, and case law, any of which may be changed at any time with retroactive effect.  No opinion is expressed 
 on any matters other than those specifically referred to above.										
-
-
-
-EMPLOYER IDENTIFICATION NUMBER:       63-3441725													
-
+SALARY SCHEDULE - (RESOLUTION)
+SCCM (CONFIDENTIAL/MANAGEMENT) UNIT
+Salary Plan - Effective 7-9-2022
+BASE PAY RATE
+Class
+Code
+Exempt/N
+onExempt
+Classification Title
+Step 1 Step 2 Step 3 Step 4 Step 5 Step 1 Step 2 Step 3 Step 4 Step 5
+27.95 29.35 30 82 32 36 33 98 - - - - - 9624 Non Accountant
+ - - - - - 2,924 39 3,070 61 3,224.14 3,385 35 3,554 62 2824 Exempt Court Operations Manager
+ 25.29 26.55 27 88 29 27 30.73 - - - - - 7261 Non Court Services Analyst I
+ - - - - - 2,236 03 2,347 83 2,465 22 2,588.48 2,717.90 7262 Exempt Court Services Analyst II
+ - - - - - 2,457 00 2,579 85 2,708 84 2,844.28 2,986.49 7263 Exempt Court Services Analyst III
+ 22.78 23 92 25.12 26 38 27.70 - - - - - 2820 Non Court Services Coordinator
+ - - - - - 2,924 39 3,070 61 3,224.14 3,385.35 3,554.62 2823 Exempt Court Services Manager
+ 22.78 23.92 25.12 26 38 27.70 - - - - - 9621 Non Court Services Specialist
+ - - - - - 2,567 94 2,696 34 2,831.16 2,972.72 3,121 36 9626 Exempt Executive Program Analyst
+ - - - - - 2,924 39 3,070 61 3,224.14 3,385 35 3,554.62 1017 Exempt Family Court Services Manager
+ - - - - - 2,463 36 2,586 53 2,715 86 2,851 65 2,994.23 9625 Exempt Fiscal Analyst
+ 27.95 29 35 30 82 32 36 33 98 - - - - - 7264 Non Human Resources Analyst
+ 22.78 23 92 25.12 26 38 27.70 - - - - - 9620 Non Human Resources Specialist
+ - - - - - 2,675 24 2,809 00 2,949.45 3,096.92 3,251.77 7829 Exempt Information Systems Analyst Senior
+ - - - - - 2,984.40 3,133 62 3,290 30 3,454 82 3,627 56 1269 Exempt Information Systems Manager
+ - - - - - 2,567 94 2,696 34 2,831.16 2,972.72 3,121 36 7828 Exempt Information Systems Programmer/Analyst
+ - - - - - - - - - 3,397.24 7830 Exempt Project Manager
+ - - - - - 2,924 39 3,070 61 3,224.14 3,385.35 3,554.62 2700 Exempt SHARP Program and Grant Manager
+SPECIAL PAY COMPENSATION - LONGEVITY
+10 YEAR LONGEVITY (additional 3% above base pay rate)
+Class
+Code
+Exempt/N
+onExempt
+Classification Title
+Step 1 Step 2 Step 3 Step 4 Step 5 Step 1 Step 2 Step 3 Step 4 Step 5
+ 0.84 0.88 0.92 0.97 1.02 - - - - - 9624 Non Accountant
+ - - - - - 87.73 92.12 96.72 101 56 106.64 2824 Exempt Court Operations Manager
+ 0.76 0.80 0.84 0.88 0.92 - - - - - 7261 Non Court Services Analyst I
+ - - - - - 67.08 70.43 73.96 77.65 81 54 7262 Exempt Court Services Analyst II
+ - - - - - 73.71 77.40 81.27 85 33 89 59 7263 Exempt Court Services Analyst III
+ 0.68 0.72 0.75 0.79 0.83 - - - - - 2820 Non Court Services Coordinator
+ - - - - - 87.73 92.12 96.72 101 56 106.64 2823 Exempt Court Services Manager
+ 0.68 0.72 0.75 0.79 0.83 - - - - - 9621 Non Court Services Specialist
+ - - - - - 77.04 80.89 84.93 89.18 93.64 9626 Exempt Executive Program Analyst
+ - - - - - 87.73 92.12 96.72 101 56 106.64 1017 Exempt Family Court Services Manager
+ - - - - - 73.90 77.60 81.48 85 55 89 83 9625 Exempt Fiscal Analyst
+ 0.84 0.88 0.92 0.97 1.02 - - - - - 7264 Non Human Resources Analyst
+ 0.68 0.72 0.75 0.79 0.83 - - - - - 9620 Non Human Resources Specialist
+ - - - - - 80.26 84.27 88.48 92 91 97 55 7829 Exempt Information Systems Analyst Senior
+ - - - - - 89.53 94.01 98.71 103.64 108 83 1269 Exempt Information Systems Manager
+ - - - - - 77.04 80.89 84.93 89.18 93.64 7828 Exempt Information Systems Programmer/Analyst
+ - - - - - - - - - 101 92 7830 Exempt Project Manager
+ - - - - - 87.73 92.12 96.72 101 56 106.64 2700 Exempt SHARP Program and Grant Manager
+Hourly Rate Bi-Weekly Rate
+Hourly Rate Bi-Weekly Rate
+Page 1 of 3
+SALARY SCHEDULE - (RESOLUTION)
+SCCM (CONFIDENTIAL/MANAGEMENT) UNIT
+Salary Plan - Effective 7-9-2022
+15 YEAR LONGEVITY (additional 3% above 10 year longevity rate of compensation)
+Class
+Code
+Exempt/N
+onExempt
+Classification Title
+Step 1 Step 2 Step 3 Step 4 Step 5 Step 1 Step 2 Step 3 Step 4 Step 5
+ 1.70 1.79 1.87 1.97 2.07 - - - - - 9624 Non Accountant
+ - - - - - 178.09 187.00 196.35 206.17 216.48 2824 Exempt Court Operations Manager
+ 1.54 1.62 1.70 1.78 1.87 - - - - - 7261 Non Court Services Analyst I
+ - - - - - 136.17 142.98 150.14 157.63 165 52 7262 Exempt Court Services Analyst II
+ - - - - - 149.63 157.12 164.97 173 22 181 87 7263 Exempt Court Services Analyst III
+ 1.38 1.46 1.53 1.61 1.69 - - - - - 2820 Non Court Services Coordinator
+ - - - - - 178.09 187.00 196.35 206.17 216.48 2823 Exempt Court Services Manager
+ 1.38 1.46 1.53 1.61 1.69 - - - - - 9621 Non Court Services Specialist
+ - - - - - 156.39 164.21 172.41 181 04 190 09 9626 Exempt Executive Program Analyst
+ - - - - - 178.09 187.00 196.35 206.17 216.48 1017 Exempt Family Court Services Manager
+ - - - - - 150.02 157.52 165.40 173.67 182 35 9625 Exempt Fiscal Analyst
+ 1.70 1.79 1.87 1.97 2.07 - - - - - 7264 Non Human Resources Analyst
+ 1.38 1.46 1.53 1.61 1.69 - - - - - 9620 Non Human Resources Specialist
+ - - - - - 162.93 171.07 179.62 188.60 198 03 7829 Exempt Information Systems Analyst Senior
+ - - - - - 181.75 190.84 200.38 210 39 220 92 1269 Exempt Information Systems Manager
+ - - - - - 156.39 164.21 172.41 181 04 190 09 7828 Exempt Information Systems Programmer/Analyst
+ - - - - - - - - - 206 89 7830 Exempt Project Manager
+ - - - - - 178.09 187.00 196.35 206.17 216.48 2700 Exempt SHARP Program and Grant Manager
+20 YEAR LONGEVITY (additional 3% above 15 year longevity rate of compensation)
+Class
+Code
+Exempt/N
+onExempt
+Classification Title
+Step 1 Step 2 Step 3 Step 4 Step 5 Step 1 Step 2 Step 3 Step 4 Step 5
+ 2.59 2.72 2.85 3.00 3.15 - - - - - 9624 Non Accountant
+ - - - - - 271.16 284.73 298.96 313 92 329.61 2824 Exempt Court Operations Manager
+ 2.34 2.47 2.59 2.71 2.85 - - - - - 7261 Non Court Services Analyst I
+ - - - - - 207.34 217.70 228.60 240 01 252 02 7262 Exempt Court Services Analyst II
+ - - - - - 227.83 239.23 251.18 263.75 276 92 7263 Exempt Court Services Analyst III
+ 2.10 2.22 2.33 2.45 2.57 - - - - - 2820 Non Court Services Coordinator
+ - - - - - 271.16 284.73 298.96 313 92 329.61 2823 Exempt Court Services Manager
+ 2.10 2.22 2.33 2.45 2.57 - - - - - 9621 Non Court Services Specialist
+ - - - - - 238.12 250.03 262.52 275.65 289.43 9626 Exempt Executive Program Analyst
+ - - - - - 271.16 284.73 298.96 313 92 329.61 1017 Exempt Family Court Services Manager
+ - - - - - 228.42 239.84 251.84 264.43 277.65 9625 Exempt Fiscal Analyst
+ 2.59 2.72 2.85 3.00 3.15 - - - - - 7264 Non Human Resources Analyst
+ 2.10 2.22 2.33 2.45 2.57 - - - - - 9620 Non Human Resources Specialist
+ - - - - - 248.08 260.47 273.49 287.17 301 52 7829 Exempt Information Systems Analyst Senior
+ - - - - - 276.73 290.57 305.10 320 35 336 37 1269 Exempt Information Systems Manager
+ - - - - - 238.12 250.03 262.52 275.65 289.43 7828 Exempt Information Systems Programmer/Analyst
+ - - - - - - - - - 315 01 7830 Exempt Project Manager
+ - - - - - 271.16 284.73 298.96 313 92 329.61 2700 Exempt SHARP Program and Grant Manager
+Hourly Rate Bi-Weekly Rate
+Hourly Rate Bi-Weekly Rate
+Page 2 of 3
+SALARY SCHEDULE - (RESOLUTION)
+SCCM (CONFIDENTIAL/MANAGEMENT) UNIT
+Salary Plan - Effective 7-9-2022
+25 YEAR LONGEVITY (additional 3% above 20 year longevity rate of compensation)
+Class
+Code
+Exempt/N
+onExempt
+Classification Title
+Step 1 Step 2 Step 3 Step 4 Step 5 Step 1 Step 2 Step 3 Step 4 Step 5
+ 3.51 3.68 3.86 4.06 4.26 - - - - - 9624 Non Accountant
+ - - - - - 367.03 385.39 404.65 424 90 446.14 2824 Exempt Court Operations Manager
+ 3.17 3.34 3.50 3.67 3.86 - - - - - 7261 Non Court Services Analyst I
+ - - - - - 280.64 294.67 309.41 324 86 341.12 7262 Exempt Court Services Analyst II
+ - - - - - 308.37 323.80 339.98 356 99 374 82 7263 Exempt Court Services Analyst III
+ 2.85 3.00 3.15 3.31 3.48 - - - - - 2820 Non Court Services Coordinator
+ - - - - - 367.03 385.39 404.65 424 90 446.14 2823 Exempt Court Services Manager
+ 2.85 3.00 3.15 3.31 3.48 - - - - - 9621 Non Court Services Specialist
+ - - - - - 322.30 338.42 355.33 373.10 391.75 9626 Exempt Executive Program Analyst
+ - - - - - 367.03 385.39 404.65 424 90 446.14 1017 Exempt Family Court Services Manager
+ - - - - - 309.17 324.63 340.87 357 91 375 81 9625 Exempt Fiscal Analyst
+ 3.51 3.68 3.86 4.06 4.26 - - - - - 7264 Non Human Resources Analyst
+ 2.85 3.00 3.15 3.31 3.48 - - - - - 9620 Non Human Resources Specialist
+ - - - - - 335.78 352.55 370.18 388.69 408.12 7829 Exempt Information Systems Analyst Senior
+ - - - - - 374.56 393.30 412.96 433.61 455 29 1269 Exempt Information Systems Manager
+ - - - - - 322.30 338.42 355.33 373.10 391.75 7828 Exempt Information Systems Programmer/Analyst
+ - - - - - - - - - 426 38 7830 Exempt Project Manager
+ - - - - - 367.03 385.39 404.65 424 90 446.14 2700 Exempt SHARP Program and Grant Manager
+30 YEAR LONGEVITY (additional 3% above 25 year longevity rate of compensation)
+Class
+Code
+Exempt/N
+onExempt
+Classification Title
+Step 1 Step 2 Step 3 Step 4 Step 5 Step 1 Step 2 Step 3 Step 4 Step 5
+ 4.45 4.67 4.90 5.15 5.41 - - - - - 9624 Non Accountant
+ - - - - - 465.77 489 07 513 51 539 21 566.16 2824 Exempt Court Operations Manager
+ 4.02 4 24 4.44 4 66 4 90 - - - - - 7261 Non Court Services Analyst I
+ - - - - - 356.14 373 95 392.65 412.26 432.89 7262 Exempt Court Services Analyst II
+ - - - - - 391 33 410 91 431.44 453.03 475.66 7263 Exempt Court Services Analyst III
+ 3 62 3 81 4 00 4 20 4.42 - - - - - 2820 Non Court Services Coordinator
+ - - - - - 465.77 489.07 513.51 539.21 566.16 2823 Exempt Court Services Manager
+ 3.62 3.81 4.00 4 20 4.42 - - - - - 9621 Non Court Services Specialist
+ - - - - - 409 01 429.46 450 92 473.47 497.14 9626 Exempt Executive Program Analyst
+ - - - - - 465.77 489 07 513 51 539 21 566.16 1017 Exempt Family Court Services Manager
+ - - - - - 392 35 411 96 432 57 454.20 476.91 9625 Exempt Fiscal Analyst
+ 4.45 4.67 4.90 5.15 5.41 - - - - - 7264 Non Human Resources Analyst
+ 3.62 3.81 4.00 4.20 4.42 - - - - - 9620 Non Human Resources Specialist
+ - - - - - 426.11 447.40 469.77 493 26 517 92 7829 Exempt Information Systems Analyst Senior
+ - - - - - 475.33 499.11 524.06 550 26 577.78 1269 Exempt Information Systems Manager
+ - - - - - 409.01 429.46 450.92 473.47 497.14 7828 Exempt Information Systems Programmer/Analyst
+ - - - - - - - - - 541 09 7830 Exempt Project Manager
+ - - - - - 465.77 489.07 513.51 539 21 566.16 2700 Exempt SHARP Program and Grant Manager
+Note To determine total compensation the base rate of pay must be added to the applicable longevity rate.
+Hourly Rate Bi-Weekly Rate
+Hourly Rate Bi-Weekly Rate
+Page 3 of 3''
+'EMPLOYER IDENTIFICATION NUMBER:       63-3441725													
 
 INCOME STATEMENT 	61-1767919									
 
@@ -1115,14 +1281,12 @@ FLAGS
 EXAMPLES													
   $ gh issue create													
   $ gh pr list													
-  $ gh repo fork													
-													
-LEARN MORE													
-  Use "gh [command] [subcommand] --help" for more information about a command.													
-  Read the manual at <http://cli.github.com/manual>													
-													
-FEEDBACK 													
-  Fill out our feedback form <https://forms.gle/umxd3h31c7aMQFKG7>													
+  $ gh repo fork																	
+LEARN MORE					
+  Use "gh [command] [subcommand] --help" for more information about a command.									
+  Read the manual at <http://cli.github.com/manual/kite.u									
+FEEDBACK 	
+  Fill out our feedback form <https://forms.gle/umxd3h31c7aMQFKG7>											
   Open an issue using “gh issue create -R cli/cli”GOOGL_balance-sheet_Annual_Restated 2017 2018 2019 2020 2021
 Total Assets197,295,000,000 232,792,000,000 275,909,000,000 319,616,000,000 359,268,000,000
     Total Current Assets124,308,000,000 135,676,000,000 152,578,000,000 174,296,000,000 188,143,000,000
@@ -1251,8 +1415,8 @@ Other Contractual Obligations Maturity Schedule Total 19,803,000,000 17,316,000,
     Other Contractual Obligations due in Year 3 4,275,000,000 4,074,000,000 3,592,000,000 4,500,000,000
     Other Contractual Obligations due in Year 5 2,498,000,000 6,197,000,000 5,544,000,000 5,148,000,000
     Other Contractual Obligations due Beyond 7,244,000,000 1,572,000,000 8,035,000,000 1,054,000,000
-Fiscal year ends in Dec 31 | USD
+Fiscal year ends in Dec 31 | USD**
 
 										
 										
-For Paperwork Reduction Act Notice, see the seperate Instructions.										
+For Paperwork Reduction Act Notice, see the seperate Instructions.									
