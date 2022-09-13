@@ -439,8 +439,4 @@ Other Contractual Obligations Maturity Schedule Total 19,803,000,000 17,316,000,
     Other Contractual Obligations due in Year 3 4,275,000,000 4,074,000,000 3,592,000,000 4,500,000,000
     Other Contractual Obligations due in Year 5 2,498,000,000 6,197,000,000 5,544,000,000 5,148,000,000
     Other Contractual Obligations due Beyond 7,244,000,000 1,572,000,000 8,035,000,000 1,054,000,000
-Fiscal year ends in Dec 31 | USD**
-
-										
-										
-For Paperwork Reduction Act Notice, see the seperate Instructions.									
+Fiscal year ends in Dec 31 | For Paperwork Reduction Act Notice, see the seperate Instructions.									
