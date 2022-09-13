@@ -11,53 +11,10 @@ Exempt/N
 onExempt
 Classification Title
 Step 1 Step 2 Step 3 Step 4 Step 5 Step 1 Step 2 Step 3 Step 4 Step 5
-27.95 29.35 30 82 32 36 33 98 - - - - - 9624 Non Accountant
- - - - - - 2,924 39 3,070 61 3,224.14 3,385 35 3,554 62 2824 Exempt Court Operations Manager
+27.95 29.35 30 82 32 36 33 98 - - - - - 9624  Accountant
+2,924 39 3,070 61 3,224.14 3,385 35 3,554 62 2824 Exempt Court Operations Manager
  25.29 26.55 27 88 29 27 30.73 - - - - - 7261 Non Court Services Analyst I
- - - - - - 2,236 03 2,347 83 2,465 22 2,588.48 2,717.90 7262 Exempt Court Services Analyst II
- - - - - - 2,457 00 2,579 85 2,708 84 2,844.28 2,986.49 7263 Exempt Court Services Analyst III
- 22.78 23 92 25.12 26 38 27.70 - - - - - 2820 Non Court Services Coordinator
- - - - - - 2,924 39 3,070 61 3,224.14 3,385.35 3,554.62 2823 Exempt Court Services Manager
- 22.78 23.92 25.12 26 38 27.70 - - - - - 9621 Non Court Services Specialist
- - - - - - 2,567 94 2,696 34 2,831.16 2,972.72 3,121 36 9626 Exempt Executive Program Analyst
- - - - - - 2,924 39 3,070 61 3,224.14 3,385 35 3,554.62 1017 Exempt Family Court Services Manager
- - - - - - 2,463 36 2,586 53 2,715 86 2,851 65 2,994.23 9625 Exempt Fiscal Analyst
- 27.95 29 35 30 82 32 36 33 98 - - - - - 7264 Non Human Resources Analyst
- 22.78 23 92 25.12 26 38 27.70 - - - - - 9620 Non Human Resources Specialist
- - - - - - 2,675 24 2,809 00 2,949.45 3,096.92 3,251.77 7829 Exempt Information Systems Analyst Senior
- - - - - - 2,984.40 3,133 62 3,290 30 3,454 82 3,627 56 1269 Exempt Information Systems Manager
- - - - - - 2,567 94 2,696 34 2,831.16 2,972.72 3,121 36 7828 Exempt Information Systems Programmer/Analyst
- - - - - - - - - - 3,397.24 7830 Exempt Project Manager
- - - - - - 2,924 39 3,070 61 3,224.14 3,385.35 3,554.62 2700 Exempt SHARP Program and Grant Manager
-SPECIAL PAY COMPENSATION - LONGEVITY
-10 YEAR LONGEVITY (additional 3% above base pay rate)
-Class
-Code
-Exempt/N
-onExempt
-Classification Title
-Step 1 Step 2 Step 3 Step 4 Step 5 Step 1 Step 2 Step 3 Step 4 Step 5
- 0.84 0.88 0.92 0.97 1.02 - - - - - 9624 Non Accountant
- - - - - - 87.73 92.12 96.72 101 56 106.64 2824 Exempt Court Operations Manager
- 0.76 0.80 0.84 0.88 0.92 - - - - - 7261 Non Court Services Analyst I
- - - - - - 67.08 70.43 73.96 77.65 81 54 7262 Exempt Court Services Analyst II
- - - - - - 73.71 77.40 81.27 85 33 89 59 7263 Exempt Court Services Analyst III
- 0.68 0.72 0.75 0.79 0.83 - - - - - 2820 Non Court Services Coordinator
- - - - - - 87.73 92.12 96.72 101 56 106.64 2823 Exempt Court Services Manager
- 0.68 0.72 0.75 0.79 0.83 - - - - - 9621 Non Court Services Specialist
- - - - - - 77.04 80.89 84.93 89.18 93.64 9626 Exempt Executive Program Analyst
- - - - - - 87.73 92.12 96.72 101 56 106.64 1017 Exempt Family Court Services Manager
- - - - - - 73.90 77.60 81.48 85 55 89 83 9625 Exempt Fiscal Analyst
- 0.84 0.88 0.92 0.97 1.02 - - - - - 7264 Non Human Resources Analyst
- 0.68 0.72 0.75 0.79 0.83 - - - - - 9620 Non Human Resources Specialist
- - - - - - 80.26 84.27 88.48 92 91 97 55 7829 Exempt Information Systems Analyst Senior
- - - - - - 89.53 94.01 98.71 103.64 108 83 1269 Exempt Information Systems Manager
- - - - - - 77.04 80.89 84.93 89.18 93.64 7828 Exempt Information Systems Programmer/Analyst
- - - - - - - - - - 101 92 7830 Exempt Project Manager
- - - - - - 87.73 92.12 96.72 101 56 106.64 2700 Exempt SHARP Program and Grant Manager
-Hourly Rate Bi-Weekly Rate
-Hourly Rate Bi-Weekly Rate
-Page 1 of 3
+Cod
 SALARY SCHEDULE - (RESOLUTION)
 SCCM (CONFIDENTIAL/MANAGEMENT) UNIT
 Salary Plan - Effective 7-9-2022
@@ -67,207 +24,172 @@ Code
 Exempt/N
 onExempt
 Classification Title
-Step 1 Step 2 Step 3 Step 4 Step 5 Step 1 Step 2 Step 3 Step 4 Step 5
- 1.70 1.79 1.87 1.97 2.07 - - - - - 9624 Non Accountant
- - - - - - 178.09 187.00 196.35 206.17 216.48 2824 Exempt Court Operations Manager
- 1.54 1.62 1.70 1.78 1.87 - - - - - 7261 Non Court Services Analyst I
- - - - - - 136.17 142.98 150.14 157.63 165 52 7262 Exempt Court Services Analyst II
- - - - - - 149.63 157.12 164.97 173 22 181 87 7263 Exempt Court Services Analyst III
- 1.38 1.46 1.53 1.61 1.69 - - - - - 2820 Non Court Services Coordinator
- - - - - - 178.09 187.00 196.35 206.17 216.48 2823 Exempt Court Services Manager
- 1.38 1.46 1.53 1.61 1.69 - - - - - 9621 Non Court Services Specialist
- - - - - - 156.39 164.21 172.41 181 04 190 09 9626 Exempt Executive Program Analyst
- - - - - - 178.09 187.00 196.35 206.17 216.48 1017 Exempt Family Court Services Manager
- - - - - - 150.02 157.52 165.40 173.67 182 35 9625 Exempt Fiscal Analyst
- 1.70 1.79 1.87 1.97 2.07 - - - - - 7264 Non Human Resources Analyst
- 1.38 1.46 1.53 1.61 1.69 - - - - - 9620 Non Human Resources Specialist
- - - - - - 162.93 171.07 179.62 188.60 198 03 7829 Exempt Information Systems Analyst Senior
- - - - - - 181.75 190.84 200.38 210 39 220 92 1269 Exempt Information Systems Manager
- - - - - - 156.39 164.21 172.41 181 04 190 09 7828 Exempt Information Systems Programmer/Analyst
- - - - - - - - - - 206 89 7830 Exempt Project Manager
- - - - - - 178.09 187.00 196.35 206.17 216.48 2700 Exempt SHARP Program and Grant Manager
-20 YEAR LONGEVITY (additional 3% above 15 year longevity rate of compensation)
-Class
-Code
-Exempt/N
-onExempt
 Classification Title
 Step 1 Step 2 Step 3 Step 4 Step 5 Step 1 Step 2 Step 3 Step 4 Step 5
- 2.59 2.72 2.85 3.00 3.15 - - - - - 9624 Non Accountant
- - - - - - 271.16 284.73 298.96 313 92 329.61 2824 Exempt Court Operations Manager
- 2.34 2.47 2.59 2.71 2.85 - - - - - 7261 Non Court Services Analyst I
- - - - - - 207.34 217.70 228.60 240 01 252 02 7262 Exempt Court Services Analyst II
- - - - - - 227.83 239.23 251.18 263.75 276 92 7263 Exempt Court Services Analyst III
- 2.10 2.22 2.33 2.45 2.57 - - - - - 2820 Non Court Services Coordinator
- - - - - - 271.16 284.73 298.96 313 92 329.61 2823 Exempt Court Services Manager
- 2.10 2.22 2.33 2.45 2.57 - - - - - 9621 Non Court Services Specialist
- - - - - - 238.12 250.03 262.52 275.65 289.43 9626 Exempt Executive Program Analyst
- - - - - - 271.16 284.73 298.96 313 92 329.61 1017 Exempt Family Court Services Manager
- - - - - - 228.42 239.84 251.84 264.43 277.65 9625 Exempt Fiscal Analyst
- 2.59 2.72 2.85 3.00 3.15 - - - - - 7264 Non Human Resources Analyst
- 2.10 2.22 2.33 2.45 2.57 - - - - - 9620 Non Human Resources Specialist
- - - - - - 248.08 260.47 273.49 287.17 301 52 7829 Exempt Information Systems Analyst Senior
- - - - - - 276.73 290.57 305.10 320 35 336 37 1269 Exempt Information Systems Manager
- - - - - - 238.12 250.03 262.52 275.65 289.43 7828 Exempt Information Systems Programmer/Analyst
- - - - - - - - - - 315 01 7830 Exempt Project Manager
- - - - - - 271.16 284.73 298.96 313 92 329.61 2700 Exempt SHARP Program and Grant Manager
-Hourly Rate Bi-Weekly Rate
-Hourly Rate Bi-Weekly Rate
-Page 2 of 3
-SALARY SCHEDULE - (RESOLUTION)
-SCCM (CONFIDENTIAL/MANAGEMENT) UNIT
-Salary Plan - Effective 7-9-2022
-25 YEAR LONGEVITY (additional 3% above 20 year longevity rate of compensation)
-Class
-Code
-Exempt/N
-onExempt
-Classification Title
-Step 1 Step 2 Step 3 Step 4 Step 5 Step 1 Step 2 Step 3 Step 4 Step 5
- 3.51 3.68 3.86 4.06 4.26 - - - - - 9624 Non Accountant
- - - - - - 367.03 385.39 404.65 424 90 446.14 2824 Exempt Court Operations Manager
- 3.17 3.34 3.50 3.67 3.86 - - - - - 7261 Non Court Services Analyst I
- - - - - - 280.64 294.67 309.41 324 86 341.12 7262 Exempt Court Services Analyst II
- - - - - - 308.37 323.80 339.98 356 99 374 82 7263 Exempt Court Services Analyst III
- 2.85 3.00 3.15 3.31 3.48 - - - - - 2820 Non Court Services Coordinator
- - - - - - 367.03 385.39 404.65 424 90 446.14 2823 Exempt Court Services Manager
- 2.85 3.00 3.15 3.31 3.48 - - - - - 9621 Non Court Services Specialist
- - - - - - 322.30 338.42 355.33 373.10 391.75 9626 Exempt Executive Program Analyst
- - - - - - 367.03 385.39 404.65 424 90 446.14 1017 Exempt Family Court Services Manager
- - - - - - 309.17 324.63 340.87 357 91 375 81 9625 Exempt Fiscal Analyst
- 3.51 3.68 3.86 4.06 4.26 - - - - - 7264 Non Human Resources Analyst
- 2.85 3.00 3.15 3.31 3.48 - - - - - 9620 Non Human Resources Specialist
- - - - - - 335.78 352.55 370.18 388.69 408.12 7829 Exempt Information Systems Analyst Senior
- - - - - - 374.56 393.30 412.96 433.61 455 29 1269 Exempt Information Systems Manager
- - - - - - 322.30 338.42 355.33 373.10 391.75 7828 Exempt Information Systems Programmer/Analyst
- - - - - - - - - - 426 38 7830 Exempt Project Manager
- - - - - - 367.03 385.39 404.65 424 90 446.14 2700 Exempt SHARP Program and Grant Manager
-30 YEAR LONGEVITY (additional 3% above 25 year longevity rate of compensation)
-Class
-Code
-Exempt/N
-onExempt
-Classification Title
-Step 1 Step 2 Step 3 Step 4 Step 5 Step 1 Step 2 Step 3 Step 4 Step 5
- 4.45 4.67 4.90 5.15 5.41 - - - - - 9624 Non Accountant
- - - - - - 465.77 489 07 513 51 539 21 566.16 2824 Exempt Court Operations Manager
- 4.02 4 24 4.44 4 66 4 90 - - - - - 7261 Non Court Services Analyst I
- - - - - - 356.14 373 95 392.65 412.26 432.89 7262 Exempt Court Services Analyst II
- - - - - - 391 33 410 91 431.44 453.03 475.66 7263 Exempt Court Services Analyst III
- 3 62 3 81 4 00 4 20 4.42 - - - - - 2820 Non Court Services Coordinator
- - - - - - 465.77 489.07 513.51 539.21 566.16 2823 Exempt Court Services Manager
- 3.62 3.81 4.00 4 20 4.42 - - - - - 9621 Non Court Services Specialist
- - - - - - 409 01 429.46 450 92 473.47 497.14 9626 Exempt Executive Program Analyst
- - - - - - 465.77 489 07 513 51 539 21 566.16 1017 Exempt Family Court Services Manager
- - - - - - 392 35 411 96 432 57 454.20 476.91 9625 Exempt Fiscal Analyst
- 4.45 4.67 4.90 5.15 5.41 - - - - - 7264 Non Human Resources Analyst
- 3.62 3.81 4.00 4.20 4.42 - - - - - 9620 Non Human Resources Specialist
- - - - - - 426.11 447.40 469.77 493 26 517 92 7829 Exempt Information Systems Analyst Senior
- - - - - - 475.33 499.11 524.06 550 26 577.78 1269 Exempt Information Systems Manager
- - - - - - 409.01 429.46 450.92 473.47 497.14 7828 Exempt Information Systems Programmer/Analyst
- - - - - - - - - - 541 09 7830 Exempt Project Manager
- - - - - - 465.77 489.07 513.51 539 21 566.16 2700 Exempt SHARP Program and Grant Manager
-Note To determine total compensation the base rate of pay must be added to the applicable longevity rate.
-Hourly Rate Bi-Weekly Rate
-Hourly Rate Bi-Weekly Rate
-Page 3 of 3''
 'EMPLOYER IDENTIFICATION NUMBER:       63-3441725													
-
-INCOME STATEMENT 	61-1767919									
-
-88-1303491									
-
-GOOGL_income-statement_Quarterly_As_Originally_Reported	TTM	Q4 2022	Q3 2022	Q2 2022	Q1 2022	Q4 2021	Q3 2021	Q2 2021	Q2 2021	Q3 2021
-
-
-Gross Profit	-2178236363.6	-9195472727.3	-16212709090.9	-23229945454.5	-30247181818.2	-37264418181.8	-44281654545.5	-51298890909.1	
--51298890909.1	37497000000
-
-Total Revenue as Reported, Supplemental	-1286309090.9	-13385163636.4	-25484018181.8	-37582872727.3	-49681727272.7	-61780581818.2	-73879436363.6	
--85978290909.1	-85978290909.1	65118000000
-
-1957800000	-9776581818.2	-21510963636.4	-33245345454.5	-44979727272.7	-56714109090.9	-68448490909.1	-80182872727.3	-80182872727.3	65118000000
-
-Other Revenue										
-
-Cost of Revenue	-891927272.7	4189690909.1	9271309090.9	14352927272.7	19434545454.5	24516163636.4	29597781818.2	34679400000	34679400000
--27621000000
-Cost of Goods and Services	-891927272.7	4189690909.1	9271309090.9	14352927272.7	19434545454.5	24516163636.4	29597781818.2	34679400000
-34679400000	-27621000000
-
-Operating Income/Expenses	-3640563636.4	-882445454.5	1875672727.3	4633790909.1	7391909090.9	10150027272.7	12908145454.5	
-15666263636.4	15666263636.4	-16466000000
-
-Selling, General and Administrative Expenses	-1552200000	-28945454.55	1494309090.9	3017563636.4	4540818181.8	6064072727.3	
-7587327272.7	9110581818.2	9110581818.2	-8772000000
-
-General and Administrative Expenses	-544945454.5	23200000	591345454.5	1159490909.1	1727636363.6	2295781818.2	2863927272.7	
-3432072727.3	3432072727.3	-3256000000
-
-Selling and Marketing Expenses	-1007254545.5	-52145454.55	902963636.4	1858072727.3	2813181818.2	3768290909.1	4723400000	
-5678509090.9	5678509090.9	-5516000000
-
-Research and Development Expenses	-2088363636.4	-853500000	381363636.4	1616227272.7	2851090909.1	4085954545.5	5320818181.8	
-6555681818.2	6555681818.2	-7694000000
-
-Total Operating Profit/Loss	-5818800000	-10077918181.8	-14337036363.6	-18596154545.5	-22855272727.3	-27114390909.1	-31373509090.9	
--35632627272.7	-35632627272.7	21031000000
-
-Non-Operating Income/Expenses, Total	-1369181818.2	-2079000000	-2788818181.8	-3498636363.6	-4208454545.5	-4918272727.3	-5628090909.1	
--6337909090.9	-6337909090.9	2033000000
-
-Total Net Finance Income/Expense	464490909.1	462390909.1	460290909.1	458190909.1	456090909.1	453990909.1	451890909.1	
-449790909.1	449790909.1	310000000
-
-Net Interest Income/Expense	464490909.1	462390909.1	460290909.1	458190909.1	456090909.1	453990909.1	451890909.1	449790909.1	449790909.1	310000000
-
-
-
-Interest Expense Net of Capitalized Interest	48654545.45	69900000	91145454.55	112390909.1	133636363.6	154881818.2	176127272.7
-197372727.3	197372727.3	-77000000
-
-Interest Income	415836363.6	392490909.1	369145454.5	345800000	322454545.5	299109090.9	275763636.4	252418181.8	252418181.8
-387000000
-
-Net Investment Income	-2096781818.2	-2909109090.9	-3721436363.6	-4533763636.4	-5346090909.1	-6158418181.8	-6970745454.5	-7783072727.3	
--7783072727.3	2207000000
-
-Gain/Loss on Investments and Other Financial Instruments	-2243490909.1	-3068572727.3	-3893654545.5	-4718736363.6	-5543818181.8	-6368900000	-7193981818.2	-8019063636.4	-8019063636.4	2158000000
-
-Income from Associates, Joint Ventures and Other Participating Interests	99054545.45	92609090.91	86163636.36	79718181.82	73272727.27
-66827272.73	60381818.18	53936363.64	53936363.64	188000000
-
-Gain/Loss on Foreign Exchange	47654545.45	66854545.45	86054545.45	105254545.5	124454545.5	143654545.5	162854545.5	182054545.5
-182054545.5	-139000000
-
-Irregular Income/Expenses	0	0				0	0	0	0	
-
-Other Irregular Income/Expenses	0	0				0	0	0	0	
-
-Other Income/Expense, Non-Operating	263109090.9	367718181.8	472327272.7	576936363.6	681545454.5	786154545.5	890763636.4	
-995372727.3	995372727.3	-484000000
-
-Pretax Income	-7187981818.2	-12156918181.8	-17125854545.5	-22094790909.1	-27063727272.7	-32032663636.4	-37001600000	-41970536363.6	
--41970536363.6	23064000000
-
-Provision for Income Tax	1695218181.8	2565754545.5	3436290909.1	4306827272.7	5177363636.4	6047900000	6918436363.6	
-7788972727.3	7788972727.3	-4128000000
-
-Net Income from Continuing Operations	-5492763636.4	-9591163636.4	-13689563636.4	-17787963636.4	-21886363636.4	-25984763636.4	-30083163636.4	
--34181563636.4	-34181563636.4	18936000000
-
-Net Income after Extraordinary Items and Discontinued Operations	-5492763636.4	-9591163636.4	-13689563636.4	-17787963636.4	-21886363636.4	
--25984763636.4	-30083163636.4	-34181563636.4	-34181563636.4	18936000000
-
-Net Income after Non-Controlling/Minority Interests	-5492763636.4	-9591163636.4	-13689563636.4	-17787963636.4	-21886363636.4	-25984763636.4	
--30083163636.4	-34181563636.4	-34181563636.4	18936000000
-
-Net Income Available to Common Stockholders	-5492763636.4	-9591163636.4	-13689563636.4	-17787963636.4	-21886363636.4	-25984763636.4	
--30083163636.4	-34181563636.4	-34181563636.4	18936000000
-
-Diluted Net Income Available to Common Stockholders	-5492763636.4	-9591163636.4	-13689563636.4	-17787963636.4	-21886363636.4	-25984763636.4	-30083163636.4	-34181563636.4	-34181563636.4	18936000000
-
 Income Statement Supplemental Section										
+Securities and Exchange Commission - Notice of Effectiveness from the Division of Corporation Finance Update
+ZACHRY WOOD <zachryiixixiiwood@gmail.com>	Tue, Sep 6, 2022 at 7:46 AM
+To: Securities and Exchange Commission <sec@service.govdelivery.com>
+Based on facts as set forth in.			6551							6550
+The U.S. Internal Revenue Code of 1986, as amended, the Treasury Regulations promulgated thereunder, published pronouncements of the Internal Revenue Service, which may be cited or used as precedents, and case law, any of which may be changed at any time with retroactive effect. No opinion is expressed on any matters other than those specifically referred to above.
+EMPLOYER IDENTIFICATION NUMBER: 61-1767920										
+[DRAFT FORM OF TAX OPINION]										
+ALPHABET										
+ZACHRY T WOOD										
+5324 BRADFORD DR										
+DALLAS TX 75235-8315										
+ORIGINAL REPORT										
+Income, Rents, & Royalty										
+INCOME STATEMENT	61-1767920									
+88-1303491									
+GOOGL_income-statement_Quarterly_As_Originally_Reported	TTM	Q4 2022	Q3 2022	Q2 2022	Q1 2022	Q4 2021	Q3 2021		Q2 2021	Q3 2021
+Gross Profit	-2178236364	-9195472727	-16212709091	-23229945455	-30247181818	-37264418182	-44281654545		-51298890909	37497000000
+Total Revenue as Reported, Supplemental	-1286309091	-13385163636	-25484018182	-37582872727	-49681727273	-61780581818	-73879436364		-85978290909	65118000000
+1957800000	-9776581818	-21510963636	-33245345455	-44979727273	-56714109091	-68448490909		-80182872727	65118000000
+Other Revenue										
+Cost of Revenue	-891927272.7	4189690909	9271309091	14352927273	19434545455	24516163636	29597781818		34679400000	-27621000000
+Cost of Goods and Services	-891927272.7	4189690909	9271309091	14352927273	19434545455	24516163636	29597781818		34679400000	-27621000000
+Operating Income/Expenses	-3640563636	-882445454.5	1875672727	4633790909	7391909091	10150027273	12908145455		15666263636	-16466000000
+Selling, General and Administrative Expenses	-1552200000	-28945454.55	1494309091	3017563636	4540818182	6064072727	7587327273		9110581818	-8772000000
+General and Administrative Expenses	-544945454.5	23200000	591345454.5	1159490909	1727636364	2295781818	2863927273		3432072727	-3256000000
+Selling and Marketing Expenses	-1007254545	-52145454.55	902963636.4	1858072727	2813181818	3768290909	4723400000		5678509091	-5516000000
+Research and Development Expenses	-2088363636	-853500000	381363636.4	1616227273	2851090909	4085954545	5320818182		6555681818	-7694000000
+Total Operating Profit/Loss	-5818800000	-10077918182	-14337036364	-18596154545	-22855272727	-27114390909	-31373509091		-35632627273	21031000000
+Non-Operating Income/Expenses, Total	-1369181818	-2079000000	-2788818182	-3498636364	-4208454545	-4918272727	-5628090909		-6337909091	2033000000
+Total Net Finance Income/Expense	464490909.1	462390909.1	460290909.1	458190909.1	456090909.1	453990909.1	451890909.1		449790909.1	310000000
+Net Interest Income/Expense	464490909.1	462390909.1	460290909.1	458190909.1	456090909.1	453990909.1	451890909.1		449790909.1	310000000
+Interest Expense Net of Capitalized Interest	48654545.45	69900000	91145454.55	112390909.1	133636363.6	154881818.2	176127272.7		197372727.3	-77000000
+Interest Income	415836363.6	392490909.1	369145454.5	345800000	322454545.5	299109090.9	275763636.4		252418181.8	387000000
+Net Investment Income	-2096781818	-2909109091	-3721436364	-4533763636	-5346090909	-6158418182	-6970745455		-7783072727	2207000000
+Gain/Loss on Investments and Other Financial Instruments	-2243490909	-3068572727	-3893654545	-4718736364	-5543818182	-6368900000	-7193981818		-8019063636	2158000000
+Income from Associates, Joint Ventures and Other Participating Interests	99054545.45	92609090.91	86163636.36	79718181.82	73272727.27	66827272.73	60381818.18		53936363.64	188000000
+Gain/Loss on Foreign Exchange	47654545.45	66854545.45	86054545.45	105254545.5	124454545.5	143654545.5	162854545.5		182054545.5	-139000000
+Irregular Income/Expenses	0	0				0	0		0	
+Other Irregular Income/Expenses	0	0				0	0		0	
+Other Income/Expense, Non-Operating	263109090.9	367718181.8	472327272.7	576936363.6	681545454.5	786154545.5	890763636.4		995372727.3	-484000000
+Pretax Income	-7187981818	-12156918182	-17125854545	-22094790909	-27063727273	-32032663636	-37001600000		-41970536364	23064000000
+Provision for Income Tax	1695218182	2565754545	3436290909	4306827273	5177363636	6047900000	6918436364		7788972727	-4128000000
+Net Income from Continuing Operations	-5492763636	-9591163636	-13689563636	-17787963636	-21886363636	-25984763636	-30083163636		-34181563636	18936000000
+Net Income after Extraordinary Items and Discontinued Operations	-5492763636	-9591163636	-13689563636	-17787963636	-21886363636	-25984763636	-30083163636		-34181563636	18936000000
+Net Income after Non-Controlling/Minority Interests	-5492763636	-9591163636	-13689563636	-17787963636	-21886363636	-25984763636	-30083163636		-34181563636	18936000000
+Net Income Available to Common Stockholders	-5492763636	-9591163636	-13689563636	-17787963636	-21886363636	-25984763636	-30083163636		-34181563636	18936000000
+Diluted Net Income Available to Common Stockholders	-5492763636	-9591163636	-13689563636	-17787963636	-21886363636	-25984763636	-30083163636		-34181563636	18936000000
+Income Statement Supplemental Section										
+Reported Normalized and Operating Income/Expense Supplemental Section										
+Total Revenue as Reported, Supplemental	-1286309091	-13385163636	-25484018182	-37582872727	-49681727273	-61780581818	-73879436364		-85978290909	65118000000
+Total Operating Profit/Loss as Reported, Supplemental	-5818800000	-10077918182	-14337036364	-18596154545	-22855272727	-27114390909	-31373509091		-35632627273	21031000000
+Reported Effective Tax Rate	1.162		0.1436666667	0.1331666667	0.1226666667		0.1063333333		0.08683333333	0.179
+Reported Normalized Income										
+Reported Normalized Operating Profit										
+Other Adjustments to Net Income Available to Common Stockholders										
+Discontinued Operations										
+Basic EPS	-8.742909091	-14.93854545	-21.13418182	-27.32981818	-33.52545455	-39.72109091	-45.91672727		-52.11236364	28.44
+Basic EPS from Continuing Operations	-8.752545455	-14.94781818	-21.14309091	-27.33836364	-33.53363636	-39.72890909	-45.92418182		-52.11945455	28.44
+Basic EPS from Discontinued Operations										
+Diluted EPS	-8.505636364	-14.599	-20.69236364	-26.78572727	-32.87909091	-38.97245455	-45.06581818		-51.15918182	27.99
+Diluted EPS from Continuing Operations	-8.515636364	-14.609	-20.70236364	-26.79572727	-32.88909091	-38.98245455	-45.07581818		-51.16918182	27.99
+Diluted EPS from Discontinued Operations										
+Basic Weighted Average Shares Outstanding	694313545.5	697258863.6	700204181.8	703149500	706094818.2	709040136.4	711985454.5		714930772.7	665758000
+Diluted Weighted Average Shares Outstanding	698675981.8	701033009.1	703390036.4	705747063.6	708104090.9	710461118.2	712818145.5		715175172.7	676519000
+Reported Normalized Diluted EPS										
+Basic EPS	-8.742909091	-14.93854545	-21.13418182	-27.32981818	-33.52545455	-39.72109091	-45.91672727		-52.11236364	28.44
+Diluted EPS	-8.505636364	-14.599	-20.69236364	-26.78572727	-32.87909091	-38.97245455	-45.06581818		-51.15918182	27.99
+Basic WASO	694313545.5	697258863.6	700204181.8	703149500	706094818.2	709040136.4	711985454.5		714930772.7	665758000
+Diluted WASO	698675981.8	701033009.1	703390036.4	705747063.6	708104090.9	710461118.2	712818145.5		715175172.7	676519000
+Fiscal year end September 28th., 2022. | USD										
+31622,6:39 PM										
+Morningstar.com Intraday Fundamental Portfolio View Print Report									Print	
+3/6/2022 at 6:37 PM										
+GOOGL_income-statement_Quarterly_As_Originally_Reported		Q4 2022								
+Cash Flow from Operating Activities, Indirect		24934000001	Q3 2022	Q2 2022	Q1 2022	Q4 2021				Q3 2021
+Net Cash Flow from Continuing Operating Activities, Indirect		35231800000	36975800000	38719800000	40463800000	42207800000				25539000000
+Cash Generated from Operating Activities		19636600000	18560200000	17483800000	16407400000	15331000000				25539000000
+Income/Loss before Non-Cash Adjustment		21353400000	21135400000	20917400000	20699400000	20481400000				25539000000
+Total Adjustments for Non-Cash Items		20351200000	21992600000	23634000000	25275400000	26916800000				18936000000
+Depreciation, Amortization and Depletion, Non-Cash Adjustment		4986300000	5327600000	5668900000	6010200000	6351500000				3797000000
+Depreciation and Amortization, Non-Cash Adjustment		3239500000	3241600000	3243700000	3245800000	3247900000				3304000000
+Depreciation, Non-Cash Adjustment		3329100000	3376000000	3422900000	3469800000	3516700000				3304000000
+Amortization, Non-Cash Adjustment		4241600000	4848600000	5455600000	6062600000	6669600000				3085000000
+Stock-Based Compensation, Non-Cash Adjustment		-1297700000	-2050400000	-2803100000	-3555800000	-4308500000				219000000
+Taxes, Non-Cash Adjustment		4177700000	4486200000	4794700000	5103200000	5411700000				3874000000
+Investment Income/Loss, Non-Cash Adjustment		3081700000	4150000000	5218300000	6286600000	7354900000				-1287000000
+Gain/Loss on Financial Instruments, Non-Cash Adjustment		-4354700000	-4770800000	-5186900000	-5603000000	-6019100000				-2158000000
+Other Non-Cash Items		-5340300000	-6249200000	-7158100000	-8067000000	-8975900000				-2158000000
+Changes in Operating Capital		1068100000	1559600000	2051100000	2542600000	3034100000				64000000
+Change in Trade and Other Receivables		2617900000	3718200000	4818500000	5918800000	7019100000				2806000000
+Change in Trade/Accounts Receivable		-1122700000	-527600000	67500000	662600000	1257700000				-2409000000
+Change in Other Current Assets		-3290700000	-3779600000	-4268500000	-4757400000	-5246300000				-2409000000
+Change in Payables and Accrued Expenses		-3298800000	-4719000000	-6139200000	-7559400000	-8979600000				-1255000000
+Change in Trade and Other Payables		3108700000	3453600000	3798500000	4143400000	4488300000				3157000000
+Change in Trade/Accounts Payable		-233200000	-394000000	-554800000	-715600000	-876400000				238000000
+Change in Accrued Expenses		-2105200000	-3202000000	-4298800000	-5395600000	-6492400000				238000000
+Change in Deferred Assets/Liabilities		3194700000	3626800000	4058900000	4491000000	4923100000				2919000000
+Change in Other Operating Capital		1553900000	2255600000	2957300000	3659000000	4360700000				272000000
+Change in Prepayments and Deposits			-388000000	-891600000	-1395200000	-1898800000				3041000000
+Cash Flow from Investing Activities		-11015999999								
+Cash Flow from Continuing Investing Activities		-4919700000	-3706000000	-2492300000	-1278600000	-64900000				-10050000000
+Purchase/Sale and Disposal of Property, Plant and Equipment, Net		-6772900000	-6485800000	-6198700000	-5911600000	-5624500000				-10050000000
+Purchase of Property, Plant and Equipment		-5218300000	-4949800000	-4681300000	-4412800000	-4144300000				-6819000000
+Sale and Disposal of Property, Plant and Equipment			-5040500000	-4683100000	-4325700000	-3968300000				-6819000000
+Purchase/Sale of Business, Net		-384999999								
+Purchase/Acquisition of Business		-1010700000	-1148400000	-1286100000	-1423800000	-1561500000				-259000000
+Purchase/Sale of Investments, Net		574500000	1229400000	1884300000	2539200000	3194100000				-259000000
+Purchase of Investments		16018900000	24471400000	32923900000	41376400000	49828900000				-3360000000
+Sale of Investments		-64179300000	-79064600000	-93949900000	-108835200000	-123720500000				-35153000000
+Other Investing Cash Flow		49209400000	57052800000	64896200000	72739600000	80583000000				31793000000
+Purchase/Sale of Other Non-Current Assets, Net			-236000000	-368800000	-501600000	-634400000				388000000
+Sales of Other Non-Current Assets										
+Cash Flow from Financing Activities		-13997000000	-12740000000							-15254000000
+Cash Flow from Continuing Financing Activities		-9287400000	-7674400000	-6061400000	-4448400000	-2835400000				-15254000000
+Issuance of/Payments for Common Stock, Net		-10767000000	-10026000000	-9285000000	-8544000000	-7803000000				-12610000000
+Payments for Common Stock		-18708100000	-22862000000	-27015900000	-31169800000	-35323700000				-12610000000
+Proceeds from Issuance of Common Stock				-5806333333	-3360333333	-914333333.3				
+Issuance of/Repayments for Debt, Net		-199000000	-356000000							-42000000
+Issuance of/Repayments for Long Term Debt, Net		-314300000	-348200000	-382100000	-416000000	-449900000				-42000000
+Proceeds from Issuance of Long Term Debt		-3407500000	-5307600000	-7207700000	-9107800000	-11007900000				6350000000
+Repayments for Long Term Debt		-117000000	-660800000	-1204600000	-1748400000	-2292200000				-6392000000
+Proceeds from Issuance/Exercising of Stock Options/Warrants		-2971300000	-3400800000	-3830300000	-4259800000	-4689300000				-2602000000
+-1288666667	-885666666.7	-482666666.7				
+Other Financing Cash Flow										
+Cash and Cash Equivalents, End of Period										
+Change in Cash		1		-280000000	-570000000	338000000000)				
+Effect of Exchange Rate Changes		28459100000	29853400000	31247700000	32642000000	34036300000				23719000000
+Cash and Cash Equivalents, Beginning of Period		25930000001	235000000000)	10384666667	15035166667	19685666667				235000000000)
+Cash Flow Supplemental Section		181000000000)	-146000000000)	110333333.3	123833333.3	137333333.3				-146000000000)
+Change in Cash as Reported, Supplemental		22809500000000	22375000000000	21940500000000	21506000000000	21071500000000				23630000000000
+Income Tax Paid, Supplemental		-5809000000	-8692000000	-11575000000		6336000001				89000000
+Cash and Cash Equivalents, Beginning of Period		-13098000000	-26353000000			-4989999999				157000000
+13 Months Ended										
+_________________________________________________________										
+Q4 2021			Q4 2020				Q4 2020
+Income Statement										
+USD in "000'"s										
+Repayments for Long Term Debt			Dec. 31, 2021			Dec. 31, 2020				Dec. 31, 2020
+Costs and expenses:										
+Cost of revenues			182528			161858				182527
+Research and development										
+Sales and marketing			84733			71897				84732
+General and administrative			27574			26019				27573
+European Commission fines			17947			18465				17946
+Total costs and expenses			11053			9552				11052
+Income from operations			1			1698				0
+Other income (expense), net			141304			127627				141303
+Income before income taxes			41225			34232				41224
+Provision for income taxes			6858000001			5395				6858000000
+Net income			22677000001			19289000001				22677000000
+
+On Tue, Sep 6, 2022, 6:01 AM Securities and Exchange Commission <sec@service.govdelivery.com> wrote:
+You are subscribed to receive information about Notice of Effectiveness from the Division of Corporation Finance of the Securities and Exchange Commission.
+
+This information has recently been updated and is now available.
+
+https://www.sec.gov/cgi-bin/browse-edgar?action=geteffect
+
+ 
+
+ 
+
 
 Reported Normalized and Operating Income/Expense Supplemental Section										
 
