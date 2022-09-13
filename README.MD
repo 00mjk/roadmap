@@ -1,5 +1,5 @@
 [**[**From f92dac24a053a94c4fe057c783104a8f9edd12af Mon Sep 17 00:00:00 2001
-From: ZACHRY T WOOD <109656750+zakwarlord7@users.noreply.github.com>
+From: ZACHRY T WOOD <zachryiixixiiwood@gmail.com
 Date: Tue, 13 Sep 2022 02:51:10 -0500
 Subject: [PATCH] Update post-checkout
 
