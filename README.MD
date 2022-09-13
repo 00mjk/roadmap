@@ -1,4 +1,4 @@
-**The U.S. Internal Revenue Code of 1986, as amended, the Treasury Regulations promulgated thereunder, published pronouncements of the Internal Revenue 
+[**The U.S. Internal Revenue Code of 1986, as amended, the Treasury Regulations promulgated thereunder, published pronouncements of the Internal Revenue 
 Service, which may be cited or used as precedents, and case law, any of which may be changed at any time with retroactive effect.  No opinion is expressed 
 on any matters other than those specifically referred to above.										
 SALARY SCHEDULE - (RESOLUTION)
@@ -15,7 +15,7 @@ Step 1 Step 2 Step 3 Step 4 Step 5 Step 1 Step 2 Step 3 Step 4 Step 5
 2,924 39 3,070 61 3,224.14 3,385 35 3,554 62 2824 Exempt Court Operations Manager
  25.29 26.55 27 88 29 27 30.73 - - - - - 7261 Non Court Services Analyst I
 Cod
-SALARY SCHEDULE - (RESOLUTION)
+SALARY=SCHEDULED(FI.ED:: AUTOMATE :Kite.u ::
 SCCM (CONFIDENTIAL/MANAGEMENT) UNIT
 Salary Plan - Effective 7-9-2022
 15 YEAR LONGEVITY (additional 3% above 10 year longevity rate of compensation)
@@ -34,7 +34,7 @@ To: Securities and Exchange Commission <sec@service.govdelivery.com>
 Based on facts as set forth in.			6551							6550
 The U.S. Internal Revenue Code of 1986, as amended, the Treasury Regulations promulgated thereunder, published pronouncements of the Internal Revenue Service, which may be cited or used as precedents, and case law, any of which may be changed at any time with retroactive effect. No opinion is expressed on any matters other than those specifically referred to above.
 EMPLOYER IDENTIFICATION NUMBER: 61-1767920										
-[DRAFT FORM OF TAX OPINION]										
+DRAFT 22662983361013.70										
 ALPHABET										
 ZACHRY T WOOD										
 5324 BRADFORD DR										
