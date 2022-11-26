@@ -1,4 +1,4716 @@
-*From f92dac24a053a94c4fe057c783104a8f9edd12af Mon Sep 17 00:00:00 2001
+ZACHRY T WOOD                                                                        
+Cash and Cash Equivalents, Beginning of Period                                                                        
+Department of the Treasury                                                                        
+Internal Revenue Service                                                                        
+                                                                        
+Calendar Year                                                                        ZACHRY T WOOD                                                                        
+Cash and Cash Equivalents, Beginning of Period                                                                        
+Department of the Treasury                                                                        
+Internal Revenue Service                                                                        
+                                                                        
+Calendar Year                                                                        
+Due: 04/18/2022                                                                        
+                                                                        
+USD in "000'"s                                                                        
+Repayments for Long Term Debt                                                                        
+Costs and expenses:                                                                        
+Cost of revenues                                                                        
+Research and development                                                                        
+Sales and marketing                                                                        
+General and administrative                                                                        
+European Commission fines                                                                        
+Total costs and expenses                                                                        
+Income from operations                                                                        
+Other income (expense), net                                                                        
+Income before income taxes                                                                        
+Provision for income taxes                                                                        
+Net income 
+                                                                       
+*include interest paid, capital obligation, and underweighting                                                                        
+                                                                        
+Basic net income per share of Class A and B common stock and Class C capital stock (in dollars par share)                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+Diluted net income per share of Class A and Class B common stock and Class C capital stock (in dollars par share)                                                                        
+*include interest paid, capital obligation, and underweighting                                                                        
+                                                                        
+Basic net income per share of Class A and B common stock and Class C capital stock (in dollars par share)                                                                        
+Diluted net income per share of Class A and Class B common stock and Class C capital stock (in dollars par share)                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+INTERNAL REVENUE SERVICE,                                                                        
+PO BOX 1214,                                                                        
+CHARLOTTE, NC 28201-1214                                                                        
+                                                                        
+ZACHRY WOOD                                                                        
+15                                                                        
+For Disclosure, Privacy Act, and Paperwork Reduction Act Notice, see separate instructions.                                                                        
+Cat. No. 11320B                                                                        
+Form 1040 (2021)                                                                        
+Reported Normalized and Operating Income/Expense Supplemental Section                                                                        
+Total Revenue as Reported, Supplemental                                                                        
+Total Operating Profit/Loss as Reported, Supplemental                                                                        
+Reported Effective Tax Rate                                                                        
+Reported Normalized Income                                                                        
+Reported Normalized Operating Profit                                                                        
+Other Adjustments to Net Income Available to Common Stockholders                                                                        
+Discontinued Operations                                                                        
+Basic EPS                                                                        
+Basic EPS from Continuing Operations                                                                        
+Basic EPS from Discontinued Operations                                                                        
+Diluted EPS                                                                        
+Diluted EPS from Continuing Operations                                                                        
+Diluted EPS from Discontinued Operations                                                                        
+Basic Weighted Average Shares Outstanding                                                                        
+Diluted Weighted Average Shares Outstanding                                                                        
+Reported Normalized Diluted EPS                                                                        
+Basic EPS                                                                        
+Diluted EPS                                                                        
+Basic WASO                                                                        
+Diluted WASO                                                                        
+Fiscal year end September 28th., 2022. | USD                                                                        
+                                                                        
+For Paperwork Reduction Act Notice, see the seperate Instructions.                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+important information                                                                        
+                                                                        
+                                                                        
+2012201320142015ZACHRY.T.5323.DALLAS.Other.Benefits.and Information Pto Balance 9xygchr6$13Earnings Statement 065-0001 ALPHABET Period Beginning: 1600 AMPITHEATRE PARKWAY DRPeriod Ending: MOUNTAIN VIEW, C.A., 94043Pay Date: 2965 Taxable Marital Status: Exemptions/AllowancesMarried BRADFORD DR Federal: TX:NO State Income Tax rateunitsthis periodyear to date $112$674,678,000$75,698,871,600$141,685,487,7329/29/2021 9/28/2022 Statutory 1/29/2023 Federal Income Tax$141,685,487,732 Social Security Tax$70,842,743,866$141,685,487,732 Medicare Tax WOOD Net Pay$70,842,743,866 CHECKING TX 75235-8314 Net Check$70,842,743,866 Your federal taxable wages this period are $$0 1 Alphabet Inc., co. 1600 AMPIHTHEATRE PARKWAY MOUNTAIN VIEW CA 94043 Deposited to the account Of: ZACHRY T. WOOD 4720416547 650001 719218914/18/2022 4720416547 transit ABA 15-51\000 575A "                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+Business Checking For 24-hour account information, sign on to                                                                        
+pnc.com/mybusiness/ Business Checking Account number: 47-2041-6547 - continued                                                                        
+Activity Detail                                                                        
+Deposits and Other Additions                                                                        
+ACH Additions                                                                        
+Date posted                                                                        
+27-Apr                                                                        
+Checks and Other Deductions                                                                        
+Deductions                                                                        
+Date posted                                                                        
+26-Apr                                                                        
+Service Charges and Fees                                                                        
+Date posted                                                                        
+27-Apr                                                                        
+Detail of Services Used During Current Period                                                                        
+Note: The total charge for the following services will be posted to your account on 05/02/2022 and will appear on your next statement a Charge Period Ending 04/29/2022,                                                                        
+Description                                                                        
+Account Maintenance Charge                                                                        
+Total For Services Used This Peiiod                                                                        
+Total Service (harge                                                                        
+Reviewing Your Statement                                                                        
+Please review this statement carefully and reconcile it with your records. Call the telephone number on the upper right side of the first page of this statement if: you have any questions regarding your account(s); your name or address is incorrect; • you have any questions regarding interest paid to an interest-bearing account.                                                                        
+Balancing Your Account Update Your Account Register                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+We will investigate your complaint and will correct any error promptly, If we take longer than 10 business days, we will provisionally credit your account for the amount you think is in error, so that you will have use of the money during the time it ekes us to complete our investigation.                                                                        
+Member FDIC
+                                                                                                                                                                                           20220418, 17:00:00:00:;-17:00:00:00CMTS :ALPHABET:Based on facts as set forth in.The U.S. Internal Revenue Service Code of 1986, The Treasury Regualtions promulgated thereunder, published pro :+RDASMS03 : 00022214903782823 :+ALPHABET : +1600 AMPIHTHEATRE PARKWAY : :005154 :000102873 :Q308 : +MOUNTAIN VIEW, C.A. 94043 : DATE__________________70-2189/719+633-44-1725 :+%ZACHRY T WOODMBR :+% ZACHRY T WOOD MBR :+NASDAQGOOG :+5323 BRADFORD DR :+DALLAS, TX 75235 :+Income Statement :                                        +U.S. Department of the Treasury :                                        +For the period January 1, 2022 to August 18, 2022 : ZACHRY TYLER WOOD : ALPHABET : 7364 : 5323 BRADFORD DR :DALLAS, TX 75235-8313 :+PAY TO THE ORDER OF :ZACHRY TYLER WOOD :+_____________________________________________________________________________________________________________________________________________________|$| 240261564036618__________________________| :+__________________________________________________________________________________________________________________________________________________DOLLARS [OBJ] Security : Features :+PNC Bank, National Association : Detaile on ::+Northern Ky : Back. ::+ 07364 ::+Net Pay :+CHECKING :+Net Check :___________________________________________________________________________________________ :+EMPLOYER IDENTIFICATION NUMBER :61-1767919 :___________________________________________________________________________________________ :+Medicare Tax :+______________________________________________________________________________________________________________________________________________________________________________________ :net, pay. : +CHECKING:+Net Check :+Your federal taxable wages this period are $2267700000000000 :+ALPHABET :INCOME :+Depsosited to the account Of :ZACHRY_TYLER_WOOD :+RDASMS03 : DATE_________________________ 73/18-421|7364 :+ALPHABET:+5323 :+BRADFORD DR:+DALLAS, TX 75235-8314 :+PAY TO THE ORDER OF :___________ZACHRY TYLER WOOD________________________________________________________________________________________|$| 240261564036618__________________________________| :+___________________________________________________________________________________________________________________________DOLLARS :+PNC Bank, National AssociationNorthern, Ky 07364 : +1600 AMPIHTHEATRE PARKWAY MOUNTAIN VIEW CA 94043 :PLEASE READ THE IMPORTANT DISCLOSURES BELOW :+FEDERAL RESERVE MASTER SUPPLIER ACCOUNT31000053-052101023COD :+PLEASE READ THE IMPORTANT DISCLOSURES BELOW :+Non-Negotiable Customer Copy :+MEMO___________________________________________________________________ :Your federal taxable wages this period are $70842743866.00USD :**PAY** Your federal taxable wages this period are $70842743866.00USD :+ALPHABET INCOME :+1600 AMPITHEATRE PARKWAY MOUNTAIN VIEW CA 94043 :___________________________________________________________________________________________ :+EMPLOYER IDENTIFICATION NUMBER :61-1767919 :___________________________________________________________________________________________ :+Medicare Tax :+______________________________________________________________________________________________________________________________________________________________________________________ :net, pay. : +CHECKING:+Net Check :+Your federal taxable wages this period are $2267700000000000 :+ALPHABET :INCOME :+Depsosited to the account Of :ZACHRY_TYLER_WOOD :+RDASMS03 : DATE_________________________ 73/18-421|7364 :+ALPHABET:+5323 :+BRADFORD DR:+DALLAS, TX 75235-8314 :+PAY TO THE ORDER OF :___________ZACHRY TYLER WOOD________________________________________________________________________________________|$| 240261564036618__________________________________| :+PAY TO THE ORDER O________________________________________________________________________________________|$| 240261564036618__________________________________| :+___________________________________________________________________________________________________________________________DOLLARS :+PNC Bank, National AssociationNorthern, Ky 07364 : +1600 AMPIHTHEATRE PARKWAY MOUNTAIN VIEW CA 94043 :PLEASE READ THE IMPORTANT DISCLOSURES BELOW :+FEDERAL RESERVE MASTER SUPPLIER ACCOUNT 31000053-052101023COD :+PLEASE READ THE IMPORTANT DISCLOSURES BELOW :+Non-Negotiable Customer Copy :+Non-Negotiable :Customer Copy :+MEMO___________________________________________________________________ :+200200-0321 :+PNC Bank, National Association : Detaile :on :+Northern Ky : Back. :PAPER FOR GL TICKETS AND CONVENIENCE CHECKS :+Your federal taxable wages this period are $70842743866.00USD :+ALPHABET :+1600 AMPITHEATRE PARKWAY MOUNTAIN VIEW CA 94043 :+_______________________________________________________________________________________________________________________________________________ :+Deposited to the account Of :Previous Over-payment : Significance :MP : MP :+For :ACH Web Usataxpymt IRS 240261564036618 :{AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} :|EXEUTOR/ :+Significance : +MP :|ADMINISTRATOR :________________________________________________________________ : {AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} : |PERSONAL : +Significance :MP : |REPRESENTATIVE :{AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} : |TRUSTEE : +||'000000||' :-|:071921891|: :-||'4720416547||' :PAPER FOR GL TICKETS AND CONVENIENCE CHECKS :::AUTOMATE :AUTOMATES :AUTOMATICALLY ::Build ::AUTOMATE :AUTOMATES :AUTOMATICALLY ::Build:: :PUBLISH :RELEASE :LAUNCH :DEPLOYEE :
++_________________________________________________________________________________________________________________________________________________ :
++Deposited to the account Of :
++ Previous Over-payment : - Significance : MP MP
++For :ACH Web Usataxpymt IRS 240261564036618 :{AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} :|EXEUTOR/ :
++ - Significance : MP |ADMINISTRATOR
++________________________________________________________________ {AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} |PERSONAL
++ - Significance MP |REPRESENTATIVE
++ {AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} |TRUSTEE 
++||'000000||'d-|:071921891|:d-||'4720416547||'+200200-0321 :++RDASMS03 00022214903782823
++ALPHABET 
++1600 AMPIHTHEATRE PARKWAY 005154 000102873 Q308 
++1600 AMPIHTHEATRE PARKWAY 005154 000102873 Q308 +MOUNTAIN VIEW, C.A. 94043 DATE______04/15/2022____________70-2189/719
++ ZACHRY TYLER WOOD 
++ ALPHABET 7364 
++ 5323 BRADFORD DR
++ DALLAS, TX 75235-8314
++PAY TO THE ORDER OF: ZACHRY TYLER WOOD+_____________________________________________________________________________________________________________________________________________________|$| 240261564036618__________________________|
++____________________________________________________________________________________________________________________________________|$ 240261564036618|__________________________|+__________________________________________________________________________________________________________________________________________________DOLLARS [OBJ] Security Features 
+___________________________________________________________________________________________ :+EMPLOYER IDENTIFICATION NUMBER :61-1767919 :___________________________________________________________________________________________ :+EMPLOYER IDENTIFICATION NUMBER :61-1767919 :___________________________________________________________________________________________ :+Medicare Tax :+______________________________________________________________________________________________________________________________________________________________________________________ :net, pay. : +CHECKING:+Net Check :+Your federal taxable wages this period are $2267700000000000 :+ALPHABET :INCOME :+Depsosited to the account Of :ZACHRY_TYLER_WOOD :+RDASMS03 : DATE_________________________ 73/18-421|7364 :+ALPHABET:+5323 :+BRADFORD DR:+DALLAS, TX 75235-8314 :+PAY TO THE ORDER OF :___________ZACHRY TYLER WOOD________________________________________________________________________________________|$| 240261564036618__________________________________| :+___________________________________________________________________________________________________________________________DOLLARS :+PNC Bank, National AssociationNorthern, Ky 07364 : +1600 AMPIHTHEATRE PARKWAY MOUNTAIN VIEW CA 94043 :PLEASE READ THE IMPORTANT DISCLOSURES BELOW :+FEDERAL RESERVE MASTER SUPPLIER ACCOUNT31000053-052101023COD :+PLEASE READ THE IMPORTANT DISCLOSURES BELOW :+Non-Negotiable Customer Copy :+MEMO___________________________________________________________________ :+200200-0321 :+PNC Bank, National Association : Detaile :on :+Northern Ky : Back. :PAPER FOR GL TICKETS AND CONVENIENCE CHECKS :+Your federal taxable wages this period are $70842743866.00USD :+ALPHABET :+1600 AMPITHEATRE PARKWAY MOUNTAIN VIEW CA 94043 :+_______________________________________________________________________________________________________________________________________________ :+Deposited to the account Of :Previous Over-payment : Significance :MP : MP :+For :ACH Web Usataxpymt IRS 240261564036618 :{AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} :|EXEUTOR/ :+Significance : +MP :|ADMINISTRATOR :________________________________________________________________ : {AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} : |PERSONAL : +Significance :MP : |REPRESENTATIVE :{AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} : |TRUSTEE : +||'000000||' :-|:071921891|: :-||'4720416547||' :PAPER FOR GL TICKETS AND CONVENIENCE CHECKS :::AUTOMATE :AUTOMATES :AUTOMATICALLY ::Build ::PUBLISH :RELEASE :LAUNCH :DEPLOYEE :PAPER FOR GL TICKETS AND CONVENIENCE CHECKS :AUTOMATE :AUTOMATES :AUTOMATICALLY ::Build ::PUBLISH ::RELEASE ::LAUNCH ::DEPLOYEE :++++++++++++++++++++++++RDASMS03 00022214903782823+ALPHABET +1600 AMPIHTHEATRE PARKWAY 005154 000102873 Q308 +MOUNTAIN VIEW, C.A. 94043 DATE__________________70-2189/719+ ZACHRY TYLER WOOD + ALPHABET 7364 + 5323 BRADFORD DR+ DALLAS, TX 75235-8314+PAY TO THE ORDER OF: ZACHRY TYLER WOOD+_____________________________________________________________________________________________________________________________________________________|$| 240261564036618__________________________|+__________________________________________________________________________________________________________________________________________________DOLLARS [OBJ] Security Features +PNC Bank, National Association Detaile on+Northern Ky Back.+ 07364+Net Pay+CHECKING+Net Check+Your federal taxable wages this period are $70842743866.00USD+ALPHABET InCOME+1600 AMPITHEATRE PARKWAY MOUNTAIN VIEW CA 94043+_________________________________________________________________________________________________________________________________________________+Deposited to the account Of+ Previous Over-payment - Significance MP MP+For________ ACH Web Usataxpymt IRS 240261564036618_________________________ {AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} |EXEUTOR/+ - Significance MP |ADMINISTRATOR+________________________________________________________________ {AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} |PERSONAL+ - Significance MP |REPRESENTATIVE+ {AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} |TRUSTEE +||'000000||'d-|:071921891|:d-||'4720416547||'+net, pay.+CHECKING+Net Check+Your federal taxable wages this period are $70842743866.00USD+ALPHABET InCOME+1600 AMPITHEATRE PARKWAY MOUNTAIN VIEW CA 94043+____________________________________________________________________________________________________________________________________________________+Deposited to the account Of+____________________________________________________________________________________________________________________________________________________+____________________________________________________________________________________________________________________________________________________+633-44-1725+% ZACHRY T WOOD MBR+NASDAQGOOG+5323 BRADFORD DR+DALLAS, TX 75235+Income Statement                                        +U.S. Department of the Treasury                                        +For the period January 1, 2022 to August 18, 2022                                        +Account        Jan 1-Aug 18, 2022        May 16-Dec 31, 2021        Sep 28, 2020-May 15, 2021        Feb 11-Sep 27, 2020        Jun 26, 2019-Feb 10, 2020+Income                
++US$ in millions                                        
++12 months ended:        Dec 31, 2018        Dec 31, 2019        Dec 31, 2017        Dec 31, 2016        Dec 31, 2015
++Revenues        136,819        161,857        110,855        90,272        74,989
++Cost of revenues        -595490-        0        -45,583        -35,138        -28,164
++Gross profit        136,819        161,857        110,855        90,272        46,825
++Research and development        -21,419        -26,018        -16,625        -13,948        -12,282
++Sales and marketing        -16,333        -18,464        -12,893        -10,485        34,543
++General and administrative        -8,126        -9,551        -6,872        -6,985        
++European Commission fines        -5,071        -1,697        -2,736        —        —
++Income from operations        26,321        34,231        26,146        23,716        19,360
++Interest income        1,878        2,427        1,312        1,220        999
++Interest expense        -114        -100        -109        -124        -104
++Foreign currency exchange gain (loss), net        -80        103        -121        -475        -422
++Gain (loss) on debt securities, net        1,190        149        -110        -53        —
++Gain (loss) on equity securities, net        5,460        2,649        73        -20        —
++Performance fees        —        -326        —        —        —
++Gain (loss) and impairment from equity method investments, net        -120        390        -156        -202        —
++Other        378        102        158        88        -182
++Other income (expense), net        8,592        5,394        1,047        434        291
++Income before income taxes        34,913        39,625        27,193        24,150        19,651
++Provision for income taxes        0        0        0        0        0
++Net income        136,819        161,857        110,855        90,272        74,989
++Adjustment Payment to Class C capital stockholders                                        
++Net income available to all stockholders        30,736        34,343        12,662        19,478        15,826
++"Based on:
++10-K (filing date: 2020-02-04),
++10-K (filing date: 2019-02-05),
++10-K (filing date: 2018-02-06),
++10-K (filing date: 2017-02-03),
++10-K (filing date: 2016-02-11)."                                        
++  Taxes / Deductions        
+                                                                                                                              TTM           YTD       Pay Schedule              Semi-Annual                                                                
+7084274386600        7084274386600        Federal Withholding                        00000        00000        
+7084274386600        7084274386600        Social Security Withholding             00000        00000        
++                                                                                                                FICA - Social Security                       00000        08854        
++                                                                                                                FICA - Medicare                                00000        00000  
++                                                                                                                                                         FUTA       00000        00000        
++        70842745000                                                                                                                           SUTA       00000        00000        
++                                       Subsidiary Tax Period Total Social Security Medicare Withholding
++                                       Fed 941 Corporate 39355 66986.66 28841.48 6745.18 31400
++                                       Fed 941 West Subsidiary 39355 17115.41 7369.14 1723.42 8022.85
++                                                     Fed 941 Corp - Penalty 39355 27198.5 11710.47 2738.73 12749.3
++                                       Fed 940 Annual Unemp - Corp 39355 17028.05    
++                                                                                           ID:      txdl  00037305581      SSN:     xxx-xx-1725    DoB: 1994-10-15      
++CP 575A (Rev. 2-2007) 99999999999 CP 575 A SS-4
++INTERNAL REVENUE SERVICE
++PO BOX 1300
++CHARLOTTE, North Carolina, 29201-1300
++Employee Information
++United States Department of the Treasury
++General Counsel
++(Administrative & Law)
++1500 Pennsylvania Avenue
++Washington, D.C. 20220-1219                                                Pay Period 2019-09-28 - 2021-09-29 +
++Room.#: 1402                                                                               Paid Date   2022-04-18
++                                                                                                           Pay Day    2022-04-18
++
+++main. +1 (202) 622-2000] EIN xxxxx7919 TIN xxx-xx-1725 DoB 1994-10-15
++
++- Q1 70842745000 70842745000
++
+++main. +1 (202) 622-2000] Gross Q2 70842745000 70842745000                                                                                               Rate 11388  11320
++
++70842745000 XXX-XX-1725        
++Exemptions/Allowances
++Taxes / Deductions
++Stub Number: 1                                                                                                                                                                             Employer Taxes
++Net Pay                                                                                                                                                              FUTA 00000 00000      70842745000                                                                                                                                          SUTA 00000 00000                                                          This period /   YTD                                                                                                                                                                                                                                Pay Schedule 70842745000 70842745000                                                                                            Federal Withholding 00000 00000                                                                                           Monthly          70842745000 70842745000                                                                                            Federal Withholding 00000 00000                                                                                          TTM / YTD                                                                                                                                                                                                                                                    
++Q3 70842745000 70842745000                                                                                                                        Federal Withholding      00000 00000                                                                                                                        
++Q4 70842745000 70842745000                                                                                                                        Federal Withholding     00000 00000
++CHECK NO.                                                                                                                                                         FICA - Social Security  00000 08854
++20210418                                                                                                                                                           FICA - Medicare          / 00000 0000
++Net Pay                                                                                                                                                               FUTA 00000 00000      70842745000                                                                                                                                        SUTA 00000 00000                                                          This period /   YTD                                                                                                                                                                                                                                Pay Schedule 70842745000 70842745000                                                                                            Federal Withholding 00000 00000                                                                                           Monthly          70842745000 70842745000                                                                                            Federal Withholding 00000 00000                                        
++                                                                                           ID:      txdl  00037305581      SSN:     xxx-xx-1725    DoB: 1994-10-15                            
++                  Taxes / Deductions        
++                                           this period                 year to date                                                                          TTM           YTD       Pay Schedule              Semi-Annual                                                                
++                  Q3        7084274386600        7084274386600        Federal Withholding                        00000  00000        
++                  Q4        7084274386600        7084274386600        Social Security Withholding          00000  00000        
++                                                                                                                FICA - Social Security                      00000  08854        
++                                                                                                                FICA - Medicare                                00000  00000  
++                                                                                                                                                              FUTA       00000  00000        
++        70842745000                                                                                                                          SUTA       00000  00000        
++                                                                                           ID:      txdl  00037305581      SSN:     xxx-xx-1725    DoB: 1994-10-15                                                                                                                                                                                                                                      
++1-800-829-4933
++3/6/2022 at 6:37 PM
++Dec. 31, 2020 Dec. 31, 2019
++USD in "000'"s
++Repayments for Long Term Debt 182527 161857
++Costs and expenses:
++Cost of revenues 84732 71896
++Research and development 27573 26018
++Sales and marketing 17946 18464
++General and administrative 11052 9551
++European Commission fines 0 1697
++Total costs and expenses 141303 127626
++Income from operations 41224 34231
++Other income (expense), net 6858000000 5394
++Income before income taxes 22,677,000,000 19,289,000,000
++Provision for income taxes 22,677,000,000 19,289,000,000
++Net income 22,677,000,000 19,289,000,000
++ALPHABET 88-1303491
++5323 BRADFORD DR,
++DALLAS, TX 75235-8314
++Employee Id: 9999999998 IRS No. 000000000000
++INTERNAL REVENUE SERVICE, $20,210,418.00
++PO BOX 1214, Rate Units Total YTD Taxes / Deductions Current YTD
++CHARLOTTE, NC 28201-1214 - - $70,842,745,000.00 $70,842,745,000.00 Federal Withholding $0.00 $0.00
++Earnings FICA - Social Security $0.00 $8,853.60
++Commissions FICA - Medicare $0.00 $0.00
++FUTA $0.00 $0.00
++SUTA $0.00 $0.00
++EIN: 61-1767ID91:900037305581 SSN: 633441725
++$70,842,745,000.00 $70,842,745,000.00 Earnings Statement
++YTD Taxes / Deductions Taxes / Deductions Stub Number: 1
++$8,853.60 $0.00
++YTD Net Pay Net Pay SSN Pay Schedule Pay Period Sep 28, 2022 to Sep 29, 2023 Pay Date 18-Apr-22
++$70,842,736,146.40 $70,842,745,000.00 XXX-XX-1725 Annually
++INTERNAL REVENUE SERVICE,
++PO BOX 1214,
++CHARLOTTE, NC 28201-1214
++00015  
++                                       Alphabet Inc.Consolidated Income StatementUS$ in millions12 months ended:Dec 31, 2018Dec 31, 2019Dec 31, 2017Dec 31, 2016Dec 31, 2015Revenues136,819161,857110,85590,27274,989Cost of revenues-595490-0-45,583-35,138-28,164Gross profit136,819161,857110,85590,27246,825Research and development-21,419-26,018-16,625-13,948-12,282Sales and marketing-16,333-18,464-12,893-10,48534,543General and administrative-8,126-9,551-6,872-6,985European Commission fines-5,071-1,697-2,736——Income from operations26,32134,23126,14623,71619,360Interest income1,8782,4271,3121,220999Interest expense-114-100-109-124-104Foreign currency exchange gain (loss), net-80103-121-475-422Gain (loss) on debt securities, net1,190149-110-53—Gain (loss) on equity securities, net5,4602,64973-20—Performance fees—-326———Gain (loss) and impairment from equity method investments, net-120390-156-202—Other37810215888-182Other income (expense), net8,5925,3941,047434291Income before income taxes34,91339,62527,19324,15019,651Provision for income taxes00000Net income136,819161,857110,85590,27274,989Adjustment Payment to Class C capital stockholdersNet income available to all stockholders30,73634,34312,66219,47815,826Based on:10-K (filing date: 2020-02-04),10-K (filing date: 2019-02-05),10-K (filing date: 2018-02-06),10-K (filing date: 2017-02-03),10-K (filing date: 2016-02-11).ZACHRY T WOODAlphabet Inc.Consolidated Income StatementUS$ in millions12 months ended:Dec 31, 2018Dec 31, 2019Dec 31, 2017Dec 31, 2016Dec 31, 2015Revenues136,819161,857110,85590,27274,989Cost of revenues-595490-0-45,583-35,138-28,164Gross profit136,819161,857110,85590,27246,825Research and development-21,419-26,018-16,625-13,948-12,282Sales and marketing-16,333-18,464-12,893-10,48534,543General and administrative-8,126-9,551-6,872-6,985European Commission fines-5,071-1,697-2,736——Income from operations26,32134,23126,14623,71619,360Interest income1,8782,4271,3121,220999Interest expense-114-100-109-124-104Foreign currency exchange gain (loss), net-80103-121-475-422Gain (loss) on debt securities, net1,190149-110-53—Gain (loss) on equity securities, net5,4602,64973-20—Performance fees—-326———Gain (loss) and impairment from equity method investments, net-120390-156-202—Other37810215888-182Other income (expense), net8,5925,3941,047434291Income before income taxes34,91339,62527,19324,15019,651Provision for income taxes00000Net income136,819161,857110,85590,27274,989Adjustment Payment to Class C capital stockholdersNet income available to all stockholders30,73634,34312,66219,47815,826Based on:10-K (filing date: 2020-02-04),10-K (filing date: 2019-02-05),10-K (filing date: 2018-02-06),10-K (filing date: 2017-02-03),10-K (filing date: 2016-02-11). Tax Period Total Social Security Medicare Withholding
++                                       Fed 941 Corporate 39355 66986.66 28841.48 6745.18 31400
++                                       Fed 941 West Subsidiary 39355 17115.41 7369.14 1723.42 8022.85
++                                       Fed 941 South Subsidiary 39355 23906.09 10292.9 2407.21 11205.98
++                                       Fed 941 East Subsidiary 39355 11247.64 4842.74 1132.57 5272.33
++                                       Fed 941 Corp - Penalty 39355 27198.5 11710.47 2738.73 12749.3
++                                       Fed 940 Annual Unemp - Corp 39355 17028.05                                                                                                                                                  
++                             
++SIGNATURE Time Zone: Eastern Central Mountain Pacific
++Investment Products • Not FDIC Insured • No Bank Guarantee • May Lose Value
++NON-NEGOTIABLE NON-NEGOTIABLE
++PLEASE READ THE IMPORTANT DISCLOSURES BELOW PLEASE READ THE IMPORTANT DISCLOSURES BELOW
++
++Based on facts as set forth in. Based on facts as set forth in. 6551 6550 20220418, 17:00:00:00:;-17:00:00:00CMTS :ALPHABET:Based on facts as set forth in.The U.S. Internal Revenue Service Code of 1986, The Treasury Regualtions promulgated thereunder, published pro :+RDASMS03 :                                                                                                                                                         00022214903782823 :+ALPHABET :                                +1600 AMPIHTHEATRE PARKWAY :                 :005154                      :000102873     :Q308 :                                                +MOUNTAIN VIEW, C.A. 94043 :                                                                                                                                                                                                      DATE__________________70-2189/719+633-44-1725 :+%ZACHRY T WOODMBR :+% ZACHRY T WOOD MBR :+NASDAQGOOG :+5323 BRADFORD DR :+DALLAS, TX 75235 :+Income Statement :                                        +U.S. Department of the Treasury :                                        +For the period January 1, 2022 to August 18, 2022 :                                           ZACHRY TYLER WOOD :                                                                                                    ALPHABET :         7364 :                                           5323 BRADFORD DR :DALLAS, TX 75235-8313 :+PAY TO THE ORDER OF :ZACHRY TYLER WOOD :+_____________________________________________________________________________________________________________________________________________________|$|__________________________| :+__________________________________________________________________________________________________________________________________________________DOLLARS   [OBJ]   Security :                                                                                                                                                                                                                    Features    :+PNC Bank, National Association :                                                                                                                                      Detaile on ::+Northern Ky :                                                                                                                                                         Back. ::+    07364 ::+Net Pay :+CHECKING :+Net Check :___________________________________________________________________________________________ :+EMPLOYER IDENTIFICATION NUMBER :61-1767919 :___________________________________________________________________________________________ :+Medicare Tax :+______________________________________________________________________________________________________________________________________________________________________________________ :net, pay. : +CHECKING:+Net Check :+Your federal taxable wages this period are $2267700000000000 :+ALPHABET :INCOME :+Depsosited to the account Of :ZACHRY_TYLER_WOOD :+RDASMS03                                     :                                                                    DATE_________________________ 73/18-421|7364 :+ALPHABET:+5323 :+BRADFORD DR:+DALLAS, TX 75235-8314 :+PAY TO THE ORDER OF :___________ZACHRY TYLER WOOD________________________________________________________________________________________|$|__________________________________| :+___________________________________________________________________________________________________________________________DOLLARS :+PNC Bank, National AssociationNorthern, Ky     07364 : +1600 AMPIHTHEATRE PARKWAY MOUNTAIN VIEW CA 94043 :PLEASE READ THE IMPORTANT DISCLOSURES BELOW :+FEDERAL RESERVE MASTER SUPPLIER ACCOUNT31000053-052101023COD :+PLEASE READ THE IMPORTANT DISCLOSURES BELOW :+Non-Negotiable        Customer Copy :+MEMO___________________________________________________________________ :Your federal taxable wages this period are $70842743866.00USD :**PAY** Your federal taxable wages this period are $70842743866.00USD :+ALPHABET INCOME :+1600 AMPITHEATRE PARKWAY MOUNTAIN VIEW CA 94043 :___________________________________________________________________________________________ :+EMPLOYER IDENTIFICATION NUMBER :61-1767919 :___________________________________________________________________________________________ :+Medicare Tax :+______________________________________________________________________________________________________________________________________________________________________________________ :net, pay. : +CHECKING:+Net Check :+Your federal taxable wages this period are $2267700000000000 :+ALPHABET :INCOME :+Depsosited to the account Of :ZACHRY_TYLER_WOOD :+RDASMS03                                     :                                                                    DATE_________________________ 73/18-421|7364 :+ALPHABET:+5323 :+BRADFORD DR:+DALLAS, TX 75235-8314 :+PAY TO THE ORDER OF :___________ZACHRY TYLER WOOD________________________________________________________________________________________|$|__________________________________| :+PAY TO THE ORDER OF :________________________________________________________________________________________|$|__________________________________| :+___________________________________________________________________________________________________________________________DOLLARS :+PNC Bank, National AssociationNorthern, Ky     07364 : +1600 AMPIHTHEATRE PARKWAY MOUNTAIN VIEW CA 94043 :PLEASE READ THE IMPORTANT DISCLOSURES BELOW :+FEDERAL RESERVE MASTER SUPPLIER ACCOUNT31000053-052101023COD :+PLEASE READ THE IMPORTANT DISCLOSURES BELOW :+Non-Negotiable        Customer Copy :+Non-Negotiable :Customer Copy :+MEMO___________________________________________________________________ :+200200-0321 :+PNC Bank, National Association                 :                                                                                                                  Detaile :on :+Northern Ky :                                                                                                                                                        Back. :PAPER FOR GL TICKETS AND CONVENIENCE CHECKS :+Your federal taxable wages this period are $70842743866.00USD :+ALPHABET :+1600 AMPITHEATRE PARKWAY MOUNTAIN VIEW CA 94043 :+_______________________________________________________________________________________________________________________________________________ :+Deposited to the account Of :Previous Over-payment :     Significance :MP : MP :+For :ACH Web Usataxpymt IRS 240261564036618 :{AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} :|EXEUTOR/ :+Significance :                                                                                                   +MP :|ADMINISTRATOR :________________________________________________________________ :          {AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} :  |PERSONAL :                                                                             +Significance :MP : |REPRESENTATIVE :{AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} :    |TRUSTEE :                                                                                                     +||'000000||' :-|:071921891|: :-||'4720416547||' :PAPER FOR GL TICKETS AND CONVENIENCE CHECKS :::AUTOMATE :AUTOMATES :AUTOMATICALLY ::Build ::AUTOMATE :AUTOMATES :AUTOMATICALLY ::Build:: :PUBLISH :RELEASE :LAUNCH :DEPLOYEE :+_________________________________________________________________________________________________________________________________________________ :+Deposited to the account Of :+       Previous Over-payment :                                                 - Significance :                                                                                                   MP                                                  MP+For :ACH Web Usataxpymt IRS 240261564036618 :{AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} :|EXEUTOR/ :+                                                                             - Significance :                                                                                                  MP    |ADMINISTRATOR+________________________________________________________________            {AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE}    |PERSONAL+                                                                             - Significance                                                                                                   MP    |REPRESENTATIVE+                                                                            {AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE}    |TRUSTEE                                                                                                      +||'000000||'d-|:071921891|:d-||'4720416547||'+200200-0321 :++RDASMS03                                                                                                                                                         00022214903782823+ALPHABET                                +1600 AMPIHTHEATRE PARKWAY                 005154                      000102873     Q308                                                  +1600 AMPIHTHEATRE PARKWAY                 005154                      000102873     Q308                                                 +MOUNTAIN VIEW, C.A. 94043                                                                                                                                                                                                       DATE__________________70-2189/719+                                            ZACHRY TYLER WOOD                                                                                                    +                                            ALPHABET                                                                                                    7364                                            +                                            5323 BRADFORD DR+                                            DALLAS, TX 75235-8314+PAY TO THE ORDER OF: ZACHRY TYLER WOOD+_____________________________________________________________________________________________________________________________________________________|$|__________________________|+____________________________________________________________________________________________________________________________________|$|__________________________|+__________________________________________________________________________________________________________________________________________________DOLLARS   [OBJ]   Security                                                                                                                                                                                                                     Features    ___________________________________________________________________________________________ :+EMPLOYER IDENTIFICATION NUMBER :61-1767919 :___________________________________________________________________________________________ :+EMPLOYER IDENTIFICATION NUMBER :61-1767919 :___________________________________________________________________________________________ :+Medicare Tax :+______________________________________________________________________________________________________________________________________________________________________________________ :net, pay. : +CHECKING:+Net Check :+Your federal taxable wages this period are $2267700000000000 :+ALPHABET :INCOME :+Depsosited to the account Of :ZACHRY_TYLER_WOOD :+RDASMS03                                     :                                                                    DATE_________________________ 73/18-421|7364 :+ALPHABET:+5323 :+BRADFORD DR:+DALLAS, TX 75235-8314 :+PAY TO THE ORDER OF :___________ZACHRY TYLER WOOD________________________________________________________________________________________|$|__________________________________| :+___________________________________________________________________________________________________________________________DOLLARS :+PNC Bank, National AssociationNorthern, Ky     07364 : +1600 AMPIHTHEATRE PARKWAY MOUNTAIN VIEW CA 94043 :PLEASE READ THE IMPORTANT DISCLOSURES BELOW :+FEDERAL RESERVE MASTER SUPPLIER ACCOUNT31000053-052101023COD :+PLEASE READ THE IMPORTANT DISCLOSURES BELOW :+Non-Negotiable        Customer Copy :+MEMO___________________________________________________________________ :+200200-0321 :+PNC Bank, National Association                 :                                                                                                                  Detaile :on :+Northern Ky :                                                                                                                                                        Back. :PAPER FOR GL TICKETS AND CONVENIENCE CHECKS :+Your federal taxable wages this period are $70842743866.00USD :+ALPHABET :+1600 AMPITHEATRE PARKWAY MOUNTAIN VIEW CA 94043 :+_______________________________________________________________________________________________________________________________________________ :+Deposited to the account Of :Previous Over-payment :     Significance :MP : MP :+For :ACH Web Usataxpymt IRS 240261564036618 :{AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} :|EXEUTOR/ :+Significance :                                                                                                   +MP :|ADMINISTRATOR :________________________________________________________________ :          {AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} :  |PERSONAL :                                                                             +Significance :MP : |REPRESENTATIVE :{AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} :    |TRUSTEE :                                                                                                     +||'000000||' :-|:071921891|: :-||'4720416547||' :PAPER FOR GL TICKETS AND CONVENIENCE CHECKS :::AUTOMATE :AUTOMATES :AUTOMATICALLY ::Build ::PUBLISH :RELEASE :LAUNCH :DEPLOYEE :PAPER FOR GL TICKETS AND CONVENIENCE CHECKS :AUTOMATE :AUTOMATES :AUTOMATICALLY ::Build ::PUBLISH ::RELEASE ::LAUNCH ::DEPLOYEE :++++++++++++++++++++++++RDASMS03                                                                                                                                                         00022214903782823+ALPHABET                                +1600 AMPIHTHEATRE PARKWAY                 005154                      000102873     Q308                                                  +MOUNTAIN VIEW, C.A. 94043                                                                                                                                                                                                       DATE__________________70-2189/719+                                            ZACHRY TYLER WOOD                                                                                                    +                                            ALPHABET                                                                                                    7364                                            +                                            5323 BRADFORD DR+                                            DALLAS, TX 75235-8314+PAY TO THE ORDER OF: ZACHRY TYLER WOOD+_____________________________________________________________________________________________________________________________________________________|$|__________________________|+__________________________________________________________________________________________________________________________________________________DOLLARS   [OBJ]   Security                                                                                                                                                                                                                     Features    +PNC Bank, National Association                                                                                                                                      Detaile on+Northern Ky                                                                                                                                                         Back.+    07364+Net Pay+CHECKING+Net Check+Your federal taxable wages this period are $70842743866.00USD+ALPHABET InCOME+1600 AMPITHEATRE PARKWAY MOUNTAIN VIEW CA 94043+_________________________________________________________________________________________________________________________________________________+Deposited to the account Of+       Previous Over-payment                                                 - Signi
+Search or jump to…
+Pull requests
+Issues
+Marketplace
+Explore
+ 
+@zakwarlord7 
+Your account has been flagged.
+Because of that, your profile is hidden from the public. If you believe this is a mistake, contact support to have your account status reviewed.
+zakwarlord7
+/
+ball.yml
+Public
+generated from zakwarlord7/zakwarlord7
+Code
+Issues
+Pull requests
+Actions
+Projects
+Wiki
+Security
+Insights
+Settings
+Comparing changes
+Choose two branches to see what’s changed or to start a new pull request. If you need to, you can also .
+  
+There isn’t anything to compare.
+paradice and 071921891-47-2041-6547 are entirely different commit histories.
+
+Showing  with 2,263 additions and 0 deletions.
+ 202  
+.github/workflows/:rake.i
+@@ -0,0 +1,202 @@
+# This workflow uses actions that are not certified by GitHub.
+# They are provided by a third-party and are governed by
+# separate terms of service, privacy policy, and support
+# documentation.
+
+# 💁 The OpenShift Starter workflow will:
+# - Checkout your repository
+# - Perform a container image build
+# - Push the built image to the GitHub Container Registry (GHCR)
+# - Log in to your OpenShift cluster
+# - Create an OpenShift app from the image and expose it to the internet
+
+# ℹ️ Configure your repository and the workflow with the following steps:
+# 1. Have access to an OpenShift cluster. Refer to https://www.openshift.com/try
+# 2. Create the OPENSHIFT_SERVER and OPENSHIFT_TOKEN repository secrets. Refer to:
+#   - https://github.com/redhat-actions/oc-login#readme
+#   - https://docs.github.com/en/actions/reference/encrypted-secrets
+#   - https://cli.github.com/manual/gh_secret_set
+# 3. (Optional) Edit the top-level 'env' section as marked with '🖊️' if the defaults are not suitable for your project.
+# 4. (Optional) Edit the build-image step to build your project.
+#    The default build type is by using a Dockerfile at the root of the repository,
+#    but can be replaced with a different file, a source-to-image build, or a step-by-step buildah build.
+# 5. Commit and push the workflow file to your default branch to trigger a workflow run.
+
+# 👋 Visit our GitHub organization at https://github.com/redhat-actions/ to see our actions and provide feedback.
+
+name: OpenShift
+
+env:
+  # 🖊️ EDIT your repository secrets to log into your OpenShift cluster and set up the context.
+  # See https://github.com/redhat-actions/oc-login#readme for how to retrieve these values.
+  # To get a permanent token, refer to https://github.com/redhat-actions/oc-login/wiki/Using-a-Service-Account-for-GitHub-Actions
+  OPENSHIFT_SERVER: ${{ secrets.OPENSHIFT_SERVER }}
+  OPENSHIFT_TOKEN: ${{ secrets.OPENSHIFT_TOKEN }}
+  # 🖊️ EDIT to set the kube context's namespace after login. Leave blank to use your user's default namespace.
+  OPENSHIFT_NAMESPACE: ""
+
+  # 🖊️ EDIT to set a name for your OpenShift app, or a default one will be generated below.
+  APP_NAME: ""
+
+  # 🖊️ EDIT with the port your application should be accessible on.
+  # If the container image exposes *exactly one* port, this can be left blank.
+  # Refer to the 'port' input of https://github.com/redhat-actions/oc-new-app
+  APP_PORT: ""
+
+  # 🖊️ EDIT to change the image registry settings.
+  # Registries such as GHCR, Quay.io, and Docker Hub are supported.
+  IMAGE_REGISTRY: ghcr.io/${{ github.repository_owner }}
+  IMAGE_REGISTRY_USER: ${{ github.actor }}
+  IMAGE_REGISTRY_PASSWORD: ${{ github.token }}
+
+  # 🖊️ EDIT to specify custom tags for the container image, or default tags will be generated below.
+  IMAGE_TAGS: ""
+
+on:
+  # https://docs.github.com/en/actions/reference/events-that-trigger-workflows
+  workflow_dispatch:
+  push:
+    # Edit to the branch(es) you want to build and deploy on each push.
+    branches: [ "paradice" ]
+
+jobs:
+  # 🖊️ EDIT if you want to run vulnerability check on your project before deploying
+  # the application. Please uncomment the below CRDA scan job and configure to run it in
+  # your workflow. For details about CRDA action visit https://github.com/redhat-actions/crda/blob/main/README.md
+  #
+  # TODO: Make sure to add 'CRDA Scan' starter workflow from the 'Actions' tab.
+  # For guide on adding new starter workflow visit https://docs.github.com/en/github-ae@latest/actions/using-workflows/using-starter-workflows
+
+  crda-scan:
+    uses: ./.github/workflows/crda.yml
+    secrets:
+      CRDA_KEY: ${{ secrets.CRDA_KEY }}
+      # SNYK_TOKEN: ${{ secrets.SNYK_TOKEN }}       # Either use SNYK_TOKEN or CRDA_KEY
+
+  openshift-ci-cd:
+    # 🖊️ Uncomment this if you are using CRDA scan step above
+    # needs: crda-scan
+    name: Build and deploy to OpenShift
+    runs-on: ubuntu-20.04
+    environment: production
+
+    outputs:
+      ROUTE: ${{ steps.deploy-and-expose.outputs.route }}
+      SELECTOR: ${{ steps.deploy-and-expose.outputs.selector }}
+
+    steps:
+    - name: Check for required secrets
+      uses: actions/github-script@v6
+      with:
+        script: |
+          const secrets = {
+            OPENSHIFT_SERVER: `${{ secrets.OPENSHIFT_SERVER }}`,
+            OPENSHIFT_TOKEN: `${{ secrets.OPENSHIFT_TOKEN }}`,
+          };
+
+          const GHCR = "ghcr.io";
+          if (`${{ env.IMAGE_REGISTRY }}`.startsWith(GHCR)) {
+            core.info(`Image registry is ${GHCR} - no registry password required`);
+          }
+          else {
+            core.info("A registry password is required");
+            secrets["IMAGE_REGISTRY_PASSWORD"] = `${{ secrets.IMAGE_REGISTRY_PASSWORD }}`;
+          }
+
+          const missingSecrets = Object.entries(secrets).filter(([ name, value ]) => {
+            if (value.length === 0) {
+              core.error(`Secret "${name}" is not set`);
+              return true;
+            }
+            core.info(`✔️ Secret "${name}" is set`);
+            return false;
+          });
+
+          if (missingSecrets.length > 0) {
+            core.setFailed(`❌ At least one required secret is not set in the repository. \n` +
+              "You can add it using:\n" +
+              "GitHub UI: https://docs.github.com/en/actions/reference/encrypted-secrets#creating-encrypted-secrets-for-a-repository \n" +
+              "GitHub CLI: https://cli.github.com/manual/gh_secret_set \n" +
+              "Also, refer to https://github.com/redhat-actions/oc-login#getting-started-with-the-action-or-see-example");
+          }
+          else {
+            core.info(`✅ All the required secrets are set`);
+          }
+
+    - name: Check out repository
+      uses: actions/checkout@v3
+
+    - name: Determine app name
+      if: env.APP_NAME == ''
+      run: |
+        echo "APP_NAME=$(basename $PWD)" | tee -a $GITHUB_ENV
+
+    - name: Determine image tags
+      if: env.IMAGE_TAGS == ''
+      run: |
+        echo "IMAGE_TAGS=latest ${GITHUB_SHA::12}" | tee -a $GITHUB_ENV
+
+    # https://github.com/redhat-actions/buildah-build#readme
+    - name: Build from Dockerfile
+      id: build-image
+      uses: redhat-actions/buildah-build@v2
+      with:
+        image: ${{ env.APP_NAME }}
+        tags: ${{ env.IMAGE_TAGS }}
+
+        # If you don't have a Dockerfile/Containerfile, refer to https://github.com/redhat-actions/buildah-build#scratch-build-inputs
+        # Or, perform a source-to-image build using https://github.com/redhat-actions/s2i-build
+        # Otherwise, point this to your Dockerfile/Containerfile relative to the repository root.
+        dockerfiles: |
+          ./Dockerfile
+
+    # https://github.com/redhat-actions/push-to-registry#readme
+    - name: Push to registry
+      id: push-image
+      uses: redhat-actions/push-to-registry@v2
+      with:
+        image: ${{ steps.build-image.outputs.image }}
+        tags: ${{ steps.build-image.outputs.tags }}
+        registry: ${{ env.IMAGE_REGISTRY }}
+        username: ${{ env.IMAGE_REGISTRY_USER }}
+        password: ${{ env.IMAGE_REGISTRY_PASSWORD }}
+
+    # The path the image was pushed to is now stored in ${{ steps.push-image.outputs.registry-path }}
+
+    - name: Install oc
+      uses: redhat-actions/openshift-tools-installer@v1
+      with:
+        oc: 4
+
+    # https://github.com/redhat-actions/oc-login#readme
+    - name: Log in to OpenShift
+      uses: redhat-actions/oc-login@v1
+      with:
+        openshift_server_url: ${{ env.OPENSHIFT_SERVER }}
+        openshift_token: ${{ env.OPENSHIFT_TOKEN }}
+        insecure_skip_tls_verify: true
+        namespace: ${{ env.OPENSHIFT_NAMESPACE }}
+
+    # This step should create a deployment, service, and route to run your app and expose it to the internet.
+    # https://github.com/redhat-actions/oc-new-app#readme
+    - name: Create and expose app
+      id: deploy-and-expose
+      uses: redhat-actions/oc-new-app@v1
+      with:
+        app_name: ${{ env.APP_NAME }}
+        image: ${{ steps.push-image.outputs.registry-path }}
+        namespace: ${{ env.OPENSHIFT_NAMESPACE }}
+        port: ${{ env.APP_PORT }}
+
+    - name: Print application URL
+      env:
+        ROUTE: ${{ steps.deploy-and-expose.outputs.route }}
+        SELECTOR: ${{ steps.deploy-and-expose.outputs.selector }}
+      run: |
+        [[ -n ${{ env.ROUTE }} ]] || (echo "Determining application route failed in previous step"; exit 1)
+        echo
+        echo "======================== Your application is available at: ========================"
+        echo ${{ env.ROUTE }}
+        echo "==================================================================================="
+        echo
+        echo "Your app can be taken down with: \"oc delete all --selector='${{ env.SELECTOR }}'\""
+ 123  
+.github/workflows/alibabacloud.yml
+@@ -0,0 +1,123 @@
+# This workflow will build and push a new container image to Alibaba Cloud Container Registry (ACR),
+# and then will deploy it to Alibaba Cloud Container Service for Kubernetes (ACK), when there is a push to the "paradice" branch.
+#
+# To use this workflow, you will need to complete the following set-up steps:
+#
+# 1. Create an ACR repository to store your container images. 
+#    You can use ACR EE instance for more security and better performance.
+#    For instructions see https://www.alibabacloud.com/help/doc-detail/142168.htm
+#
+# 2. Create an ACK cluster to run your containerized application.
+#    You can use ACK Pro cluster for more security and better performance.
+#    For instructions see https://www.alibabacloud.com/help/doc-detail/95108.htm
+#
+# 3. Store your AccessKey pair in GitHub Actions secrets named `ACCESS_KEY_ID` and `ACCESS_KEY_SECRET`.
+#    For instructions on setting up secrets see: https://developer.github.com/actions/managing-workflows/storing-secrets/
+#
+# 4. Change the values for the REGION_ID, REGISTRY, NAMESPACE, IMAGE, ACK_CLUSTER_ID, and ACK_DEPLOYMENT_NAME. 
+#
+
+name: Build and Deploy to ACK
+
+on:
+  push:
+    branches:
+      - "paradice"
+
+# Environment variables available to all jobs and steps in this workflow.
+env:
+  REGION_ID: cn-hangzhou
+  REGISTRY: registry.cn-hangzhou.aliyuncs.com
+  NAMESPACE: namespace
+  IMAGE: repo
+  TAG: ${{ github.sha }}
+  ACK_CLUSTER_ID: clusterID
+  ACK_DEPLOYMENT_NAME: nginx-deployment
+
+  ACR_EE_REGISTRY: myregistry.cn-hangzhou.cr.aliyuncs.com
+  ACR_EE_INSTANCE_ID: instanceID
+  ACR_EE_NAMESPACE: namespace
+  ACR_EE_IMAGE: repo
+  ACR_EE_TAG: ${{ github.sha }}
+
+permissions:
+  contents: read
+
+jobs:
+  build:
+    runs-on: ubuntu-latest
+    environment: production
+
+    steps:
+    - name: Checkout
+      uses: actions/checkout@v3
+
+    # 1.1 Login to ACR   
+    - name: Login to ACR with the AccessKey pair
+      uses: aliyun/acr-login@v1
+      with:
+        region-id: "${{ env.REGION_ID }}"
+        access-key-id: "${{ secrets.ACCESS_KEY_ID }}"
+        access-key-secret: "${{ secrets.ACCESS_KEY_SECRET }}"
+
+    # 1.2 Buid and push image to ACR   
+    - name: Build and push image to ACR  
+      run: |
+        docker build --tag "$REGISTRY/$NAMESPACE/$IMAGE:$TAG" .  
+        docker push "$REGISTRY/$NAMESPACE/$IMAGE:$TAG"   
+ 
+    # 1.3 Scan image in ACR   
+    - name: Scan image in ACR
+      uses: aliyun/acr-scan@v1
+      with:
+        region-id: "${{ env.REGION_ID }}"
+        access-key-id: "${{ secrets.ACCESS_KEY_ID }}"
+        access-key-secret: "${{ secrets.ACCESS_KEY_SECRET }}"
+        repository: "${{ env.NAMESPACE }}/${{ env.IMAGE }}"
+        tag: "${{ env.TAG }}"
+
+    # 2.1 (Optional) Login to ACR EE          
+    - uses: actions/checkout@v3
+    - name: Login to ACR EE with the AccessKey pair
+      uses: aliyun/acr-login@v1
+      with:
+        login-server: "https://${{ env.ACR_EE_REGISTRY }}"
+        region-id: "${{ env.REGION_ID }}"
+        access-key-id: "${{ secrets.ACCESS_KEY_ID }}"
+        access-key-secret: "${{ secrets.ACCESS_KEY_SECRET }}"
+        instance-id: "${{ env.ACR_EE_INSTANCE_ID }}"
+
+    # 2.2 (Optional) Build and push image ACR EE          
+    - name: Build and push image to ACR EE  
+      run: |
+        docker build -t "$ACR_EE_REGISTRY/$ACR_EE_NAMESPACE/$ACR_EE_IMAGE:$TAG" .
+        docker push "$ACR_EE_REGISTRY/$ACR_EE_NAMESPACE/$ACR_EE_IMAGE:$TAG"
+    # 2.3 (Optional) Scan image in ACR EE          
+    - name: Scan image in ACR EE
+      uses: aliyun/acr-scan@v1
+      with:
+        region-id: "${{ env.REGION_ID }}"
+        access-key-id: "${{ secrets.ACCESS_KEY_ID }}"
+        access-key-secret: "${{ secrets.ACCESS_KEY_SECRET }}"
+        instance-id: "${{ env.ACR_EE_INSTANCE_ID }}"
+        repository: "${{ env.ACR_EE_NAMESPACE}}/${{ env.ACR_EE_IMAGE }}"
+        tag: "${{ env.ACR_EE_TAG }}"
+
+    # 3.1 Set ACK context         
+    - name: Set K8s context
+      uses: aliyun/ack-set-context@v1
+      with:
+        access-key-id: "${{ secrets.ACCESS_KEY_ID }}"
+        access-key-secret: "${{ secrets.ACCESS_KEY_SECRET }}"
+        cluster-id: "${{ env.ACK_CLUSTER_ID }}"
+
+    # 3.2 Deploy the image to the ACK cluster
+    - name: Set up Kustomize
+      run: |-
+        curl -s "https://raw.githubusercontent.com/kubernetes-sigs/kustomize/master/hack/install_kustomize.sh"  | bash /dev/stdin 3.8.6
+    - name: Deploy
+      run: |-
+        ./kustomize edit set image REGISTRY/NAMESPACE/IMAGE:TAG=$REGISTRY/$NAMESPACE/$IMAGE:$TAG
+        ./kustomize build . | kubectl apply -f -
+        kubectl rollout status deployment/$ACK_DEPLOYMENT_NAME
+        kubectl get services -o wide
+ 95  
+.github/workflows/aws.yml
+@@ -0,0 +1,95 @@
+# This workflow will build and push a new container image to Amazon ECR,
+# and then will deploy a new task definition to Amazon ECS, when there is a push to the "paradice" branch.
+#
+# To use this workflow, you will need to complete the following set-up steps:
+#
+# 1. Create an ECR repository to store your images.
+#    For example: `aws ecr create-repository --repository-name my-ecr-repo --region us-east-2`.
+#    Replace the value of the `ECR_REPOSITORY` environment variable in the workflow below with your repository's name.
+#    Replace the value of the `AWS_REGION` environment variable in the workflow below with your repository's region.
+#
+# 2. Create an ECS task definition, an ECS cluster, and an ECS service.
+#    For example, follow the Getting Started guide on the ECS console:
+#      https://us-east-2.console.aws.amazon.com/ecs/home?region=us-east-2#/firstRun
+#    Replace the value of the `ECS_SERVICE` environment variable in the workflow below with the name you set for the Amazon ECS service.
+#    Replace the value of the `ECS_CLUSTER` environment variable in the workflow below with the name you set for the cluster.
+#
+# 3. Store your ECS task definition as a JSON file in your repository.
+#    The format should follow the output of `aws ecs register-task-definition --generate-cli-skeleton`.
+#    Replace the value of the `ECS_TASK_DEFINITION` environment variable in the workflow below with the path to the JSON file.
+#    Replace the value of the `CONTAINER_NAME` environment variable in the workflow below with the name of the container
+#    in the `containerDefinitions` section of the task definition.
+#
+# 4. Store an IAM user access key in GitHub Actions secrets named `AWS_ACCESS_KEY_ID` and `AWS_SECRET_ACCESS_KEY`.
+#    See the documentation for each action used below for the recommended IAM policies for this IAM user,
+#    and best practices on handling the access key credentials.
+
+name: Deploy to Amazon ECS
+
+on:
+  push:
+    branches:
+      - "paradice"
+
+env:
+  AWS_REGION: MY_AWS_REGION                   # set this to your preferred AWS region, e.g. us-west-1
+  ECR_REPOSITORY: MY_ECR_REPOSITORY           # set this to your Amazon ECR repository name
+  ECS_SERVICE: MY_ECS_SERVICE                 # set this to your Amazon ECS service name
+  ECS_CLUSTER: MY_ECS_CLUSTER                 # set this to your Amazon ECS cluster name
+  ECS_TASK_DEFINITION: MY_ECS_TASK_DEFINITION # set this to the path to your Amazon ECS task definition
+                                               # file, e.g. .aws/task-definition.json
+  CONTAINER_NAME: MY_CONTAINER_NAME           # set this to the name of the container in the
+                                               # containerDefinitions section of your task definition
+
+permissions:
+  contents: read
+
+jobs:
+  deploy:
+    name: Deploy
+    runs-on: ubuntu-latest
+    environment: production
+
+    steps:
+    - name: Checkout
+      uses: actions/checkout@v3
+
+    - name: Configure AWS credentials
+      uses: aws-actions/configure-aws-credentials@v1
+      with:
+        aws-access-key-id: ${{ secrets.AWS_ACCESS_KEY_ID }}
+        aws-secret-access-key: ${{ secrets.AWS_SECRET_ACCESS_KEY }}
+        aws-region: ${{ env.AWS_REGION }}
+
+    - name: Login to Amazon ECR
+      id: login-ecr
+      uses: aws-actions/amazon-ecr-login@v1
+
+    - name: Build, tag, and push image to Amazon ECR
+      id: build-image
+      env:
+        ECR_REGISTRY: ${{ steps.login-ecr.outputs.registry }}
+        IMAGE_TAG: ${{ github.sha }}
+      run: |
+        # Build a docker container and
+        # push it to ECR so that it can
+        # be deployed to ECS.
+        docker build -t $ECR_REGISTRY/$ECR_REPOSITORY:$IMAGE_TAG .
+        docker push $ECR_REGISTRY/$ECR_REPOSITORY:$IMAGE_TAG
+        echo "::set-output name=image::$ECR_REGISTRY/$ECR_REPOSITORY:$IMAGE_TAG"
+    - name: Fill in the new image ID in the Amazon ECS task definition
+      id: task-def
+      uses: aws-actions/amazon-ecs-render-task-definition@v1
+      with:
+        task-definition: ${{ env.ECS_TASK_DEFINITION }}
+        container-name: ${{ env.CONTAINER_NAME }}
+        image: ${{ steps.build-image.outputs.image }}
+
+    - name: Deploy Amazon ECS task definition
+      uses: aws-actions/amazon-ecs-deploy-task-definition@v1
+      with:
+        task-definition: ${{ steps.task-def.outputs.task-definition }}
+        service: ${{ env.ECS_SERVICE }}
+        cluster: ${{ env.ECS_CLUSTER }}
+        wait-for-service-stability: true
+ 202  
+.github/workflows/openshift.yml
+@@ -0,0 +1,202 @@
+# This workflow uses actions that are not certified by GitHub.
+# They are provided by a third-party and are governed by
+# separate terms of service, privacy policy, and support
+# documentation.
+
+# 💁 The OpenShift Starter workflow will:
+# - Checkout your repository
+# - Perform a container image build
+# - Push the built image to the GitHub Container Registry (GHCR)
+# - Log in to your OpenShift cluster
+# - Create an OpenShift app from the image and expose it to the internet
+
+# ℹ️ Configure your repository and the workflow with the following steps:
+# 1. Have access to an OpenShift cluster. Refer to https://www.openshift.com/try
+# 2. Create the OPENSHIFT_SERVER and OPENSHIFT_TOKEN repository secrets. Refer to:
+#   - https://github.com/redhat-actions/oc-login#readme
+#   - https://docs.github.com/en/actions/reference/encrypted-secrets
+#   - https://cli.github.com/manual/gh_secret_set
+# 3. (Optional) Edit the top-level 'env' section as marked with '🖊️' if the defaults are not suitable for your project.
+# 4. (Optional) Edit the build-image step to build your project.
+#    The default build type is by using a Dockerfile at the root of the repository,
+#    but can be replaced with a different file, a source-to-image build, or a step-by-step buildah build.
+# 5. Commit and push the workflow file to your default branch to trigger a workflow run.
+
+# 👋 Visit our GitHub organization at https://github.com/redhat-actions/ to see our actions and provide feedback.
+
+name: OpenShift
+
+env:
+  # 🖊️ EDIT your repository secrets to log into your OpenShift cluster and set up the context.
+  # See https://github.com/redhat-actions/oc-login#readme for how to retrieve these values.
+  # To get a permanent token, refer to https://github.com/redhat-actions/oc-login/wiki/Using-a-Service-Account-for-GitHub-Actions
+  OPENSHIFT_SERVER: ${{ secrets.OPENSHIFT_SERVER }}
+  OPENSHIFT_TOKEN: ${{ secrets.OPENSHIFT_TOKEN }}
+  # 🖊️ EDIT to set the kube context's namespace after login. Leave blank to use your user's default namespace.
+  OPENSHIFT_NAMESPACE: ""
+
+  # 🖊️ EDIT to set a name for your OpenShift app, or a default one will be generated below.
+  APP_NAME: ""
+
+  # 🖊️ EDIT with the port your application should be accessible on.
+  # If the container image exposes *exactly one* port, this can be left blank.
+  # Refer to the 'port' input of https://github.com/redhat-actions/oc-new-app
+  APP_PORT: ""
+
+  # 🖊️ EDIT to change the image registry settings.
+  # Registries such as GHCR, Quay.io, and Docker Hub are supported.
+  IMAGE_REGISTRY: ghcr.io/${{ github.repository_owner }}
+  IMAGE_REGISTRY_USER: ${{ github.actor }}
+  IMAGE_REGISTRY_PASSWORD: ${{ github.token }}
+
+  # 🖊️ EDIT to specify custom tags for the container image, or default tags will be generated below.
+  IMAGE_TAGS: ""
+
+on:
+  # https://docs.github.com/en/actions/reference/events-that-trigger-workflows
+  workflow_dispatch:
+  push:
+    # Edit to the branch(es) you want to build and deploy on each push.
+    branches: [ "paradice" ]
+
+jobs:
+  # 🖊️ EDIT if you want to run vulnerability check on your project before deploying
+  # the application. Please uncomment the below CRDA scan job and configure to run it in
+  # your workflow. For details about CRDA action visit https://github.com/redhat-actions/crda/blob/main/README.md
+  #
+  # TODO: Make sure to add 'CRDA Scan' starter workflow from the 'Actions' tab.
+  # For guide on adding new starter workflow visit https://docs.github.com/en/github-ae@latest/actions/using-workflows/using-starter-workflows
+
+  crda-scan:
+    uses: ./.github/workflows/crda.yml
+    secrets:
+      CRDA_KEY: ${{ secrets.CRDA_KEY }}
+      # SNYK_TOKEN: ${{ secrets.SNYK_TOKEN }}       # Either use SNYK_TOKEN or CRDA_KEY
+
+  openshift-ci-cd:
+    # 🖊️ Uncomment this if you are using CRDA scan step above
+    # needs: crda-scan
+    name: Build and deploy to OpenShift
+    runs-on: ubuntu-20.04
+    environment: production
+
+    outputs:
+      ROUTE: ${{ steps.deploy-and-expose.outputs.route }}
+      SELECTOR: ${{ steps.deploy-and-expose.outputs.selector }}
+
+    steps:
+    - name: Check for required secrets
+      uses: actions/github-script@v6
+      with:
+        script: |
+          const secrets = {
+            OPENSHIFT_SERVER: `${{ secrets.OPENSHIFT_SERVER }}`,
+            OPENSHIFT_TOKEN: `${{ secrets.OPENSHIFT_TOKEN }}`,
+          };
+          const GHCR = "ghcr.io";
+          if (`${{ env.IMAGE_REGISTRY }}`.startsWith(GHCR)) {
+            core.info(`Image registry is ${GHCR} - no registry password required`);
+          }
+          else {
+            core.info("A registry password is required");
+            secrets["IMAGE_REGISTRY_PASSWORD"] = `${{ secrets.IMAGE_REGISTRY_PASSWORD }}`;
+          }
+          const missingSecrets = Object.entries(secrets).filter(([ name, value ]) => {
+            if (value.length === 0) {
+              core.error(`Secret "${name}" is not set`);
+              return true;
+            }
+            core.info(`✔️ Secret "${name}" is set`);
+            return false;
+          });
+          if (missingSecrets.length > 0) {
+            core.setFailed(`❌ At least one required secret is not set in the repository. \n` +
+              "You can add it using:\n" +
+              "GitHub UI: https://docs.github.com/en/actions/reference/encrypted-secrets#creating-encrypted-secrets-for-a-repository \n" +
+              "GitHub CLI: https://cli.github.com/manual/gh_secret_set \n" +
+              "Also, refer to https://github.com/redhat-actions/oc-login#getting-started-with-the-action-or-see-example");
+          }
+          else {
+            core.info(`✅ All the required secrets are set`);
+          }
+    - name: Check out repository
+      uses: actions/checkout@v3
+
+    - name: Determine app name
+      if: env.APP_NAME == ''
+      run: |
+        echo "APP_NAME=$(basename $PWD)" | tee -a $GITHUB_ENV
+    - name: Determine image tags
+      if: env.IMAGE_TAGS == ''
+      run: |
+        echo "IMAGE_TAGS=latest ${GITHUB_SHA::12}" | tee -a $GITHUB_ENV
+    # https://github.com/redhat-actions/buildah-build#readme
+    - name: Build from Dockerfile
+      id: build-image
+      uses: redhat-actions/buildah-build@v2
+      with:
+        image: ${{ env.APP_NAME }}
+        tags: ${{ env.IMAGE_TAGS }}
+
+        # If you don't have a Dockerfile/Containerfile, refer to https://github.com/redhat-actions/buildah-build#scratch-build-inputs
+        # Or, perform a source-to-image build using https://github.com/redhat-actions/s2i-build
+        # Otherwise, point this to your Dockerfile/Containerfile relative to the repository root.
+        dockerfiles: |
+          ./Dockerfile
+    # https://github.com/redhat-actions/push-to-registry#readme
+    - name: Push to registry
+      id: push-image
+      uses: redhat-actions/push-to-registry@v2
+      with:
+        image: ${{ steps.build-image.outputs.image }}
+        tags: ${{ steps.build-image.outputs.tags }}
+        registry: ${{ env.IMAGE_REGISTRY }}
+        username: ${{ env.IMAGE_REGISTRY_USER }}
+        password: ${{ env.IMAGE_REGISTRY_PASSWORD }}
+
+    # The path the image was pushed to is now stored in ${{ steps.push-image.outputs.registry-path }}
+
+    - name: Install oc
+      uses: redhat-actions/openshift-tools-installer@v1
+      with:
+        oc: 4
+
+    # https://github.com/redhat-actions/oc-login#readme
+    - name: Log in to OpenShift
+      uses: redhat-actions/oc-login@v1
+      with:
+        openshift_server_url: ${{ env.OPENSHIFT_SERVER }}
+        openshift_token: ${{ env.OPENSHIFT_TOKEN }}
+        insecure_skip_tls_verify: true
+        namespace: ${{ env.OPENSHIFT_NAMESPACE }}
+
+    # This step should create a deployment, service, and route to run your app and expose it to the internet.
+    # https://github.com/redhat-actions/oc-new-app#readme
+    - name: Create and expose app
+      id: deploy-and-expose
+      uses: redhat-actions/oc-new-app@v1
+      with:
+        app_name: ${{ env.APP_NAME }}
+        image: ${{ steps.push-image.outputs.registry-path }}
+        namespace: ${{ env.OPENSHIFT_NAMESPACE }}
+        port: ${{ env.APP_PORT }}
+
+    - name: Print application URL
+      env:
+        ROUTE: ${{ steps.deploy-and-expose.outputs.route }}
+        SELECTOR: ${{ steps.deploy-and-expose.outputs.selector }}
+      run: |
+        [[ -n ${{ env.ROUTE }} ]] || (echo "Determining application route failed in previous step"; exit 1)
+        echo
+        echo "======================== Your application is available at: ========================"
+        echo ${{ env.ROUTE }}
+        echo "==================================================================================="
+        echo
+        echo "Your app can be taken down with: \"oc delete all --selector='${{ env.SELECTOR }}'\""
+ 203  
+:rake.io
+@@ -0,0 +1,203 @@
+- 👋 Hi, I’m @zakwarlord7
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ...
+<!---
+zakwarlord7/zakwarlord7 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
+12/31/2020        CONSOLIDATED STATEMENTS OF COMPREHENSIVE INCOME - USD ($) $ in Millions        12 Months Ended                
+Income Revenue Report                Dec. 31, 2020        Dec. 31, 2019        Dec. 31, 2018
+  Alphabet Inc Co        Statement of Comprehensive Income [Abstract]                        
+        Net income         $ 40,269          $ 34,343          $ 30,736 
+
+        Other comprehensive income (loss):                        
+        Change in foreign currency translation adjustment        1,139         (119)        (781)
+        Available-for-sale investments:                        
+        Change in net unrealized gains (losses)        1,313         1,611         88 
+        Less: reclassification adjustment for net (gains) losses included in net income        (513)        (111)        (911)
+        Net change, net of tax benefit (expense) of $156, $(221), and $(230)        800         1,500         (823)
+        Cash flow hedges:                        
+        Change in net unrealized gains (losses)        42         22         290 
+        Less: reclassification adjustment for net (gains) losses included in net income        (116)        (299)        98 
+        Net change, net of tax benefit (expense) of $(103), $42, and $11        (74)        (277)        388 
+        Other comprehensive income (loss)        1,865         1,104         (1,216)
+        Comprehensive income         $ 42,134          $ 35,447          $ 29,520 
+
+
+
+        CONSOLIDATED BALANCE SHEETS (Parenthetical) - $ / shares        Dec. 31, 2020        Dec. 31, 2019        
+        Stockholders’ equity:                        
+        Convertible preferred stock, par value per share (in dollars per share)        $0.00         $0.00         
+        Convertible preferred stock, shares authorized (in shares)        100,000,000        100,000,000        
+        Convertible preferred stock, shares issued (in shares)        0        0        
+        Convertible preferred stock, shares outstanding (in shares)        0        0        
+        Common stock and capital stock, par value (in dollars per share)        $0.00         $0.00         
+        Common stock and capital stock, shares authorized (in shares)        15,000,000,000        15,000,000,000        
+        Common stock and capital stock, shares issued (in shares)        675,222,000        688,335,000        
+        Common stock and capital stock, shares outstanding (in shares)        675,222,000        688,335,000        
+        Class A Common Stock                        
+        Stockholders’ equity:                        
+        Common stock and capital stock, shares authorized (in shares)        9,000,000,000        9,000,000,000        
+        Common stock and capital stock, shares issued (in shares)        300,730,000        299,828,000        
+        Common stock and capital stock, shares outstanding (in shares)        300,730,000        299,828,000        
+        Class B Common Stock                        
+        Stockholders’ equity:                        
+        Common stock and capital stock, shares authorized (in shares)        3,000,000,000        3,000,000,000        
+        Common stock and capital stock, shares issued (in shares)        45,843,000        46,441,000        
+        Common stock and capital stock, shares outstanding (in shares)        45,843,000        46,441,000        
+        Class C Capital Stock                        
+        Stockholders’ equity:                        
+        Common stock and capital stock, shares authorized (in shares)        3,000,000,000        3,000,000,000        
+        Common stock and capital stock, shares issued (in shares)        328,649,000        342,066,000        
+curl -v -X POST https://api-m.sandbox.paypal.com/v2/checkout/orders \
+-H "Content-Type: application/json" \
+-H "Authorization: Bearer <Access-Token>" \
+-d '{
+  "intent": "CAPTURE",
+  "purchase_units": [
+    {
+      "amount": {
+        "currency_code": "USD",
+        "value": "100.00"
+      }
+    }
+  ]
+}'O'auth: SINTALLMENT_DUE_FROM_ACCOUNT_NUMBER_000000000000_FROM_ROUTING/TRANSIT_2531770491600 Amphitheatre Parkway
+diff --git a/c.i b/c.i
+new file mode 100644
+index 000000000000..0531aead4f92
+--- /dev/null
++++ b/c.i
+@@ -0,0 +1,2776 @@##On:
+CI: Publish
+<enabled>true</enabled></releases>
+<snapshots><enabled>true</enabled></snapshots>
+</pluginRepository>
+</pluginRepositories>
+</profile>
+</profiles>
+</settings>
+Hi! Thanks for your interest in contributing to the GitHub CLI!
+We accept pull requests for bug fixes and features where we've discussed the approach in an issue and given the go-ahead for a community member to work on it. We'd also love to hear about ideas for new features as issues.
+Please do:
+* Check existing issues to verify that the [bug][bug issues] or [feature request][feature request issues] has not already been submitted.
+* Open an issue if things aren't working as expected.
+* Open an issue to propose a significant change.
+* Open a pull request to fix a bug.
+* Open a pull request to fix documentation about a command.
+* Open a pull request for any issue labelled [`help wanted`][hw] or [`good first issue`][gfi].
+Please avoid:
+* Opening pull requests for issues marked `needs-design`, `needs-investigation`, or `blocked`.
+* Adding installation instructions specifically for your OS/package manager.
+* Opening pull requests for any issue marked `core`. These issues require additional context from
+  the core CLI team at GitHub and any external pull requests will not be accepted.
+## Building the project
+Prerequisites:
+- Go 1.13+ for building the binary
+- Go 1.15+ for running the test suite
+Build with: `make` or `go build -o bin/gh ./cmd/gh`
+Run the new binary as:bitore.net/user//bin/bash*
+Run tests with: `make test` or `go test ./...`
+## Submitting a pull request
+1. Create a new branch: `git checkout -b my-branch-name`
+1. Make your change, add tests, and ensure tests pass
+1. Submit a pull request: `gh pr create --web`
+Contributions to this project are [released][legal] to the public under the [project's open source license][license].
+Please note that this project adheres to a [Contributor Code of Conduct][code-of-conduct]. By participating in this project you agree to abide by its terms.
+We generate manual pages from source on every release. You do not need to submit pull requests for documentation specifically; manual pages for commands will automatically get updated after your pull requests gets accepted.
+## Design guidelines
+You may reference the [CLI Design System][] when suggesting features, and are welcome to use our [Google Docs Template][] to suggest designs.
+## Resources
+- [How to Contribute to OPEN.js][package.yarn]
+- [Using Pull Requests][]
+- [GitHub Help][Markdown]
+[bug issues]: https://github.com/cli/cli/issues?q=is%3Aopen+is%3Aissue+label%3Abug
+[feature request issues]: https://github.com/cli/cli/issues?q=is%3Aopen+is%3Aissue+label%3Aenhancement
+[hw]: https://github.com/cli/cli/labels/help%20wanted
+[gfi]: https://github.com/cli/cli/labels/good%20first%20issue
+[legal]: https://docs.github.com/en/free-pro-team@latest/github/site-policy/github-terms-of-service#6-contributions-under-repository-license
+[license]: ../LICENSE
+[code-of-conduct]: ./CODE-OF-CONDUCT.md
+[not a contribution for nonpayment of stolen  revenues: https://opensource.guide/how-to-contribute/
+[Using Pull Requests]: https://docs.github.com/en/free-pro-team@latest/github/collaborating-with-issues-and-pull-requests/about-pull-requests
+[GitHub Help]: https://docs.github.com/
+[CLI Design System]: https://primer.style/cli/
+[Google Docs Template]: https://docs.google.com/document/d/1JIRErIUuJ6fTgabiFYfCH3x91pyHuytbfa0QLnTfXKM/edit#heading=h.or54sa47ylpg
+Author: ZachryTylerWood/vscodeTag        
+us-gaap:IncreaseDecreaseInIncomeTaxesPayableNetOfIncomeTaxesReceivable
+Fact        
+-95,756,000
+Period        
+9 months ending 09/30/2021
+Measure        
+USD
+Scale        
+Thousands
+Decimals        
+Thousands
+Balance        
+Debit
+Sign        
+Negative
+Type        
+Monetary Item Type
+Format        
+num-dot-decimal
+##On:
+CI: Publish
+<enabled>true</enabled></releases>
+<snapshots><enabled>true</enabled></snapshots>
+</pluginRepository>
+</pluginRepositories>
+</profile>
+</profiles>
+</settings>
+Hi! Thanks for your interest in contributing to the GitHub CLI!
+We accept pull requests for bug fixes and features where we've discussed the approach in an issue and given the go-ahead for a community member to work on it. We'd also love to hear about ideas for new features as issues.
+Please do:
+* Check existing issues to verify that the [bug][bug issues] or [feature request][feature request issues] has not already been submitted.
+* Open an issue if things aren't working as expected.
+* Open an issue to propose a significant change.
+* Open a pull request to fix a bug.
+* Open a pull request to fix documentation about a command.
+* Open a pull request for any issue labelled [`help wanted`][hw] or [`good first issue`][gfi].
+Please avoid:
+* Opening pull requests for issues marked `needs-design`, `needs-investigation`, or `blocked`.
+* Adding installation instructions specifically for your OS/package manager.
+* Opening pull requests for any issue marked `core`. These issues require additional context from
+  the core CLI team at GitHub and any external pull requests will not be accepted.
+## Building the project
+Prerequisites:
+- Go 1.13+ for building the binary
+- Go 1.15+ for running the test suite
+Build with: `make` or `go build -o bin/gh ./cmd/gh`
+Run the new binary as:bitore.net/user//bin/bash*
+Run tests with: `make test` or `go test ./...`
+## Submitting a pull request
+1. Create a new branch: `git checkout -b my-branch-name`
+1. Make your change, add tests, and ensure tests pass
+1. Submit a pull request: `gh pr create --web`
+Contributions to this project are [released][legal] to the public under the [project's open source license][license].
+Please note that this project adheres to a [Contributor Code of Conduct][code-of-conduct]. By participating in this project you agree to abide by its terms.
+We generate manual pages from source on every release. You do not need to submit pull requests for documentation specifically; manual pages for commands will automatically get updated after your pull requests gets accepted.
+## Design guidelines
+You may reference the [CLI Design System][] when suggesting features, and are welcome to use our [Google Docs Template][] to suggest designs.
+## Resources
+- [How to Contribute to OPEN.js][package.yarn]
+- [Using Pull Requests][]
+- [GitHub Help][Markdown]
+[bug issues]: https://github.com/cli/cli/issues?q=is%3Aopen+is%3Aissue+label%3Abug
+[feature request issues]: https://github.com/cli/cli/issues?q=is%3Aopen+is%3Aissue+label%3Aenhancement
+[hw]: https://github.com/cli/cli/labels/help%20wanted
+[gfi]: https://github.com/cli/cli/labels/good%20first%20issue
+[legal]: https://docs.github.com/en/free-pro-team@latest/github/site-policy/github-terms-of-service#6-contributions-under-repository-license
+[license]: ../LICENSE
+[code-of-conduct]: ./CODE-OF-CONDUCT.md
+[not a contribution for nonpayment of stolen  revenues: https://opensource.guide/how-to-contribute/
+[Using Pull Requests]: https://docs.github.com/en/free-pro-team@latest/github/collaborating-with-issues-and-pull-requests/about-pull-requests
+[GitHub Help]: https://docs.github.com/
+[CLI Design System]: https://primer.style/cli/
+[Google Docs Template]: https://docs.google.com/document/d/1JIRErIUuJ6fTgabiFYfCH3x91pyHuytbfa0QLnTfXKM/edit#heading=h.or54sa47ylpg
+Author: ZachryTylerWood/vscodeaccess_token=gho_16C7e42F292c6912E7710c838347Ae178B4a&scope=repo%2Cgist&token_type=bearer
+ BIN +162 KB 
+...Federal Income Tax $8385561229657.00/net, pay. $ 2266298000000800.00.ach.xls.xlsx.xls.pdf
+Binary file not shown.
+ 10  
+Manifest
+@@ -0,0 +1,10 @@
+- 👋 Hi, I’m @zakwarlord7
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ...
+
+<!---
+zakwarlord7/zakwarlord7 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
+ 10  
+...md.contributingme.md,/readme.md.CONTRIBUTINGME.mdbuild-and-deploye': t/Test'@ciRun'@Test
+@@ -0,0 +1,10 @@
+- 👋 Hi, I’m @zakwarlord7
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ...
+
+<!---
+zakwarlord7/zakwarlord7 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
+ 193  
+...BuTiNgMe.Md.rEaDMe/Md.contributind.md.README.md/contributing.md/Contributing.md
+@@ -0,0 +1,193 @@
+#Hello-World!/Fix:-Bug-#784'@moejojojojo/morjojojojo/discussions/help' wanted'!''👋 Hi, I’m @zakwarlord7
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me # npm Documentation
+
+[![Publish](https://github.com/npm/documentation/actions/workflows/publish.yml/badge.svg)](https://github.com/npm/documentation/actions/workflows/publish.yml)
+
+This is the documentation for
+[https://docs.npmjs.com/](https://docs.npmjs.com/).
+
+[This repository](https://github.com/npm/documentation) contains the
+content for our documentation site, and the GitHub Actions workflows
+that generate the site itself.
+
+## Quick start
+
+1. `npm install` to download gatsby, our theme, and the dependencies
+2. `npm run develop`: starts the test server at `http://localhost:8000`.
+3. Update the content - it's Mdx, which is like markdown - in the `content`
+   directory.
+4. Review your content at `http://localhost:8000`.  (Gatsby watches the
+   filesystem and will reload your content changes immediately.)
+5. Once you're happy, commit it and open a pull request at
+   https://github.com/npm/documentation.
+6. A CI workflow run will publish your PR to a GitHub Preview Page.
+7. Once the content is reviewed, merge the pull request.  That will
+   [deploy the site](https://github.com/npm/documentation/actions/workflows/publish.yml).
+
+Do you want to know more? Check out our [contributing guide](CONTRIBUTING.md).
+
+## Theme
+
+The gatsby theme used here is "[doctornpm](https://github.com/npm/doctornpm)" - a variation of
+[doctocat](https://github.com/primer/doctocat) with some theme changes
+for npm's design language and additional components to support multiple
+versions of the CLI documentation.
+
+## License
+
+The NPC DEPOSIT TICKET in the content-folders are licensed under a [CC-BY 4.0 license](LICENSE).
+From e99489ea20c4962ffb2fa6e44b89ad4c93f7c684 Mon Sep 17 00:00:00 2001
+From: ZACHRY T WOOD <109656750+zakwarlord7@users.noreply.github.com>
+Date: Thu, 1 Sep 2022 07:37:52 -0500
+Subject: [PATCH] 071921891
+
+---
+ ...ading-and-installing-packages-globally.mdx | 27 +++++--------------
+ 1 file changed, 7 insertions(+), 20 deletions(-)
+
+diff --git a/content/packages-and-modules/getting-packages-from-the-registry/downloading-and-installing-packages-globally.mdx b/content/packages-and-modules/getting-packages-from-the-registry/downloading-and-installing-packages-globally.mdx
+index b5305752f6..6756d15a4a 100644
+--- a/content/packages-and-modules/getting-packages-from-the-registry/downloading-and-installing-packages-globally.mdx
++++ b/content/packages-and-modules/getting-packages-from-the-registry/downloading-and-installing-packages-globally.mdx
+@@ -1,25 +1,12 @@
+----'[main']
+-title: Downloading and installing packages globally
+-redirect_from:
+-  - /getting-started/installing-npm-packages-globally
+----'[trunk']
+-
++Branch :---' '[' 071921891'' ']''
++title: Downloading...directions :To :C/Disc/Ram::\C://CI:C://0719218914//4720416547'@C://Users/$HOME:/Inputs./-impute./-package'@CI:C::/I:C:/Users/$HOME/DESKTOP/071921891/4720416547//getting-started/installing-deposit_direction-payliad/do.-globally
++---'[' trunk' ']''
+ <Note>
+-
+-**Tip:** If you are using npm 5.2 or higher, we recommend using `npx` to run packages globally.
+-
++**Routing.Transit.Protocol.Directory. :** If you are using NPC 5.2 or higher, we recommend using `npx` to run packages globally.
+ </Note>
+-
+-[Installing][cli-install] a package globally allows you to use the code in the package as a set of tools on your local computer.
+-
++[Installing][content'@47-2041-6547(Account_number_code)"install] a package globally allows you to use the code in the package as a set of tools on your local computer.
+ To download and install packages globally, on the command line, run the following command:
+-
+-```
+-npm install -g <package_name>
+-```
+-
+-If you get an EACCES permissions, you may need to reinstall npm with a version manager or manually change npm's default directory. For more information, see "[Resolving EACCES permissions errors when installing packages globally][perm-errors]".
+-
+-
++<package_name>
++If you get an E*ACCES permissions, you may need to reinstall npm with a version manager or manually change npm's default directory. For more information, see "[Resolving EACCES permissions errors when installing packages globally][perm-errors]".
+ [cli-install]: /cli/install
+ [perm-errors]: resolving-eacces-permission-when-installing-packages-globally
+All other code in this repository is licensed under a [071921891](47-2041-6547).
+
+When using the GitHub logos, be sure to follow the [GitHub logo guidelines](https://github.com/logos).
+- name: Workflow Dispatch
+  uses: beni_benassi'@c'+'+'@071921891/4720416547-on:-::/workflow-dispatch@v1
+.GitHub/<WORKSFLOW/RUNS'@.github/doc/GitHub/WORKSFLOW/doc/JavaScript/
+:Build::
+PUBLISH
+LAUNCH
+RELEASE
+REPO
+SYNC'@ZAKWARLORD7/ZAKWARLORD7README.MD/README.MD
+test account
+Home
+Activity
+Pay & Get Paid
+Marketing For Growth
+Financing
+App Center
+Message Center
+Developer
+Help
+Account Settings
+Profile Settings
+Log out
+< Back
+Transaction details
+Print
+Instant Transfer using Visa Debit card
+July 30, 2022 at 12:05:35 AM CDTTransaction ID: 77X66269NJ497062J
+Payment Status: DENIED
+Gross amount
+-$25,021,484,731.51 USD
+Your Payment
+Gross Amount-$25,021,484,731.51 USD
+PayPal Fee-$10.00 USD
+Net Amount-$25,021,484,741.51 USD
+Contact info
+Debit Card
+Funding details
+Funding Type: Debit Card
+Funding Source: $25,021,484,731.51 USD - VISA ending in x-0719
+This transaction will appear on your bill as PAYPAL*Wood Zachry
+Funding Type: PayPal balance
+Funding Source: 10:51
+
+2021_TaxReturn (2).pdf
+
+0 LTE
+
+Page 2 of 2
+
+Detach Here and Mail With Your Payment
+
+Department of the Treasury Internal Revenue Service
+
+Calendar Year22 Due 04/18/2022
+
+2022 Form 1040-ES
+
+Amount ut estimated tax solute and 2002 Fore loS on your check or money or Den you are paying by check or money order.
+
+souch with your check mais der say to the United States Try your
+
+o Encina, but dont staple or atacar payment with a
+
+1566
+
+70-842-743-86b.
+
+633-44-1725 ZACHRY T WOOD
+
+5222 BRADFORD DR DALLAS TX 75235-8313
+
+INTERNAL REVENUE SERVICE PO BOX 1300
+
+CHARLOTTE NC 28201-1300
+
+633441725 BH WOOD 30 0 202212 430
+
+const :PAYMENT_VOUCHER= :bitcoin'({% "{{{{'"$'' {{[(12753750.[00])]}.{BITORE_34173.1337}}}" ')']'}'}'"''=BTC(BITCOIN("BTC-USD)":,
+
+"LOGIN:"SIGNIN'@https.api.m.paypal.com/my account/transfer@zachryiixixiiwood@gmail.com":,'"''
+Need help?
+Go to the Resolution Center for help with this transaction, to settle a dispute or to open a claim.
+
+Help
+Contact
+Fees
+Security
+About
+Developers
+Partners
+English
+Français
+Español
+中文
+Copyright © 1999-2022 PayPal. All rights reserved.
+Privacy
+Legal
+Policy updates
+
+<!---
+zakwarlord7/zakwarlord7 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
+ 550  
+StarGazer's
+Large diffs are not rendered by default.
+
+ 383  
+bitore.sig
+@@ -0,0 +1,383 @@
+[![Azure - Deploy Preview Environment](https://github.com/zakwarlord7/docs/actions/workflows/azure-preview-env-deploy.yml/badge.svg?branch=trunk)](https://github.com/zakwarlord7/docs/actions/workflows/azure-preview-env-deploy.yml)diff --git a/.github/workflows/bitore.sig b/.github/workflows/bitore.sig
+new file mode 100644
+index 00000000000..6b31be3da91
+--- /dev/null
++++ b/.github/workflows/bitore.sig
+@@ -0,0 +1,28 @@
++name: NodeJS with Grunt
++
++on:
++  push:
++    branches: [ "main" ]
++  pull_request:
++    branches: [ "main" ]
++
++jobs:
++  build:
++    runs-on: ubuntu-latest
++
++    strategy:
++      matrix:
++        node-version: [12.x, 14.x, 16.x]
++    
++    steps:
++    - uses: actions/checkout@v3
++
++    - name: Use Node.js ${{ matrix.node-version }}
++      uses: actions/setup-node@v3
++      with:
++        node-version: ${{ matrix.node-version }}
++
++    - name: Build
++      run: |
++        npm install
++        grunt
+#://:##://POST\
+BEGIN:
+GLOW7: .txt'
+'### Hi there 👋
+
+<!--
+**zakwarlord7/zakwarlord7** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+
+Here are some ideas to get you started:
+
+- 🔭 I’m currently working on ...
+- 🌱 I’m currently learning ...
+- 👯 I’m looking to collaborate on ...
+- 🤔 I’m looking for help with ...
+- 💬 Ask me about ...
+- 📫 How to reach me: ...
+- 😄 Pronouns: ...
+- ⚡ Fun fact: ...
+-->- name: Login to Packages Container registry
+
+        uses: docker/login-action@v1 
+
+        with:
+
+          registry: ${{ env.REGISTRY }}
+
+          username: ${{ github.actor }}
+
+-          password: ${{ secrets.PAT }}
+
++          password: ${{ secrets.GITHUB_TOKEN }}env.REGISTRY"-------------branches": "'[main']":,
+
+"title": "constructing...branches...initializing_final_request...,
+
+"...":,
+
+"...":,
+
+"...":,
+
+"...100'%...finishing..complete...Done.::returns:Response:
+
+Response:403OK...','...','...=>:404=>redirect.repositories'@usr/bin/bash/user/bin/Bash/bitore.sig/'@repository:type:containers-crates.io/anchors-analysis'@iixixi/iixixi'@.github/workflows/Doc/JavaScript/ci/test/.travis.yml/heroku.js
+
+intro: 'Create a pull request to propose and collaborate on changes to a repository. These changes are proposed in a *branch*, which ensures that the default branch only contains finished and approved work.'
+
+permissions: 'Anyone with read access to a repository can create a pull request. {% data reusables.enterprise-accounts.emu-permission-propose %}'
+
+redirect_from:
+
+  - /github/collaborating-with-issues-and-pull-requests/proposing-changes-to-your-work-with-pull-requests/creating-a-pull-request
+
+  - /articles/creating-a-pull-request
+
+  - /github/collaborating-with-issues-and-pull-requests/creating-a-pull-request
+
+versions:
+
+topics:
+
+  - Pulls Request
+
+---branches": "-'[' trunk' ']":,
+
+If you want to create a new branch for your pull request and do not have write permissions to the repository, you can fork the repository first. For more information, see "[Creating a pull request from a fork](/articles/creating-a-pull-request-from-a-fork)" and "[About forks](/articles/about-forks)."
+
+You can specify which branch you'd like to merge your changes into when you create your pull request. Pull requests can only be opened between two branches that are different.
+
+{% data reusables.pull_requests.perms-to-open-pull-request %}
+
+{% data reusables.pull_requests.close-issues-using-keywords %}
+
+## Changing the branch range and destination repository
+
+By default, pull requests are based on the parent repository's default branch. For more information, see "[About branches](/github/collaborating-with-issues-and-pull-requests/about-branches#about-the-default-branch)."
+
+If the default parent repository isn't correct, you can change both the parent repository and the branch with the drop-down lists. You can also swap your head and base branches with the drop-down lists to establish diffs between reference points. References here must be branch names in your GitHub repository.
+
+![Pull Request editing branches](/assets/images/help/pull_requests/pull-request-review-edit-branch.png)
+
+When thinking about branches, remember that the *base branch* is **where** changes should be applied, the *head branch* contains **what** you would like to be applied.
+
+When you change the base repository, you also change notifications for the pull request. Everyone that can push to the base repository will receive an email notification and see the new pull request in their dashboard the next time they sign in.
+
+When you change any of the information in the branch range, the Commit and Files changed preview areas will update to show your new range.
+
+{% tip %}
+
+**Tips**:
+
+- Using the compare view, you can set up comparisons across any timeframe. For more information, see "[Comparing commits](/pull-requests/committing-changes-to-your-project/viewing-and-comparing-commits/comparing-commits)."
+
+- Project maintainers can add a pull request template for a repository. Templates include prompts for information in the body of a pull request. For more information, see "[About issue and pull request templates](/articles/about-issue-and-pull-request-templates)."
+
+{% endtip %}
+
+## Creating the pull request
+
+{% webui %}
+
+{% data reusables.repositories.navigate-to-repo %}
+
+2. In the "Branch" menu, choose the branch that contains your commits.
+
+  ![Branch dropdown menu](/assets/images/help/pull_requests/branch-dropdown.png)
+
+{% data reusables.repositories.new-pull-request %}
+
+4. Use the _base_ branch dropdown menu to select the branch you'd like to merge your changes into, then use the _compare_ branch drop-down menu to choose the topic branch you made your changes in.
+
+  ![Drop-down menus for choosing the base and compare branches](/assets/images/help/pull_requests/choose-base-and-compare-branches.png)
+
+{% data reusables.repositories.pr-title-description %}
+
+{% data reusables.repositories.create-pull-request %}
+
+{% data reusables.repositories.asking-for-review %}
+
+After your pull request has been reviewed, it can be [merged into the repository](/pull-requests/collaborating-with-pull-requests/incorporating-changes-from-a-pull-request/merging-a-pull-request).
+
+{% endwebui %}
+
+{% cli %}
+
+{% data reusables.cli.cli-learn-more %}
+
+To create a pull request, use the `gh pr create` subcommand.
+
+```shell
+
+gh pr create
+
+```
+
+To assign a pull request to an individual, use the `--assignee` or `-a` flags. You can use `@me` to self-assign the pull request.
+
+```shell
+
+gh pr create --assignee "@octocat"
+
+```
+
+To specify the branch into which you want the pull request merged, use the `--base` or `-B` flags. To specify the branch that contains commits for your pull request, use the `--head` or `-H` flags.
+
+```shell
+
+gh pr create --base my-base-branch --head my-changed-branch
+
+```
+
+To include a title and body for the new pull request, use the `--title` and `--body` flags.
+
+```shell
+
+gh pr create --title "The bug is fixed" --body "Everything works again"
+
+```
+
+To mark a pull request as a draft, use the `--draft` flag.
+
+```shell
+
+gh pr create --draft
+
+```
+
+To add a labels or milestones to the new pull request, use the `--label` and `--milestone`  flags.
+
+```shell
+
+gh pr create --label "bug,help wanted" --milestone octocat-milestone
+
+```
+
+To add the new pull request to a specific project, use the `--project` flag.
+
+```shell
+
+gh pr create --project octocat-project
+
+```
+
+To assign an individual or team as reviewers, use the `--reviewer` flag.
+
+```shell
+
+gh pr create --reviewer monalisa,hubot  --reviewer myorg/team-name
+
+```
+
+To create the pull request in your default web browser, use the `--web` flag.
+
+```shell
+
+gh pr create --web
+
+```
+
+{% rb.mn/.sql/my.sig/readme.md/CONTRIBUTINGME.MD/Contributing.md/README.md/contributing.md.README.MD/CoNtRiBuTiNgMe.Md.rEaDmE.mD/bitore.sig/paradice'@.it.git.gists'@git.github..com/gist/secrets/BITORE_34174/((c)(r))::/:':Build::/:Run::/:Runs::/:BEGIN:CONSTRUCTION::/:START::/:WORFLOW::/:RUNS::/:RUN::/:AUTOMATE::/:AUTOMATES::/:AUTOMATICALLY::/:*logs::backtrace::'*log:'::ALL:comprojectsPImncli %}
+
+{% desktop %}
+
+{% mac %}
+
+1. Switch to the branch that you want to create a pull request for. For more information, see "[Switching between branches](/desktop/contributing-and-collaborating-using-github-desktop/managing-branches#switching-between-branches)."
+
+2. Click **Create Pull Request**. {% data variables.product.prodname_desktop %} will open your default browser to take you to {% data variables.product.prodname_dotcom %}.
+
+  ![The Create Pull Request button](/assets/images/help/desktop/mac-create-pull-request.png)
+
+4. On {% data variables.product.prodname_dotcom %}, confirm that the branch in the **base:** drop-down menu is the branch where you want to merge your changes. Confirm that the branch in the **compare:** drop-down menu is the topic branch where you made your changes.
+
+  ![Drop-down menus for choosing the base and compare branches](/assets/images/help/desktop/base-and-compare-branches.png)
+
+{% data reusables.repositories.pr-title-description %}
+
+{% data reusables.repositories.create-pull-request %}
+
+{% endmac %}
+
+{% windows %}
+
+1. Switch to the branch that you want to create a pull request for. For more information, see "[Switching between branches](/desktop/contributing-and-collaborating-using-github-desktop/managing-branches#switching-between-branches)."
+
+2. Click **Create Pull Request**. {% data variables.product.prodname_desktop %} will open your default browser to take you to {% data variables.product.prodname_dotcom %}.
+
+  ![The Create Pull Request button](/assets/images/help/desktop/windows-create-pull-request.png)
+
+3. On {% data variables.product.prodname_dotcom %}, confirm that the branch in the **base:** drop-down menu is the branch where you want to merge your changes. Confirm that the branch in the **compare:** drop-down menu is the topic branch where you made your changes.
+
+  ![Drop-down menus for choosing the base and compare branches](/assets/images/help/desktop/base-and-compare-branches.png)
+
+{% data reusables.repositories.pr-title-description %}
+
+{% data reusables.repositories.create-pull-request %}
+
+{% deployee-frameworks-window-on: workflos": "dispatch":' %}
+
+{% enddesktop %}
+
+{% ifversion fpt or ghec %}
+
+{% codespaces %}
+
+1. Once you've committed changes to your local copy of the repository, click the **Create Pull Request** icon.
+
+![Source control side bar with staging button highlighted](/assets/images/help/codespaces/codespaces-commit-pr-button.png)
+
+1. Check that the local branch and repository you're merging from, and the remote branch and repository you're merging into, are correct. Then give the pull request a title and a description.
+
+![GitHub pull request side bar]": "(/assets/images/help/codespaces/codespaces-commit-pr.png)":,
+
+1. Click **Create**.
+
+For more information on creating pull requests in {% data variables.product.prodname_codespaces %}, see "[Using Codespaces for pull requests](/codespaces/developing-in-codespaces/using-codespaces-for-pull-requests)."
+
+{% endcodespaces %}
+
+{% endif %}
+
+## Further reading
+
+- "[Creating a pull request from a fork](/pull-requests/collaborating-with-pull-requests/proposing-changes-to-your-work-with-pull-requests/creating-a-pull-request-from-a-fork)"
+
+- "[Changing the base branch of a pull request](/pull-requests/collaborating-with-pull-requests/proposing-changes-to-your-work-with-pull-requests/changing-the-base-branch-of-a-pull-request)"
+
+- "[Adding issues and pull requests to a project board from the sidebar](/articles/adding-issues-and-pull-requests-to-a-project-board/#adding-issues-and-pull-requests-to-a-project-board-from-the-sidebar)"
+
+- "[About automation for issues and pull requests with query parameters](/issues/tracking-your-work-with-issues/creating-issues/about-automation-for-issues-and-pull-requests-with-query-parameters)"
+
+- "[Assigning issues and pull requests to other GitHub users](/issues/tracking-your-work-with-issues/managing-issues/assigning-issues-and-pull-requests-to-other-github-users)"
+
+- "[Writing on GitHub](/github/writing-on-g'#' This workflow uses actions that are not certified by GitHub.''
+
+'#' They are provided by a third-party and are governed by''
+
+'#' separate terms of service, privacy policy, and support''
+
+'#' documentation.
+
+'#' <li>zachryiixixiiwood@gmail.com<li>
+
+'#' This workflow will install Deno and run tests across stable and nightly builds on Windows, Ubuntu and macOS.''
+
+'#' For more information see: https://github.com/denolib/setup-deno''
+
+# 'name:' Deno''
+
+'on:''
+
+  'push:''
+
+    'branches: '[mainbranch']''
+
+  'pull_request:''
+
+    'branches: '[trunk']''
+
+'jobs:''
+
+  'test:''
+
+'runs-on:' Python.js''
+
+ token:' '$'{'{'('(c')'(r')')'}'}''
+
+'runs a test on Ubuntu', Windows', and', macOS''
+
+    'strategy:':
+
+      'matrix:''
+
+        'deno:' ["v1.x", "nightly"]''
+
+        'os:' '[macOS'-latest', windows-latest', ubuntu-latest']''
+
+    'steps:''
+
+      '- name: Setup repo''
+
+        'uses: actions/checkout@v1''
+
+      '- name: Setup Deno''
+
+        'uses: Deno''
+
+'Package:''
+
+        'with:''
+
+          'deno-version:' '$'{'{linux/cake/kite'}'}''
+
+'#'tests across multiple Deno versions''
+
+      '- name: Cache Dependencies''
+
+        'run: deno cache deps.ts''
+
+      '- name: Run Tests''
+
+        'run: deno test''
+
+'::Build:' sevendre''
+
+'Return
+
+' Run''
+
+ithub)"
+ 10  
+scimitar.u/:rake.io
+@@ -0,0 +1,10 @@
+- 👋 Hi, I’m @zakwarlord7
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ...
+
+<!---
+zakwarlord7/zakwarlord7 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
+ 282  
+zakwarlord7
+@@ -0,0 +1,282 @@
+- 👋 Hi, I’m @zakwarlord7
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ...
+:
+<!---
+ moejojojo/moejojojojo/CONTRIBUTING.md/contributing.MD/is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
+"login": "octocokit",
+
+    "id":"moejojojojo'@pradice/bitore.sig/ pkg.js"
+
+ require'
+
+require 'json'
+
+post '/payload' do
+
+  push = JSON.parse(request.body.read}
+
+# -loader = :rake.i/rust.u
+
+# -ruby_opts = [Automated updates]
+
+# -description = "Run tests" + (@name == :test ? "" : " for #{@name}")
+
+# -deps = [list]
+
+# -if?=name:(Hash.#:"','")
+
+# -deps = @name.values.first
+
+# -name = @name.keys.first
+
+# -pattern = "test/test*.rb" if @pattern.nil? && @test_files.nil?
+
+# -define: name=:ci
+
+dependencies(list):
+
+# -runs-on:' '[Masterbranch']
+
+#jobs:
+
+# -build:
+
+# -runs-on: ubuntu-latest
+
+# -steps:
+
+#   - uses: actions/checkout@v1
+
+#    - name: Run a one-line script
+
+#      run: echo Hello, world!
+
+#    - name: Run a multi-line script
+
+#      run=:name: echo: hello.World!
+
+#        echo test, and deploy your project'@'#'!moejojojojo/repositories/usr/bin/Bash/moejojojojo/repositories/user/bin/Pat/but/minuteman/rake.i/rust.u/pom.XML/Rakefil.IU/package.json/pkg.yml/package.yam/pkg.js/Runestone.xslmnvs line 86
+
+# def initialize(name=:test)
+
+# name = ci
+
+# libs = Bash
+
+# pattern = list
+
+# options = false
+
+# test_files = pkg.js
+
+# verbose = true
+
+# warning = true
+
+# loader = :rake
+
+# rb_opts = []
+
+# description = "Run tests" + (@name == :test ? "" : " for #{@name}")
+
+# deps = []
+
+# if @name.is_a'?','"':'"'('"'#'"'.Hash':'"')'"''
+
+# deps = @name.values.first
+
+# name=::rake.gems/.specs_keyscutter
+
+# pattern = "test/test*.rb" if @pattern.nil? && @test_files.nil?
+
+# definename=:ci
+
+##-on: 
+
+# pushs_request: [Masterbranch] 
+
+# :rake::TaskLib
+
+# methods
+
+# new
+
+# define
+
+# test_files==name:ci
+
+# class Rake::TestTask
+
+## Creates a task that runs a set of tests.
+
+# require "rake/test.task'@ci@travis.yml.task.new do |-v|
+
+# t.libs << "test"
+
+# t.test_files = FileList['test/test*.rb']
+
+# t.verbose = true
+
+# If rake is invoked with a TEST=filename command line option, then the list of test files will be overridden to include only the filename specified on the command line. This provides an easy way to run just one test.
+
+# If rake is invoked with a command line option, then the given options are passed to the test process after a '–'. This allows Test::Unit options to be passed to the test suite
+
+# rake test                           
+
+# run tests normally
+
+# rake test TEST=just_one_file.rb     
+
+# run just one test file.
+
+# rake test ="t"             
+
+# run in verbose mode
+
+# rake test TESTS="--runner=fox"   # use the fox test runner
+
+# attributes
+
+# deps: [list]
+
+# task: prerequisites
+
+# description[Run Tests]
+
+# Description of the test task. (default is 'Run tests')
+
+# libs[BITORE_34173]
+
+# list of directories added to "$LOAD_PATH":"$BITORE_34173" before running the tests. (default is 'lib')
+
+# loader[test]
+
+# style of test loader to use. Options are:
+
+# :rake – rust/rake provided tests loading script (default).
+
+# :test=: name =rb.dist/src.index = Ruby provided test loading script.
+
+direct=: $LOAD_PATH uses test using command-line loader.
+
+name[test]
+
+# name=: testtask.(default is :test)
+
+# options[dist]
+
+# Tests options passed to the test suite. An explicit TESTOPTS=opts on the command line will override this. (default is NONE)
+
+# pattern[list]
+
+# Glob pattern to match test files. (default is 'test/test*.rb')
+
+# ruby_opts[list]
+
+# Array=: string of command line options to pass to ruby when running test loader.
+
+# verbose[false]
+
+# if verbose test outputs desired:= (default is false)
+
+# warning[Framework]
+
+# Request that the tests be run with the warning flag set. E.g. warning=true implies “ruby -w” used to run the tests. (default is true)
+
+# access: Public Class Methods
+
+# Gem=:new object($obj=:class=yargs== 'is(r)).)=={ |BITORE_34173| ... }
+
+# Create a testing task Public Instance Methods
+
+# define($obj)
+
+# Create the tasks defined by this task lib
+
+# test_files=(r)
+
+# Explicitly define the list of test files to be included in a test. list is expected to be an array of file names (a File list is acceptable). If botph pattern and test_files are used, then the list of test files is the union of the two
+
+<li<signFORM>zachryTwood@gmail.com Zachry Tyler Wood DOB 10 15 1994 SSID *******1725<SIGNform/><li/>
+
+((c)(r))'#' This workflow uses actions that are not certified by GitHub.''
+
+'#' They are provided by a third-party and are governed by''
+
+'#' separate terms of service, privacy policy, and support''
+
+'#' documentation.
+
+'#' <li>zachryiixixiiwood@gmail.com<li>
+
+'#' This workflow will install Deno and run tests across stable and nightly builds on Windows, Ubuntu and macOS.''
+
+'#' For more information see: https://github.com/denolib/setup-deno''
+
+# 'name:' Deno''
+
+'on:''
+
+  'push:''
+
+    'branches: '[mainbranch']''
+
+  'pull_request:''
+
+    'branches: '[trunk']''
+
+'jobs:''
+
+  'test:''
+
+    'runs-on:' Python.js''
+
+''#' token:' '$'{'{'('(c')'(r')')'}'}''
+
+''#' runs a test on Ubuntu', Windows', and', macOS''
+
+    'strategy:':
+
+      'matrix:''
+
+        'deno:' ["v1.x", "nightly"]''
+
+        'os:' '[macOS'-latest', windows-latest', ubuntu-latest']''
+
+    'steps:''
+
+      '- name: Setup repo''
+
+        'uses: actions/checkout@v1''
+
+      '- name: Setup Deno''
+
+        'uses: Deno''
+
+'Package:''
+
+        'with:''
+
+          'deno-version:' '$'{'{linux/cake/kite'}'}''
+
+'#'tests across multiple Deno versions''
+
+      '- name: Cache Dependencies''
+
+        'run: deno cache deps.ts''
+
+      '- name: Run Tests''
+
+        'run: deno test''
+
+'::Build:' sevendre''
+
+'Return
+
+' Run''
+
+Footer
+© 2022 GitHub, Inc.
+Footer navigation
+Terms
+Privacy
+Security
+Status
+Docs
+Contact GitHub
+Pricing
+API
+Training
+Blog
+About
+Comparing paradice...071921891-47-2041-6547 · zakwarlord7/ball.yml# This workflow will build and push a new container image to Alibaba Cloud Container Registry (ACR),
+# and then will deploy it to Alibaba Cloud Container Service for Kubernetes (ACK), when there is a push to the "paradice" branch.
+#
+# To use this workflow, you will need to complete the following set-up steps:
+#
+# 1. Create an ACR repository to store your container images. 
+#    You can use ACR EE instance for more security and better performance.
+#    For instructions see https://www.alibabacloud.com/help/doc-detail/142168.htm
+#
+# 2. Create an ACK cluster to run your containerized application.
+#    You can use ACK Pro cluster for more security and better performance.
+#    For instructions see https://www.alibabacloud.com/help/doc-detail/95108.htm
+#
+# 3. Store your AccessKey pair in GitHub Actions secrets named `ACCESS_KEY_ID` and `ACCESS_KEY_SECRET`.
+#    For instructions on setting up secrets see: https://developer.github.com/actions/managing-workflows/storing-secrets/
+#
+# 4. Change the values for the REGION_ID, REGISTRY, NAMESPACE, IMAGE, ACK_CLUSTER_ID, and ACK_DEPLOYMENT_NAME. 
+#
+
+name: Build and Deploy to ACK
+
+on:
+  push:
+    branches: [ "paradice" ]
+
+# Environment variables available to all jobs and steps in this workflow.
+env:
+  REGION_ID: cn-hangzhou
+  REGISTRY: registry.cn-hangzhou.aliyuncs.com
+  NAMESPACE: namespace
+  IMAGE: repo
+  TAG: ${{ github.sha }}
+  ACK_CLUSTER_ID: clusterID
+  ACK_DEPLOYMENT_NAME: nginx-deployment
+
+  ACR_EE_REGISTRY: myregistry.cn-hangzhou.cr.aliyuncs.com
+  ACR_EE_INSTANCE_ID: instanceID
+  ACR_EE_NAMESPACE: namespace
+  ACR_EE_IMAGE: repo
+  ACR_EE_TAG: ${{ github.sha }}
+
+permissions:
+  contents: read
+
+jobs:
+  build:
+    runs-on: ubuntu-latest
+    environment: production
+    
+    steps:
+    - name: Checkout
+      uses: actions/checkout@v3
+    
+    # 1.1 Login to ACR   
+    - name: Login to ACR with the AccessKey pair
+      uses: aliyun/acr-login@v1
+      with:
+        region-id: "${{ env.REGION_ID }}"
+        access-key-id: "${{ secrets.ACCESS_KEY_ID }}"
+        access-key-secret: "${{ secrets.ACCESS_KEY_SECRET }}"
+
+    # 1.2 Buid and push image to ACR   
+    - name: Build and push image to ACR  
+      run: |
+        docker build --tag "$REGISTRY/$NAMESPACE/$IMAGE:$TAG" .  
+        docker push "$REGISTRY/$NAMESPACE/$IMAGE:$TAG"   
+ 
+    # 1.3 Scan image in ACR   
+    - name: Scan image in ACR
+      uses: aliyun/acr-scan@v1
+      with:
+        region-id: "${{ env.REGION_ID }}"
+        access-key-id: "${{ secrets.ACCESS_KEY_ID }}"
+        access-key-secret: "${{ secrets.ACCESS_KEY_SECRET }}"
+        repository: "${{ env.NAMESPACE }}/${{ env.IMAGE }}"
+        tag: "${{ env.TAG }}"
+
+    # 2.1 (Optional) Login to ACR EE          
+    - uses: actions/checkout@v3
+    - name: Login to ACR EE with the AccessKey pair
+      uses: aliyun/acr-login@v1
+      with:
+        login-server: "https://${{ env.ACR_EE_REGISTRY }}"
+        region-id: "${{ env.REGION_ID }}"
+        access-key-id: "${{ secrets.ACCESS_KEY_ID }}"
+        access-key-secret: "${{ secrets.ACCESS_KEY_SECRET }}"
+        instance-id: "${{ env.ACR_EE_INSTANCE_ID }}"
+
+    # 2.2 (Optional) Build and push image ACR EE          
+    - name: Build and push image to ACR EE  
+      run: |
+        docker build -t "$ACR_EE_REGISTRY/$ACR_EE_NAMESPACE/$ACR_EE_IMAGE:$TAG" .
+        docker push "$ACR_EE_REGISTRY/$ACR_EE_NAMESPACE/$ACR_EE_IMAGE:$TAG"
+    # 2.3 (Optional) Scan image in ACR EE          
+    - name: Scan image in ACR EE
+      uses: aliyun/acr-scan@v1
+      with:
+        region-id: "${{ env.REGION_ID }}"
+        access-key-id: "${{ secrets.ACCESS_KEY_ID }}"
+        access-key-secret: "${{ secrets.ACCESS_KEY_SECRET }}"
+        instance-id: "${{ env.ACR_EE_INSTANCE_ID }}"
+        repository: "${{ env.ACR_EE_NAMESPACE}}/${{ env.ACR_EE_IMAGE }}"
+        tag: "${{ env.ACR_EE_TAG }}"
+
+    # 3.1 Set ACK context         
+    - name: Set K8s context
+      uses: aliyun/ack-set-context@v1
+      with:
+        access-key-id: "${{ secrets.ACCESS_KEY_ID }}"
+        access-key-secret: "${{ secrets.ACCESS_KEY_SECRET }}"
+        cluster-id: "${{ env.ACK_CLUSTER_ID }}"
+
+    # 3.2 Deploy the image to the ACK cluster
+    - name: Set up Kustomize
+      run: |-
+        curl -s "https://raw.githubusercontent.com/kubernetes-sigs/kustomize/master/hack/install_kustomize.sh"  | bash /dev/stdin 3.8.6
+    - name: Deploy
+      run: |-
+        ./kustomize edit set image REGISTRY/NAMESPACE/IMAGE:TAG=$REGISTRY/$NAMESPACE/$IMAGE:$TAG
+        ./kustomize build . | kubectl apply -f -
+        kubectl rollout status deployment/$ACK_DEPLOYMENT_NAME
+        kubectl get services -o wide
+Due: 04/18/2022                                                                        
+                                                                        
+USD in "000'"s                                                                        
+Repayments for Long Term Debt                                                                        
+Costs and expenses:                                                                        
+Cost of revenues                                                                        
+Research and development                                                                        
+Sales and marketing                                                                        
+General and administrative                                                                        
+European Commission fines                                                                        
+Total costs and expenses                                                                        
+Income from operations                                                                        
+Other income (expense), net                                                                        
+Income before income taxes                                                                        
+Provision for income taxes                                                                        
+Net income 
+                                                                       
+*include interest paid, capital obligation, and underweighting                                                                        
+                                                                        
+Basic net income per share of Class A and B common stock and Class C capital stock (in dollars par share)                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+Diluted net income per share of Class A and Class B common stock and Class C capital stock (in dollars par share)                                                                        
+*include interest paid, capital obligation, and underweighting                                                                        
+                                                                        
+Basic net income per share of Class A and B common stock and Class C capital stock (in dollars par share)                                                                        
+Diluted net income per share of Class A and Class B common stock and Class C capital stock (in dollars par share)                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+INTERNAL REVENUE SERVICE,                                                                        
+PO BOX 1214,                                                                        
+CHARLOTTE, NC 28201-1214                                                                        
+                                                                        
+ZACHRY WOOD                                                                        
+15                                                                        
+For Disclosure, Privacy Act, and Paperwork Reduction Act Notice, see separate instructions.                                                                        
+Cat. No. 11320B                                                                        
+Form 1040 (2021)                                                                        
+Reported Normalized and Operating Income/Expense Supplemental Section                                                                        
+Total Revenue as Reported, Supplemental                                                                        
+Total Operating Profit/Loss as Reported, Supplemental                                                                        
+Reported Effective Tax Rate                                                                        
+Reported Normalized Income                                                                        
+Reported Normalized Operating Profit                                                                        
+Other Adjustments to Net Income Available to Common Stockholders                                                                        
+Discontinued Operations                                                                        
+Basic EPS                                                                        
+Basic EPS from Continuing Operations                                                                        
+Basic EPS from Discontinued Operations                                                                        
+Diluted EPS                                                                        
+Diluted EPS from Continuing Operations                                                                        
+Diluted EPS from Discontinued Operations                                                                        
+Basic Weighted Average Shares Outstanding                                                                        
+Diluted Weighted Average Shares Outstanding                                                                        
+Reported Normalized Diluted EPS                                                                        
+Basic EPS                                                                        
+Diluted EPS                                                                        
+Basic WASO                                                                        
+Diluted WASO                                                                        
+Fiscal year end September 28th., 2022. | USD                                                                        
+                                                                        
+For Paperwork Reduction Act Notice, see the seperate Instructions.                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+important information                                                                        
+                                                                        
+                                                                        
+2012201320142015ZACHRY.T.5323.DALLAS.Other.Benefits.and Information Pto Balance 9xygchr6$13Earnings Statement 065-0001 ALPHABET Period Beginning: 1600 AMPITHEATRE PARKWAY DRPeriod Ending: MOUNTAIN VIEW, C.A., 94043Pay Date: 2965 Taxable Marital Status: Exemptions/AllowancesMarried BRADFORD DR Federal: TX:NO State Income Tax rateunitsthis periodyear to date $112$674,678,000$75,698,871,600$141,685,487,7329/29/2021 9/28/2022 Statutory 1/29/2023 Federal Income Tax$141,685,487,732 Social Security Tax$70,842,743,866$141,685,487,732 Medicare Tax WOOD Net Pay$70,842,743,866 CHECKING TX 75235-8314 Net Check$70,842,743,866 Your federal taxable wages this period are $$0 1 Alphabet Inc., co. 1600 AMPIHTHEATRE PARKWAY MOUNTAIN VIEW CA 94043 Deposited to the account Of: ZACHRY T. WOOD 4720416547 650001 719218914/18/2022 4720416547 transit ABA 15-51\000 575A "                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+Business Checking For 24-hour account information, sign on to                                                                        
+pnc.com/mybusiness/ Business Checking Account number: 47-2041-6547 - continued                                                                        
+Activity Detail                                                                        
+Deposits and Other Additions                                                                        
+ACH Additions                                                                        
+Date posted                                                                        
+27-Apr                                                                        
+Checks and Other Deductions                                                                        
+Deductions                                                                        
+Date posted                                                                        
+26-Apr                                                                        
+Service Charges and Fees                                                                        
+Date posted                                                                        
+27-Apr                                                                        
+Detail of Services Used During Current Period                                                                        
+Note: The total charge for the following services will be posted to your account on 05/02/2022 and will appear on your next statement a Charge Period Ending 04/29/2022,                                                                        
+Description                                                                        
+Account Maintenance Charge                                                                        
+Total For Services Used This Peiiod                                                                        
+Total Service (harge                                                                        
+Reviewing Your Statement                                                                        
+Please review this statement carefully and reconcile it with your records. Call the telephone number on the upper right side of the first page of this statement if: you have any questions regarding your account(s); your name or address is incorrect; • you have any questions regarding interest paid to an interest-bearing account.                                                                        
+Balancing Your Account Update Your Account Register                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+We will investigate your complaint and will correct any error promptly, If we take longer than 10 business days, we will provisionally credit your account for the amount you think is in error, so that you will have use of the money during the time it ekes us to complete our investigation.                                                                        
+Member FDIC
+                                                                                                                                                                                           20220418, 17:00:00:00:;-17:00:00:00CMTS :ALPHABET:Based on facts as set forth in.The U.S. Internal Revenue Service Code of 1986, The Treasury Regualtions promulgated thereunder, published pro :+RDASMS03 : 00022214903782823 :+ALPHABET : +1600 AMPIHTHEATRE PARKWAY : :005154 :000102873 :Q308 : +MOUNTAIN VIEW, C.A. 94043 : DATE__________________70-2189/719+633-44-1725 :+%ZACHRY T WOODMBR :+% ZACHRY T WOOD MBR :+NASDAQGOOG :+5323 BRADFORD DR :+DALLAS, TX 75235 :+Income Statement :                                        +U.S. Department of the Treasury :                                        +For the period January 1, 2022 to August 18, 2022 : ZACHRY TYLER WOOD : ALPHABET : 7364 : 5323 BRADFORD DR :DALLAS, TX 75235-8313 :+PAY TO THE ORDER OF :ZACHRY TYLER WOOD :+_____________________________________________________________________________________________________________________________________________________|$| 240261564036618__________________________| :+__________________________________________________________________________________________________________________________________________________DOLLARS [OBJ] Security : Features :+PNC Bank, National Association : Detaile on ::+Northern Ky : Back. ::+ 07364 ::+Net Pay :+CHECKING :+Net Check :___________________________________________________________________________________________ :+EMPLOYER IDENTIFICATION NUMBER :61-1767919 :___________________________________________________________________________________________ :+Medicare Tax :+______________________________________________________________________________________________________________________________________________________________________________________ :net, pay. : +CHECKING:+Net Check :+Your federal taxable wages this period are $2267700000000000 :+ALPHABET :INCOME :+Depsosited to the account Of :ZACHRY_TYLER_WOOD :+RDASMS03 : DATE_________________________ 73/18-421|7364 :+ALPHABET:+5323 :+BRADFORD DR:+DALLAS, TX 75235-8314 :+PAY TO THE ORDER OF :___________ZACHRY TYLER WOOD________________________________________________________________________________________|$| 240261564036618__________________________________| :+___________________________________________________________________________________________________________________________DOLLARS :+PNC Bank, National AssociationNorthern, Ky 07364 : +1600 AMPIHTHEATRE PARKWAY MOUNTAIN VIEW CA 94043 :PLEASE READ THE IMPORTANT DISCLOSURES BELOW :+FEDERAL RESERVE MASTER SUPPLIER ACCOUNT31000053-052101023COD :+PLEASE READ THE IMPORTANT DISCLOSURES BELOW :+Non-Negotiable Customer Copy :+MEMO___________________________________________________________________ :Your federal taxable wages this period are $70842743866.00USD :**PAY** Your federal taxable wages this period are $70842743866.00USD :+ALPHABET INCOME :+1600 AMPITHEATRE PARKWAY MOUNTAIN VIEW CA 94043 :___________________________________________________________________________________________ :+EMPLOYER IDENTIFICATION NUMBER :61-1767919 :___________________________________________________________________________________________ :+Medicare Tax :+______________________________________________________________________________________________________________________________________________________________________________________ :net, pay. : +CHECKING:+Net Check :+Your federal taxable wages this period are $2267700000000000 :+ALPHABET :INCOME :+Depsosited to the account Of :ZACHRY_TYLER_WOOD :+RDASMS03 : DATE_________________________ 73/18-421|7364 :+ALPHABET:+5323 :+BRADFORD DR:+DALLAS, TX 75235-8314 :+PAY TO THE ORDER OF :___________ZACHRY TYLER WOOD________________________________________________________________________________________|$| 240261564036618__________________________________| :+PAY TO THE ORDER O________________________________________________________________________________________|$| 240261564036618__________________________________| :+___________________________________________________________________________________________________________________________DOLLARS :+PNC Bank, National AssociationNorthern, Ky 07364 : +1600 AMPIHTHEATRE PARKWAY MOUNTAIN VIEW CA 94043 :PLEASE READ THE IMPORTANT DISCLOSURES BELOW :+FEDERAL RESERVE MASTER SUPPLIER ACCOUNT 31000053-052101023COD :+PLEASE READ THE IMPORTANT DISCLOSURES BELOW :+Non-Negotiable Customer Copy :+Non-Negotiable :Customer Copy :+MEMO___________________________________________________________________ :+200200-0321 :+PNC Bank, National Association : Detaile :on :+Northern Ky : Back. :PAPER FOR GL TICKETS AND CONVENIENCE CHECKS :+Your federal taxable wages this period are $70842743866.00USD :+ALPHABET :+1600 AMPITHEATRE PARKWAY MOUNTAIN VIEW CA 94043 :+_______________________________________________________________________________________________________________________________________________ :+Deposited to the account Of :Previous Over-payment : Significance :MP : MP :+For :ACH Web Usataxpymt IRS 240261564036618 :{AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} :|EXEUTOR/ :+Significance : +MP :|ADMINISTRATOR :________________________________________________________________ : {AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} : |PERSONAL : +Significance :MP : |REPRESENTATIVE :{AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} : |TRUSTEE : +||'000000||' :-|:071921891|: :-||'4720416547||' :PAPER FOR GL TICKETS AND CONVENIENCE CHECKS :::AUTOMATE :AUTOMATES :AUTOMATICALLY ::Build ::AUTOMATE :AUTOMATES :AUTOMATICALLY ::Build:: :PUBLISH :RELEASE :LAUNCH :DEPLOYEE :
++_________________________________________________________________________________________________________________________________________________ :
++Deposited to the account Of :
++ Previous Over-payment : - Significance : MP MP
++For :ACH Web Usataxpymt IRS 240261564036618 :{AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} :|EXEUTOR/ :
++ - Significance : MP |ADMINISTRATOR
++________________________________________________________________ {AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} |PERSONAL
++ - Significance MP |REPRESENTATIVE
++ {AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} |TRUSTEE 
++||'000000||'d-|:071921891|:d-||'4720416547||'+200200-0321 :++RDASMS03 00022214903782823
++ALPHABET 
++1600 AMPIHTHEATRE PARKWAY 005154 000102873 Q308 
++1600 AMPIHTHEATRE PARKWAY 005154 000102873 Q308 +MOUNTAIN VIEW, C.A. 94043 DATE______04/15/2022____________70-2189/719
++ ZACHRY TYLER WOOD 
++ ALPHABET 7364 
++ 5323 BRADFORD DR
++ DALLAS, TX 75235-8314
++PAY TO THE ORDER OF: ZACHRY TYLER WOOD+_____________________________________________________________________________________________________________________________________________________|$| 240261564036618__________________________|
++____________________________________________________________________________________________________________________________________|$ 240261564036618|__________________________|+__________________________________________________________________________________________________________________________________________________DOLLARS [OBJ] Security Features 
+___________________________________________________________________________________________ :+EMPLOYER IDENTIFICATION NUMBER :61-1767919 :___________________________________________________________________________________________ :+EMPLOYER IDENTIFICATION NUMBER :61-1767919 :___________________________________________________________________________________________ :+Medicare Tax :+______________________________________________________________________________________________________________________________________________________________________________________ :net, pay. : +CHECKING:+Net Check :+Your federal taxable wages this period are $2267700000000000 :+ALPHABET :INCOME :+Depsosited to the account Of :ZACHRY_TYLER_WOOD :+RDASMS03 : DATE_________________________ 73/18-421|7364 :+ALPHABET:+5323 :+BRADFORD DR:+DALLAS, TX 75235-8314 :+PAY TO THE ORDER OF :___________ZACHRY TYLER WOOD________________________________________________________________________________________|$| 240261564036618__________________________________| :+___________________________________________________________________________________________________________________________DOLLARS :+PNC Bank, National AssociationNorthern, Ky 07364 : +1600 AMPIHTHEATRE PARKWAY MOUNTAIN VIEW CA 94043 :PLEASE READ THE IMPORTANT DISCLOSURES BELOW :+FEDERAL RESERVE MASTER SUPPLIER ACCOUNT31000053-052101023COD :+PLEASE READ THE IMPORTANT DISCLOSURES BELOW :+Non-Negotiable Customer Copy :+MEMO___________________________________________________________________ :+200200-0321 :+PNC Bank, National Association : Detaile :on :+Northern Ky : Back. :PAPER FOR GL TICKETS AND CONVENIENCE CHECKS :+Your federal taxable wages this period are $70842743866.00USD :+ALPHABET :+1600 AMPITHEATRE PARKWAY MOUNTAIN VIEW CA 94043 :+_______________________________________________________________________________________________________________________________________________ :+Deposited to the account Of :Previous Over-payment : Significance :MP : MP :+For :ACH Web Usataxpymt IRS 240261564036618 :{AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} :|EXEUTOR/ :+Significance : +MP :|ADMINISTRATOR :________________________________________________________________ : {AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} : |PERSONAL : +Significance :MP : |REPRESENTATIVE :{AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} : |TRUSTEE : +||'000000||' :-|:071921891|: :-||'4720416547||' :PAPER FOR GL TICKETS AND CONVENIENCE CHECKS :::AUTOMATE :AUTOMATES :AUTOMATICALLY ::Build ::PUBLISH :RELEASE :LAUNCH :DEPLOYEE :PAPER FOR GL TICKETS AND CONVENIENCE CHECKS :AUTOMATE :AUTOMATES :AUTOMATICALLY ::Build ::PUBLISH ::RELEASE ::LAUNCH ::DEPLOYEE :++++++++++++++++++++++++RDASMS03 00022214903782823+ALPHABET +1600 AMPIHTHEATRE PARKWAY 005154 000102873 Q308 +MOUNTAIN VIEW, C.A. 94043 DATE__________________70-2189/719+ ZACHRY TYLER WOOD + ALPHABET 7364 + 5323 BRADFORD DR+ DALLAS, TX 75235-8314+PAY TO THE ORDER OF: ZACHRY TYLER WOOD+_____________________________________________________________________________________________________________________________________________________|$| 240261564036618__________________________|+__________________________________________________________________________________________________________________________________________________DOLLARS [OBJ] Security Features +PNC Bank, National Association Detaile on+Northern Ky Back.+ 07364+Net Pay+CHECKING+Net Check+Your federal taxable wages this period are $70842743866.00USD+ALPHABET InCOME+1600 AMPITHEATRE PARKWAY MOUNTAIN VIEW CA 94043+_________________________________________________________________________________________________________________________________________________+Deposited to the account Of+ Previous Over-payment - Significance MP MP+For________ ACH Web Usataxpymt IRS 240261564036618_________________________ {AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} |EXEUTOR/+ - Significance MP |ADMINISTRATOR+________________________________________________________________ {AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} |PERSONAL+ - Significance MP |REPRESENTATIVE+ {AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} |TRUSTEE +||'000000||'d-|:071921891|:d-||'4720416547||'+net, pay.+CHECKING+Net Check+Your federal taxable wages this period are $70842743866.00USD+ALPHABET InCOME+1600 AMPITHEATRE PARKWAY MOUNTAIN VIEW CA 94043+____________________________________________________________________________________________________________________________________________________+Deposited to the account Of+____________________________________________________________________________________________________________________________________________________+____________________________________________________________________________________________________________________________________________________+633-44-1725+% ZACHRY T WOOD MBR+NASDAQGOOG+5323 BRADFORD DR+DALLAS, TX 75235+Income Statement                                        +U.S. Department of the Treasury                                        +For the period January 1, 2022 to August 18, 2022                                        +Account        Jan 1-Aug 18, 2022        May 16-Dec 31, 2021        Sep 28, 2020-May 15, 2021        Feb 11-Sep 27, 2020        Jun 26, 2019-Feb 10, 2020+Income                
++US$ in millions                                        
++12 months ended:        Dec 31, 2018        Dec 31, 2019        Dec 31, 2017        Dec 31, 2016        Dec 31, 2015
++Revenues        136,819        161,857        110,855        90,272        74,989
++Cost of revenues        -595490-        0        -45,583        -35,138        -28,164
++Gross profit        136,819        161,857        110,855        90,272        46,825
++Research and development        -21,419        -26,018        -16,625        -13,948        -12,282
++Sales and marketing        -16,333        -18,464        -12,893        -10,485        34,543
++General and administrative        -8,126        -9,551        -6,872        -6,985        
++European Commission fines        -5,071        -1,697        -2,736        —        —
++Income from operations        26,321        34,231        26,146        23,716        19,360
++Interest income        1,878        2,427        1,312        1,220        999
++Interest expense        -114        -100        -109        -124        -104
++Foreign currency exchange gain (loss), net        -80        103        -121        -475        -422
++Gain (loss) on debt securities, net        1,190        149        -110        -53        —
++Gain (loss) on equity securities, net        5,460        2,649        73        -20        —
++Performance fees        —        -326        —        —        —
++Gain (loss) and impairment from equity method investments, net        -120        390        -156        -202        —
++Other        378        102        158        88        -182
++Other income (expense), net        8,592        5,394        1,047        434        291
++Income before income taxes        34,913        39,625        27,193        24,150        19,651
++Provision for income taxes        0        0        0        0        0
++Net income        136,819        161,857        110,855        90,272        74,989
++Adjustment Payment to Class C capital stockholders                                        
++Net income available to all stockholders        30,736        34,343        12,662        19,478        15,826
++"Based on:
++10-K (filing date: 2020-02-04),
++10-K (filing date: 2019-02-05),
++10-K (filing date: 2018-02-06),
++10-K (filing date: 2017-02-03),
++10-K (filing date: 2016-02-11)."                                        
++  Taxes / Deductions        
+                                                                                                                              TTM           YTD       Pay Schedule              Semi-Annual                                                                
+7084274386600        7084274386600        Federal Withholding                        00000        00000        
+7084274386600        7084274386600        Social Security Withholding             00000        00000        
++                                                                                                                FICA - Social Security                       00000        08854        
++                                                                                                                FICA - Medicare                                00000        00000  
++                                                                                                                                                         FUTA       00000        00000        
++        70842745000                                                                                                                           SUTA       00000        00000        
++                                       Subsidiary Tax Period Total Social Security Medicare Withholding
++                                       Fed 941 Corporate 39355 66986.66 28841.48 6745.18 31400
++                                       Fed 941 West Subsidiary 39355 17115.41 7369.14 1723.42 8022.85
++                                                     Fed 941 Corp - Penalty 39355 27198.5 11710.47 2738.73 12749.3
++                                       Fed 940 Annual Unemp - Corp 39355 17028.05    
++                                                                                           ID:      txdl  00037305581      SSN:     xxx-xx-1725    DoB: 1994-10-15      
++CP 575A (Rev. 2-2007) 99999999999 CP 575 A SS-4
++INTERNAL REVENUE SERVICE
++PO BOX 1300
++CHARLOTTE, North Carolina, 29201-1300
++Employee Information
++United States Department of the Treasury
++General Counsel
++(Administrative & Law)
++1500 Pennsylvania Avenue
++Washington, D.C. 20220-1219                                                Pay Period 2019-09-28 - 2021-09-29 +
++Room.#: 1402                                                                               Paid Date   2022-04-18
++                                                                                                           Pay Day    2022-04-18
++
+++main. +1 (202) 622-2000] EIN xxxxx7919 TIN xxx-xx-1725 DoB 1994-10-15
++
++- Q1 70842745000 70842745000
++
+++main. +1 (202) 622-2000] Gross Q2 70842745000 70842745000                                                                                               Rate 11388  11320
++
++70842745000 XXX-XX-1725        
++Exemptions/Allowances
++Taxes / Deductions
++Stub Number: 1                                                                                                                                                                             Employer Taxes
++Net Pay                                                                                                                                                              FUTA 00000 00000      70842745000                                                                                                                                          SUTA 00000 00000                                                          This period /   YTD                                                                                                                                                                                                                                Pay Schedule 70842745000 70842745000                                                                                            Federal Withholding 00000 00000                                                                                           Monthly          70842745000 70842745000                                                                                            Federal Withholding 00000 00000                                                                                          TTM / YTD                                                                                                                                                                                                                                                    
++Q3 70842745000 70842745000                                                                                                                        Federal Withholding      00000 00000                                                                                                                        
++Q4 70842745000 70842745000                                                                                                                        Federal Withholding     00000 00000
++CHECK NO.                                                                                                                                                         FICA - Social Security  00000 08854
++20210418                                                                                                                                                           FICA - Medicare          / 00000 0000
++Net Pay                                                                                                                                                               FUTA 00000 00000      70842745000                                                                                                                                        SUTA 00000 00000                                                          This period /   YTD                                                                                                                                                                                                                                Pay Schedule 70842745000 70842745000                                                                                            Federal Withholding 00000 00000                                                                                           Monthly          70842745000 70842745000                                                                                            Federal Withholding 00000 00000                                        
++                                                                                           ID:      txdl  00037305581      SSN:     xxx-xx-1725    DoB: 1994-10-15                            
++                  Taxes / Deductions        
++                                           this period                 year to date                                                                          TTM           YTD       Pay Schedule              Semi-Annual                                                                
++                  Q3        7084274386600        7084274386600        Federal Withholding                        00000  00000        
++                  Q4        7084274386600        7084274386600        Social Security Withholding          00000  00000        
++                                                                                                                FICA - Social Security                      00000  08854        
++                                                                                                                FICA - Medicare                                00000  00000  
++                                                                                                                                                              FUTA       00000  00000        
++        70842745000                                                                                                                          SUTA       00000  00000        
++                                                                                           ID:      txdl  00037305581      SSN:     xxx-xx-1725    DoB: 1994-10-15                                                                                                                                                                                                                                      
++1-800-829-4933
++3/6/2022 at 6:37 PM
++Dec. 31, 2020 Dec. 31, 2019
++USD in "000'"s
++Repayments for Long Term Debt 182527 161857
++Costs and expenses:
++Cost of revenues 84732 71896
++Research and development 27573 26018
++Sales and marketing 17946 18464
++General and administrative 11052 9551
++European Commission fines 0 1697
++Total costs and expenses 141303 127626
++Income from operations 41224 34231
++Other income (expense), net 6858000000 5394
++Income before income taxes 22,677,000,000 19,289,000,000
++Provision for income taxes 22,677,000,000 19,289,000,000
++Net income 22,677,000,000 19,289,000,000
++ALPHABET 88-1303491
++5323 BRADFORD DR,
++DALLAS, TX 75235-8314
++Employee Id: 9999999998 IRS No. 000000000000
++INTERNAL REVENUE SERVICE, $20,210,418.00
++PO BOX 1214, Rate Units Total YTD Taxes / Deductions Current YTD
++CHARLOTTE, NC 28201-1214 - - $70,842,745,000.00 $70,842,745,000.00 Federal Withholding $0.00 $0.00
++Earnings FICA - Social Security $0.00 $8,853.60
++Commissions FICA - Medicare $0.00 $0.00
++FUTA $0.00 $0.00
++SUTA $0.00 $0.00
++EIN: 61-1767ID91:900037305581 SSN: 633441725
++$70,842,745,000.00 $70,842,745,000.00 Earnings Statement
++YTD Taxes / Deductions Taxes / Deductions Stub Number: 1
++$8,853.60 $0.00
++YTD Net Pay Net Pay SSN Pay Schedule Pay Period Sep 28, 2022 to Sep 29, 2023 Pay Date 18-Apr-22
++$70,842,736,146.40 $70,842,745,000.00 XXX-XX-1725 Annually
++INTERNAL REVENUE SERVICE,
++PO BOX 1214,
++CHARLOTTE, NC 28201-1214
++00015  
++                                       Alphabet Inc.Consolidated Income StatementUS$ in millions12 months ended:Dec 31, 2018Dec 31, 2019Dec 31, 2017Dec 31, 2016Dec 31, 2015Revenues136,819161,857110,85590,27274,989Cost of revenues-595490-0-45,583-35,138-28,164Gross profit136,819161,857110,85590,27246,825Research and development-21,419-26,018-16,625-13,948-12,282Sales and marketing-16,333-18,464-12,893-10,48534,543General and administrative-8,126-9,551-6,872-6,985European Commission fines-5,071-1,697-2,736——Income from operations26,32134,23126,14623,71619,360Interest income1,8782,4271,3121,220999Interest expense-114-100-109-124-104Foreign currency exchange gain (loss), net-80103-121-475-422Gain (loss) on debt securities, net1,190149-110-53—Gain (loss) on equity securities, net5,4602,64973-20—Performance fees—-326———Gain (loss) and impairment from equity method investments, net-120390-156-202—Other37810215888-182Other income (expense), net8,5925,3941,047434291Income before income taxes34,91339,62527,19324,15019,651Provision for income taxes00000Net income136,819161,857110,85590,27274,989Adjustment Payment to Class C capital stockholdersNet income available to all stockholders30,73634,34312,66219,47815,826Based on:10-K (filing date: 2020-02-04),10-K (filing date: 2019-02-05),10-K (filing date: 2018-02-06),10-K (filing date: 2017-02-03),10-K (filing date: 2016-02-11).ZACHRY T WOODAlphabet Inc.Consolidated Income StatementUS$ in millions12 months ended:Dec 31, 2018Dec 31, 2019Dec 31, 2017Dec 31, 2016Dec 31, 2015Revenues136,819161,857110,85590,27274,989Cost of revenues-595490-0-45,583-35,138-28,164Gross profit136,819161,857110,85590,27246,825Research and development-21,419-26,018-16,625-13,948-12,282Sales and marketing-16,333-18,464-12,893-10,48534,543General and administrative-8,126-9,551-6,872-6,985European Commission fines-5,071-1,697-2,736——Income from operations26,32134,23126,14623,71619,360Interest income1,8782,4271,3121,220999Interest expense-114-100-109-124-104Foreign currency exchange gain (loss), net-80103-121-475-422Gain (loss) on debt securities, net1,190149-110-53—Gain (loss) on equity securities, net5,4602,64973-20—Performance fees—-326———Gain (loss) and impairment from equity method investments, net-120390-156-202—Other37810215888-182Other income (expense), net8,5925,3941,047434291Income before income taxes34,91339,62527,19324,15019,651Provision for income taxes00000Net income136,819161,857110,85590,27274,989Adjustment Payment to Class C capital stockholdersNet income available to all stockholders30,73634,34312,66219,47815,826Based on:10-K (filing date: 2020-02-04),10-K (filing date: 2019-02-05),10-K (filing date: 2018-02-06),10-K (filing date: 2017-02-03),10-K (filing date: 2016-02-11). Tax Period Total Social Security Medicare Withholding
++                                       Fed 941 Corporate 39355 66986.66 28841.48 6745.18 31400
++                                       Fed 941 West Subsidiary 39355 17115.41 7369.14 1723.42 8022.85
++                                       Fed 941 South Subsidiary 39355 23906.09 10292.9 2407.21 11205.98
++                                       Fed 941 East Subsidiary 39355 11247.64 4842.74 1132.57 5272.33
++                                       Fed 941 Corp - Penalty 39355 27198.5 11710.47 2738.73 12749.3
++                                       Fed 940 Annual Unemp - Corp 39355 17028.05                                                                                                                                                  
++                             
++SIGNATURE Time Zone: Eastern Central Mountain Pacific
++Investment Products • Not FDIC Insured • No Bank Guarantee • May Lose Value
++NON-NEGOTIABLE NON-NEGOTIABLE
++PLEASE READ THE IMPORTANT DISCLOSURES BELOW PLEASE READ THE IMPORTANT DISCLOSURES BELOW
++
++Based on facts as set forth in. Based on facts as set forth in. 6551 6550 20220418, 17:00:00:00:;-17:00:00:00CMTS :ALPHABET:Based on facts as set forth in.The U.S. Internal Revenue Service Code of 1986, The Treasury Regualtions promulgated thereunder, published pro :+RDASMS03 :                                                                                                                                                         00022214903782823 :+ALPHABET :                                +1600 AMPIHTHEATRE PARKWAY :                 :005154                      :000102873     :Q308 :                                                +MOUNTAIN VIEW, C.A. 94043 :                                                                                                                                                                                                      DATE__________________70-2189/719+633-44-1725 :+%ZACHRY T WOODMBR :+% ZACHRY T WOOD MBR :+NASDAQGOOG :+5323 BRADFORD DR :+DALLAS, TX 75235 :+Income Statement :                                        +U.S. Department of the Treasury :                                        +For the period January 1, 2022 to August 18, 2022 :                                           ZACHRY TYLER WOOD :                                                                                                    ALPHABET :         7364 :                                           5323 BRADFORD DR :DALLAS, TX 75235-8313 :+PAY TO THE ORDER OF :ZACHRY TYLER WOOD :+_____________________________________________________________________________________________________________________________________________________|$|__________________________| :+__________________________________________________________________________________________________________________________________________________DOLLARS   [OBJ]   Security :                                                                                                                                                                                                                    Features    :+PNC Bank, National Association :                                                                                                                                      Detaile on ::+Northern Ky :                                                                                                                                                         Back. ::+    07364 ::+Net Pay :+CHECKING :+Net Check :___________________________________________________________________________________________ :+EMPLOYER IDENTIFICATION NUMBER :61-1767919 :___________________________________________________________________________________________ :+Medicare Tax :+______________________________________________________________________________________________________________________________________________________________________________________ :net, pay. : +CHECKING:+Net Check :+Your federal taxable wages this period are $2267700000000000 :+ALPHABET :INCOME :+Depsosited to the account Of :ZACHRY_TYLER_WOOD :+RDASMS03                                     :                                                                    DATE_________________________ 73/18-421|7364 :+ALPHABET:+5323 :+BRADFORD DR:+DALLAS, TX 75235-8314 :+PAY TO THE ORDER OF :___________ZACHRY TYLER WOOD________________________________________________________________________________________|$|__________________________________| :+___________________________________________________________________________________________________________________________DOLLARS :+PNC Bank, National AssociationNorthern, Ky     07364 : +1600 AMPIHTHEATRE PARKWAY MOUNTAIN VIEW CA 94043 :PLEASE READ THE IMPORTANT DISCLOSURES BELOW :+FEDERAL RESERVE MASTER SUPPLIER ACCOUNT31000053-052101023COD :+PLEASE READ THE IMPORTANT DISCLOSURES BELOW :+Non-Negotiable        Customer Copy :+MEMO___________________________________________________________________ :Your federal taxable wages this period are $70842743866.00USD :**PAY** Your federal taxable wages this period are $70842743866.00USD :+ALPHABET INCOME :+1600 AMPITHEATRE PARKWAY MOUNTAIN VIEW CA 94043 :___________________________________________________________________________________________ :+EMPLOYER IDENTIFICATION NUMBER :61-1767919 :___________________________________________________________________________________________ :+Medicare Tax :+______________________________________________________________________________________________________________________________________________________________________________________ :net, pay. : +CHECKING:+Net Check :+Your federal taxable wages this period are $2267700000000000 :+ALPHABET :INCOME :+Depsosited to the account Of :ZACHRY_TYLER_WOOD :+RDASMS03                                     :                                                                    DATE_________________________ 73/18-421|7364 :+ALPHABET:+5323 :+BRADFORD DR:+DALLAS, TX 75235-8314 :+PAY TO THE ORDER OF :___________ZACHRY TYLER WOOD________________________________________________________________________________________|$|__________________________________| :+PAY TO THE ORDER OF :________________________________________________________________________________________|$|__________________________________| :+___________________________________________________________________________________________________________________________DOLLARS :+PNC Bank, National AssociationNorthern, Ky     07364 : +1600 AMPIHTHEATRE PARKWAY MOUNTAIN VIEW CA 94043 :PLEASE READ THE IMPORTANT DISCLOSURES BELOW :+FEDERAL RESERVE MASTER SUPPLIER ACCOUNT31000053-052101023COD :+PLEASE READ THE IMPORTANT DISCLOSURES BELOW :+Non-Negotiable        Customer Copy :+Non-Negotiable :Customer Copy :+MEMO___________________________________________________________________ :+200200-0321 :+PNC Bank, National Association                 :                                                                                                                  Detaile :on :+Northern Ky :                                                                                                                                                        Back. :PAPER FOR GL TICKETS AND CONVENIENCE CHECKS :+Your federal taxable wages this period are $70842743866.00USD :+ALPHABET :+1600 AMPITHEATRE PARKWAY MOUNTAIN VIEW CA 94043 :+_______________________________________________________________________________________________________________________________________________ :+Deposited to the account Of :Previous Over-payment :     Significance :MP : MP :+For :ACH Web Usataxpymt IRS 240261564036618 :{AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} :|EXEUTOR/ :+Significance :                                                                                                   +MP :|ADMINISTRATOR :________________________________________________________________ :          {AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} :  |PERSONAL :                                                                             +Significance :MP : |REPRESENTATIVE :{AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} :    |TRUSTEE :                                                                                                     +||'000000||' :-|:071921891|: :-||'4720416547||' :PAPER FOR GL TICKETS AND CONVENIENCE CHECKS :::AUTOMATE :AUTOMATES :AUTOMATICALLY ::Build ::AUTOMATE :AUTOMATES :AUTOMATICALLY ::Build:: :PUBLISH :RELEASE :LAUNCH :DEPLOYEE :+_________________________________________________________________________________________________________________________________________________ :+Deposited to the account Of :+       Previous Over-payment :                                                 - Significance :                                                                                                   MP                                                  MP+For :ACH Web Usataxpymt IRS 240261564036618 :{AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} :|EXEUTOR/ :+                                                                             - Significance :                                                                                                  MP    |ADMINISTRATOR+________________________________________________________________            {AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE}    |PERSONAL+                                                                             - Significance                                                                                                   MP    |REPRESENTATIVE+                                                                            {AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE}    |TRUSTEE                                                                                                      +||'000000||'d-|:071921891|:d-||'4720416547||'+200200-0321 :++RDASMS03                                                                                                                                                         00022214903782823+ALPHABET                                +1600 AMPIHTHEATRE PARKWAY                 005154                      000102873     Q308                                                  +1600 AMPIHTHEATRE PARKWAY                 005154                      000102873     Q308                                                 +MOUNTAIN VIEW, C.A. 94043                                                                                                                                                                                                       DATE__________________70-2189/719+                                            ZACHRY TYLER WOOD                                                                                                    +                                            ALPHABET                                                                                                    7364                                            +                                            5323 BRADFORD DR+                                            DALLAS, TX 75235-8314+PAY TO THE ORDER OF: ZACHRY TYLER WOOD+_____________________________________________________________________________________________________________________________________________________|$|__________________________|+____________________________________________________________________________________________________________________________________|$|__________________________|+__________________________________________________________________________________________________________________________________________________DOLLARS   [OBJ]   Security                                                                                                                                                                                                                     Features    ___________________________________________________________________________________________ :+EMPLOYER IDENTIFICATION NUMBER :61-1767919 :___________________________________________________________________________________________ :+EMPLOYER IDENTIFICATION NUMBER :61-1767919 :___________________________________________________________________________________________ :+Medicare Tax :+______________________________________________________________________________________________________________________________________________________________________________________ :net, pay. : +CHECKING:+Net Check :+Your federal taxable wages this period are $2267700000000000 :+ALPHABET :INCOME :+Depsosited to the account Of :ZACHRY_TYLER_WOOD :+RDASMS03                                     :                                                                    DATE_________________________ 73/18-421|7364 :+ALPHABET:+5323 :+BRADFORD DR:+DALLAS, TX 75235-8314 :+PAY TO THE ORDER OF :___________ZACHRY TYLER WOOD________________________________________________________________________________________|$|__________________________________| :+___________________________________________________________________________________________________________________________DOLLARS :+PNC Bank, National AssociationNorthern, Ky     07364 : +1600 AMPIHTHEATRE PARKWAY MOUNTAIN VIEW CA 94043 :PLEASE READ THE IMPORTANT DISCLOSURES BELOW :+FEDERAL RESERVE MASTER SUPPLIER ACCOUNT31000053-052101023COD :+PLEASE READ THE IMPORTANT DISCLOSURES BELOW :+Non-Negotiable        Customer Copy :+MEMO___________________________________________________________________ :+200200-0321 :+PNC Bank, National Association                 :                                                                                                                  Detaile :on :+Northern Ky :                                                                                                                                                        Back. :PAPER FOR GL TICKETS AND CONVENIENCE CHECKS :+Your federal taxable wages this period are $70842743866.00USD :+ALPHABET :+1600 AMPITHEATRE PARKWAY MOUNTAIN VIEW CA 94043 :+_______________________________________________________________________________________________________________________________________________ :+Deposited to the account Of :Previous Over-payment :     Significance :MP : MP :+For :ACH Web Usataxpymt IRS 240261564036618 :{AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} :|EXEUTOR/ :+Significance :                                                                                                   +MP :|ADMINISTRATOR :________________________________________________________________ :          {AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} :  |PERSONAL :                                                                             +Significance :MP : |REPRESENTATIVE :{AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} :    |TRUSTEE :                                                                                                     +||'000000||' :-|:071921891|: :-||'4720416547||' :PAPER FOR GL TICKETS AND CONVENIENCE CHECKS :::AUTOMATE :AUTOMATES :AUTOMATICALLY ::Build ::PUBLISH :RELEASE :LAUNCH :DEPLOYEE :PAPER FOR GL TICKETS AND CONVENIENCE CHECKS :AUTOMATE :AUTOMATES :AUTOMATICALLY ::Build ::PUBLISH ::RELEASE ::LAUNCH ::DEPLOYEE :++++++++++++++++++++++++RDASMS03                                                                                                                                                         00022214903782823+ALPHABET                                +1600 AMPIHTHEATRE PARKWAY                 005154                      000102873     Q308                                                  +MOUNTAIN VIEW, C.A. 94043                                                                                                                                                                                                       DATE__________________70-2189/719+                                            ZACHRY TYLER WOOD                                                                                                    +                                            ALPHABET                                                                                                    7364                                            +                                            5323 BRADFORD DR+                                            DALLAS, TX 75235-8314+PAY TO THE ORDER OF: ZACHRY TYLER WOOD+_____________________________________________________________________________________________________________________________________________________|$|__________________________|+__________________________________________________________________________________________________________________________________________________DOLLARS   [OBJ]   Security                                                                                                                                                                                                                     Features    +PNC Bank, National Association                                                                                                                                      Detaile on+Northern Ky                                                                                                                                                         Back.+    07364+Net Pay+CHECKING+Net Check+Your federal taxable wages this period are $70842743866.00USD+ALPHABET InCOME+1600 AMPITHEATRE PARKWAY MOUNTAIN VIEW CA 94043+_________________________________________________________________________________________________________________________________________________+Deposited to the account Of+       Previous Over-payment                                                 - Signi
+Search or jump to…
+Pull requests
+Issues
+Marketplace
+Explore
+ 
+@zakwarlord7 
+Your account has been flagged.
+Because of that, your profile is hidden from the public. If you believe this is a mistake, contact support to have your account status reviewed.
+zakwarlord7
+/
+ball.yml
+Public
+generated from zakwarlord7/zakwarlord7
+Code
+Issues
+Pull requests
+Actions
+Projects
+Wiki
+Security
+Insights
+Settings
+Comparing changes
+Choose two branches to see what’s changed or to start a new pull request. If you need to, you can also .
+  
+There isn’t anything to compare.
+paradice and 071921891-47-2041-6547 are entirely different commit histories.
+
+Showing  with 2,263 additions and 0 deletions.
+ 202  
+.github/workflows/:rake.i
+@@ -0,0 +1,202 @@
+# This workflow uses actions that are not certified by GitHub.
+# They are provided by a third-party and are governed by
+# separate terms of service, privacy policy, and support
+# documentation.
+
+# 💁 The OpenShift Starter workflow will:
+# - Checkout your repository
+# - Perform a container image build
+# - Push the built image to the GitHub Container Registry (GHCR)
+# - Log in to your OpenShift cluster
+# - Create an OpenShift app from the image and expose it to the internet
+
+# ℹ️ Configure your repository and the workflow with the following steps:
+# 1. Have access to an OpenShift cluster. Refer to https://www.openshift.com/try
+# 2. Create the OPENSHIFT_SERVER and OPENSHIFT_TOKEN repository secrets. Refer to:
+#   - https://github.com/redhat-actions/oc-login#readme
+#   - https://docs.github.com/en/actions/reference/encrypted-secrets
+#   - https://cli.github.com/manual/gh_secret_set
+# 3. (Optional) Edit the top-level 'env' section as marked with '🖊️' if the defaults are not suitable for your project.
+# 4. (Optional) Edit the build-image step to build your project.
+#    The default build type is by using a Dockerfile at the root of the repository,
+#    but can be replaced with a different file, a source-to-image build, or a step-by-step buildah build.
+# 5. Commit and push the workflow file to your default branch to trigger a workflow run.
+
+# 👋 Visit our GitHub organization at https://github.com/redhat-actions/ to see our actions and provide feedback.
+
+name: OpenShift
+
+env:
+  # 🖊️ EDIT your repository secrets to log into your OpenShift cluster and set up the context.
+  # See https://github.com/redhat-actions/oc-login#readme for how to retrieve these values.
+  # To get a permanent token, refer to https://github.com/redhat-actions/oc-login/wiki/Using-a-Service-Account-for-GitHub-Actions
+  OPENSHIFT_SERVER: ${{ secrets.OPENSHIFT_SERVER }}
+  OPENSHIFT_TOKEN: ${{ secrets.OPENSHIFT_TOKEN }}
+  # 🖊️ EDIT to set the kube context's namespace after login. Leave blank to use your user's default namespace.
+  OPENSHIFT_NAMESPACE: ""
+
+  # 🖊️ EDIT to set a name for your OpenShift app, or a default one will be generated below.
+  APP_NAME: ""
+
+  # 🖊️ EDIT with the port your application should be accessible on.
+  # If the container image exposes *exactly one* port, this can be left blank.
+  # Refer to the 'port' input of https://github.com/redhat-actions/oc-new-app
+  APP_PORT: ""
+
+  # 🖊️ EDIT to change the image registry settings.
+  # Registries such as GHCR, Quay.io, and Docker Hub are supported.
+  IMAGE_REGISTRY: ghcr.io/${{ github.repository_owner }}
+  IMAGE_REGISTRY_USER: ${{ github.actor }}
+  IMAGE_REGISTRY_PASSWORD: ${{ github.token }}
+
+  # 🖊️ EDIT to specify custom tags for the container image, or default tags will be generated below.
+  IMAGE_TAGS: ""
+
+on:
+  # https://docs.github.com/en/actions/reference/events-that-trigger-workflows
+  workflow_dispatch:
+  push:
+    # Edit to the branch(es) you want to build and deploy on each push.
+    branches: [ "paradice" ]
+
+jobs:
+  # 🖊️ EDIT if you want to run vulnerability check on your project before deploying
+  # the application. Please uncomment the below CRDA scan job and configure to run it in
+  # your workflow. For details about CRDA action visit https://github.com/redhat-actions/crda/blob/main/README.md
+  #
+  # TODO: Make sure to add 'CRDA Scan' starter workflow from the 'Actions' tab.
+  # For guide on adding new starter workflow visit https://docs.github.com/en/github-ae@latest/actions/using-workflows/using-starter-workflows
+
+  crda-scan:
+    uses: ./.github/workflows/crda.yml
+    secrets:
+      CRDA_KEY: ${{ secrets.CRDA_KEY }}
+      # SNYK_TOKEN: ${{ secrets.SNYK_TOKEN }}       # Either use SNYK_TOKEN or CRDA_KEY
+
+  openshift-ci-cd:
+    # 🖊️ Uncomment this if you are using CRDA scan step above
+    # needs: crda-scan
+    name: Build and deploy to OpenShift
+    runs-on: ubuntu-20.04
+    environment: production
+
+    outputs:
+      ROUTE: ${{ steps.deploy-and-expose.outputs.route }}
+      SELECTOR: ${{ steps.deploy-and-expose.outputs.selector }}
+
+    steps:
+    - name: Check for required secrets
+      uses: actions/github-script@v6
+      with:
+        script: |
+          const secrets = {
+            OPENSHIFT_SERVER: `${{ secrets.OPENSHIFT_SERVER }}`,
+            OPENSHIFT_TOKEN: `${{ secrets.OPENSHIFT_TOKEN }}`,
+          };
+
+          const GHCR = "ghcr.io";
+          if (`${{ env.IMAGE_REGISTRY }}`.startsWith(GHCR)) {
+            core.info(`Image registry is ${GHCR} - no registry password required`);
+          }
+          else {
+            core.info("A registry password is required");
+            secrets["IMAGE_REGISTRY_PASSWORD"] = `${{ secrets.IMAGE_REGISTRY_PASSWORD }}`;
+          }
+
+          const missingSecrets = Object.entries(secrets).filter(([ name, value ]) => {
+            if (value.length === 0) {
+              core.error(`Secret "${name}" is not set`);
+              return true;
+            }
+            core.info(`✔️ Secret "${name}" is set`);
+            return false;
+          });
+
+          if (missingSecrets.length > 0) {
+            core.setFailed(`❌ At least one required secret is not set in the repository. \n` +
+              "You can add it using:\n" +
+              "GitHub UI: https://docs.github.com/en/actions/reference/encrypted-secrets#creating-encrypted-secrets-for-a-repository \n" +
+              "GitHub CLI: https://cli.github.com/manual/gh_secret_set \n" +
+              "Also, refer to https://github.com/redhat-actions/oc-login#getting-started-with-the-action-or-see-example");
+          }
+          else {
+            core.info(`✅ All the required secrets are set`);
+          }
+
+    - name: Check out repository
+      uses: actions/checkout@v3
+
+    - name: Determine app name
+      if: env.APP_NAME == ''
+      run: |
+        echo "APP_NAME=$(basename $PWD)" | tee -a $GITHUB_ENV
+
+    - name: Determine image tags
+      if: env.IMAGE_TAGS == ''
+      run: |
+        echo "IMAGE_TAGS=latest ${GITHUB_SHA::12}" | tee -a $GITHUB_ENV
+
+    # https://github.com/redhat-actions/buildah-build#readme
+    - name: Build from Dockerfile
+      id: build-image
+      uses: redhat-actions/buildah-build@v2
+      with:
+        image: ${{ env.APP_NAME }}
+        tags: ${{ env.IMAGE_TAGS }}
+
+        # If you don't have a Dockerfile/Containerfile, refer to https://github.com/redhat-actions/buildah-build#scratch-build-inputs
+        # Or, perform a source-to-image build using https://github.com/redhat-actions/s2i-build
+        # Otherwise, point this to your Dockerfile/Containerfile relative to the repository root.
+        dockerfiles: |
+          ./Dockerfile
+
+    # https://github.com/redhat-actions/push-to-registry#readme
+    - name: Push to registry
+      id: push-image
+      uses: redhat-actions/push-to-registry@v2
+      with:
+        image: ${{ steps.build-image.outputs.image }}
+        tags: ${{ steps.build-image.outputs.tags }}
+        registry: ${{ env.IMAGE_REGISTRY }}
+        username: ${{ env.IMAGE_REGISTRY_USER }}
+        password: ${{ env.IMAGE_REGISTRY_PASSWORD }}
+
+    # The path the image was pushed to is now stored in ${{ steps.push-image.outputs.registry-path }}
+
+    - name: Install oc
+      uses: redhat-actions/openshift-tools-installer@v1
+      with:
+        oc: 4
+
+    # https://github.com/redhat-actions/oc-login#readme
+    - name: Log in to OpenShift
+      uses: redhat-actions/oc-login@v1
+      with:
+        openshift_server_url: ${{ env.OPENSHIFT_SERVER }}
+        openshift_token: ${{ env.OPENSHIFT_TOKEN }}
+        insecure_skip_tls_verify: true
+        namespace: ${{ env.OPENSHIFT_NAMESPACE }}
+
+    # This step should create a deployment, service, and route to run your app and expose it to the internet.
+    # https://github.com/redhat-actions/oc-new-app#readme
+    - name: Create and expose app
+      id: deploy-and-expose
+      uses: redhat-actions/oc-new-app@v1
+      with:
+        app_name: ${{ env.APP_NAME }}
+        image: ${{ steps.push-image.outputs.registry-path }}
+        namespace: ${{ env.OPENSHIFT_NAMESPACE }}
+        port: ${{ env.APP_PORT }}
+
+    - name: Print application URL
+      env:
+        ROUTE: ${{ steps.deploy-and-expose.outputs.route }}
+        SELECTOR: ${{ steps.deploy-and-expose.outputs.selector }}
+      run: |
+        [[ -n ${{ env.ROUTE }} ]] || (echo "Determining application route failed in previous step"; exit 1)
+        echo
+        echo "======================== Your application is available at: ========================"
+        echo ${{ env.ROUTE }}
+        echo "==================================================================================="
+        echo
+        echo "Your app can be taken down with: \"oc delete all --selector='${{ env.SELECTOR }}'\""
+ 123  
+.github/workflows/alibabacloud.yml
+@@ -0,0 +1,123 @@
+# This workflow will build and push a new container image to Alibaba Cloud Container Registry (ACR),
+# and then will deploy it to Alibaba Cloud Container Service for Kubernetes (ACK), when there is a push to the "paradice" branch.
+#
+# To use this workflow, you will need to complete the following set-up steps:
+#
+# 1. Create an ACR repository to store your container images. 
+#    You can use ACR EE instance for more security and better performance.
+#    For instructions see https://www.alibabacloud.com/help/doc-detail/142168.htm
+#
+# 2. Create an ACK cluster to run your containerized application.
+#    You can use ACK Pro cluster for more security and better performance.
+#    For instructions see https://www.alibabacloud.com/help/doc-detail/95108.htm
+#
+# 3. Store your AccessKey pair in GitHub Actions secrets named `ACCESS_KEY_ID` and `ACCESS_KEY_SECRET`.
+#    For instructions on setting up secrets see: https://developer.github.com/actions/managing-workflows/storing-secrets/
+#
+# 4. Change the values for the REGION_ID, REGISTRY, NAMESPACE, IMAGE, ACK_CLUSTER_ID, and ACK_DEPLOYMENT_NAME. 
+#
+
+name: Build and Deploy to ACK
+
+on:
+  push:
+    branches:
+      - "paradice"
+
+# Environment variables available to all jobs and steps in this workflow.
+env:
+  REGION_ID: cn-hangzhou
+  REGISTRY: registry.cn-hangzhou.aliyuncs.com
+  NAMESPACE: namespace
+  IMAGE: repo
+  TAG: ${{ github.sha }}
+  ACK_CLUSTER_ID: clusterID
+  ACK_DEPLOYMENT_NAME: nginx-deployment
+
+  ACR_EE_REGISTRY: myregistry.cn-hangzhou.cr.aliyuncs.com
+  ACR_EE_INSTANCE_ID: instanceID
+  ACR_EE_NAMESPACE: namespace
+  ACR_EE_IMAGE: repo
+  ACR_EE_TAG: ${{ github.sha }}
+
+permissions:
+  contents: read
+
+jobs:
+  build:
+    runs-on: ubuntu-latest
+    environment: production
+
+    steps:
+    - name: Checkout
+      uses: actions/checkout@v3
+
+    # 1.1 Login to ACR   
+    - name: Login to ACR with the AccessKey pair
+      uses: aliyun/acr-login@v1
+      with:
+        region-id: "${{ env.REGION_ID }}"
+        access-key-id: "${{ secrets.ACCESS_KEY_ID }}"
+        access-key-secret: "${{ secrets.ACCESS_KEY_SECRET }}"
+
+    # 1.2 Buid and push image to ACR   
+    - name: Build and push image to ACR  
+      run: |
+        docker build --tag "$REGISTRY/$NAMESPACE/$IMAGE:$TAG" .  
+        docker push "$REGISTRY/$NAMESPACE/$IMAGE:$TAG"   
+ 
+    # 1.3 Scan image in ACR   
+    - name: Scan image in ACR
+      uses: aliyun/acr-scan@v1
+      with:
+        region-id: "${{ env.REGION_ID }}"
+        access-key-id: "${{ secrets.ACCESS_KEY_ID }}"
+        access-key-secret: "${{ secrets.ACCESS_KEY_SECRET }}"
+        repository: "${{ env.NAMESPACE }}/${{ env.IMAGE }}"
+        tag: "${{ env.TAG }}"
+
+    # 2.1 (Optional) Login to ACR EE          
+    - uses: actions/checkout@v3
+    - name: Login to ACR EE with the AccessKey pair
+      uses: aliyun/acr-login@v1
+      with:
+        login-server: "https://${{ env.ACR_EE_REGISTRY }}"
+        region-id: "${{ env.REGION_ID }}"
+        access-key-id: "${{ secrets.ACCESS_KEY_ID }}"
+        access-key-secret: "${{ secrets.ACCESS_KEY_SECRET }}"
+        instance-id: "${{ env.ACR_EE_INSTANCE_ID }}"
+
+    # 2.2 (Optional) Build and push image ACR EE          
+    - name: Build and push image to ACR EE  
+      run: |
+        docker build -t "$ACR_EE_REGISTRY/$ACR_EE_NAMESPACE/$ACR_EE_IMAGE:$TAG" .
+        docker push "$ACR_EE_REGISTRY/$ACR_EE_NAMESPACE/$ACR_EE_IMAGE:$TAG"
+    # 2.3 (Optional) Scan image in ACR EE          
+    - name: Scan image in ACR EE
+      uses: aliyun/acr-scan@v1
+      with:
+        region-id: "${{ env.REGION_ID }}"
+        access-key-id: "${{ secrets.ACCESS_KEY_ID }}"
+        access-key-secret: "${{ secrets.ACCESS_KEY_SECRET }}"
+        instance-id: "${{ env.ACR_EE_INSTANCE_ID }}"
+        repository: "${{ env.ACR_EE_NAMESPACE}}/${{ env.ACR_EE_IMAGE }}"
+        tag: "${{ env.ACR_EE_TAG }}"
+
+    # 3.1 Set ACK context         
+    - name: Set K8s context
+      uses: aliyun/ack-set-context@v1
+      with:
+        access-key-id: "${{ secrets.ACCESS_KEY_ID }}"
+        access-key-secret: "${{ secrets.ACCESS_KEY_SECRET }}"
+        cluster-id: "${{ env.ACK_CLUSTER_ID }}"
+
+    # 3.2 Deploy the image to the ACK cluster
+    - name: Set up Kustomize
+      run: |-
+        curl -s "https://raw.githubusercontent.com/kubernetes-sigs/kustomize/master/hack/install_kustomize.sh"  | bash /dev/stdin 3.8.6
+    - name: Deploy
+      run: |-
+        ./kustomize edit set image REGISTRY/NAMESPACE/IMAGE:TAG=$REGISTRY/$NAMESPACE/$IMAGE:$TAG
+        ./kustomize build . | kubectl apply -f -
+        kubectl rollout status deployment/$ACK_DEPLOYMENT_NAME
+        kubectl get services -o wide
+ 95  
+.github/workflows/aws.yml
+@@ -0,0 +1,95 @@
+# This workflow will build and push a new container image to Amazon ECR,
+# and then will deploy a new task definition to Amazon ECS, when there is a push to the "paradice" branch.
+#
+# To use this workflow, you will need to complete the following set-up steps:
+#
+# 1. Create an ECR repository to store your images.
+#    For example: `aws ecr create-repository --repository-name my-ecr-repo --region us-east-2`.
+#    Replace the value of the `ECR_REPOSITORY` environment variable in the workflow below with your repository's name.
+#    Replace the value of the `AWS_REGION` environment variable in the workflow below with your repository's region.
+#
+# 2. Create an ECS task definition, an ECS cluster, and an ECS service.
+#    For example, follow the Getting Started guide on the ECS console:
+#      https://us-east-2.console.aws.amazon.com/ecs/home?region=us-east-2#/firstRun
+#    Replace the value of the `ECS_SERVICE` environment variable in the workflow below with the name you set for the Amazon ECS service.
+#    Replace the value of the `ECS_CLUSTER` environment variable in the workflow below with the name you set for the cluster.
+#
+# 3. Store your ECS task definition as a JSON file in your repository.
+#    The format should follow the output of `aws ecs register-task-definition --generate-cli-skeleton`.
+#    Replace the value of the `ECS_TASK_DEFINITION` environment variable in the workflow below with the path to the JSON file.
+#    Replace the value of the `CONTAINER_NAME` environment variable in the workflow below with the name of the container
+#    in the `containerDefinitions` section of the task definition.
+#
+# 4. Store an IAM user access key in GitHub Actions secrets named `AWS_ACCESS_KEY_ID` and `AWS_SECRET_ACCESS_KEY`.
+#    See the documentation for each action used below for the recommended IAM policies for this IAM user,
+#    and best practices on handling the access key credentials.
+
+name: Deploy to Amazon ECS
+
+on:
+  push:
+    branches:
+      - "paradice"
+
+env:
+  AWS_REGION: MY_AWS_REGION                   # set this to your preferred AWS region, e.g. us-west-1
+  ECR_REPOSITORY: MY_ECR_REPOSITORY           # set this to your Amazon ECR repository name
+  ECS_SERVICE: MY_ECS_SERVICE                 # set this to your Amazon ECS service name
+  ECS_CLUSTER: MY_ECS_CLUSTER                 # set this to your Amazon ECS cluster name
+  ECS_TASK_DEFINITION: MY_ECS_TASK_DEFINITION # set this to the path to your Amazon ECS task definition
+                                               # file, e.g. .aws/task-definition.json
+  CONTAINER_NAME: MY_CONTAINER_NAME           # set this to the name of the container in the
+                                               # containerDefinitions section of your task definition
+
+permissions:
+  contents: read
+
+jobs:
+  deploy:
+    name: Deploy
+    runs-on: ubuntu-latest
+    environment: production
+
+    steps:
+    - name: Checkout
+      uses: actions/checkout@v3
+
+    - name: Configure AWS credentials
+      uses: aws-actions/configure-aws-credentials@v1
+      with:
+        aws-access-key-id: ${{ secrets.AWS_ACCESS_KEY_ID }}
+        aws-secret-access-key: ${{ secrets.AWS_SECRET_ACCESS_KEY }}
+        aws-region: ${{ env.AWS_REGION }}
+
+    - name: Login to Amazon ECR
+      id: login-ecr
+      uses: aws-actions/amazon-ecr-login@v1
+
+    - name: Build, tag, and push image to Amazon ECR
+      id: build-image
+      env:
+        ECR_REGISTRY: ${{ steps.login-ecr.outputs.registry }}
+        IMAGE_TAG: ${{ github.sha }}
+      run: |
+        # Build a docker container and
+        # push it to ECR so that it can
+        # be deployed to ECS.
+        docker build -t $ECR_REGISTRY/$ECR_REPOSITORY:$IMAGE_TAG .
+        docker push $ECR_REGISTRY/$ECR_REPOSITORY:$IMAGE_TAG
+        echo "::set-output name=image::$ECR_REGISTRY/$ECR_REPOSITORY:$IMAGE_TAG"
+    - name: Fill in the new image ID in the Amazon ECS task definition
+      id: task-def
+      uses: aws-actions/amazon-ecs-render-task-definition@v1
+      with:
+        task-definition: ${{ env.ECS_TASK_DEFINITION }}
+        container-name: ${{ env.CONTAINER_NAME }}
+        image: ${{ steps.build-image.outputs.image }}
+
+    - name: Deploy Amazon ECS task definition
+      uses: aws-actions/amazon-ecs-deploy-task-definition@v1
+      with:
+        task-definition: ${{ steps.task-def.outputs.task-definition }}
+        service: ${{ env.ECS_SERVICE }}
+        cluster: ${{ env.ECS_CLUSTER }}
+        wait-for-service-stability: true
+ 202  
+.github/workflows/openshift.yml
+@@ -0,0 +1,202 @@
+# This workflow uses actions that are not certified by GitHub.
+# They are provided by a third-party and are governed by
+# separate terms of service, privacy policy, and support
+# documentation.
+
+# 💁 The OpenShift Starter workflow will:
+# - Checkout your repository
+# - Perform a container image build
+# - Push the built image to the GitHub Container Registry (GHCR)
+# - Log in to your OpenShift cluster
+# - Create an OpenShift app from the image and expose it to the internet
+
+# ℹ️ Configure your repository and the workflow with the following steps:
+# 1. Have access to an OpenShift cluster. Refer to https://www.openshift.com/try
+# 2. Create the OPENSHIFT_SERVER and OPENSHIFT_TOKEN repository secrets. Refer to:
+#   - https://github.com/redhat-actions/oc-login#readme
+#   - https://docs.github.com/en/actions/reference/encrypted-secrets
+#   - https://cli.github.com/manual/gh_secret_set
+# 3. (Optional) Edit the top-level 'env' section as marked with '🖊️' if the defaults are not suitable for your project.
+# 4. (Optional) Edit the build-image step to build your project.
+#    The default build type is by using a Dockerfile at the root of the repository,
+#    but can be replaced with a different file, a source-to-image build, or a step-by-step buildah build.
+# 5. Commit and push the workflow file to your default branch to trigger a workflow run.
+
+# 👋 Visit our GitHub organization at https://github.com/redhat-actions/ to see our actions and provide feedback.
+
+name: OpenShift
+
+env:
+  # 🖊️ EDIT your repository secrets to log into your OpenShift cluster and set up the context.
+  # See https://github.com/redhat-actions/oc-login#readme for how to retrieve these values.
+  # To get a permanent token, refer to https://github.com/redhat-actions/oc-login/wiki/Using-a-Service-Account-for-GitHub-Actions
+  OPENSHIFT_SERVER: ${{ secrets.OPENSHIFT_SERVER }}
+  OPENSHIFT_TOKEN: ${{ secrets.OPENSHIFT_TOKEN }}
+  # 🖊️ EDIT to set the kube context's namespace after login. Leave blank to use your user's default namespace.
+  OPENSHIFT_NAMESPACE: ""
+
+  # 🖊️ EDIT to set a name for your OpenShift app, or a default one will be generated below.
+  APP_NAME: ""
+
+  # 🖊️ EDIT with the port your application should be accessible on.
+  # If the container image exposes *exactly one* port, this can be left blank.
+  # Refer to the 'port' input of https://github.com/redhat-actions/oc-new-app
+  APP_PORT: ""
+
+  # 🖊️ EDIT to change the image registry settings.
+  # Registries such as GHCR, Quay.io, and Docker Hub are supported.
+  IMAGE_REGISTRY: ghcr.io/${{ github.repository_owner }}
+  IMAGE_REGISTRY_USER: ${{ github.actor }}
+  IMAGE_REGISTRY_PASSWORD: ${{ github.token }}
+
+  # 🖊️ EDIT to specify custom tags for the container image, or default tags will be generated below.
+  IMAGE_TAGS: ""
+
+on:
+  # https://docs.github.com/en/actions/reference/events-that-trigger-workflows
+  workflow_dispatch:
+  push:
+    # Edit to the branch(es) you want to build and deploy on each push.
+    branches: [ "paradice" ]
+
+jobs:
+  # 🖊️ EDIT if you want to run vulnerability check on your project before deploying
+  # the application. Please uncomment the below CRDA scan job and configure to run it in
+  # your workflow. For details about CRDA action visit https://github.com/redhat-actions/crda/blob/main/README.md
+  #
+  # TODO: Make sure to add 'CRDA Scan' starter workflow from the 'Actions' tab.
+  # For guide on adding new starter workflow visit https://docs.github.com/en/github-ae@latest/actions/using-workflows/using-starter-workflows
+
+  crda-scan:
+    uses: ./.github/workflows/crda.yml
+    secrets:
+      CRDA_KEY: ${{ secrets.CRDA_KEY }}
+      # SNYK_TOKEN: ${{ secrets.SNYK_TOKEN }}       # Either use SNYK_TOKEN or CRDA_KEY
+
+  openshift-ci-cd:
+    # 🖊️ Uncomment this if you are using CRDA scan step above
+    # needs: crda-scan
+    name: Build and deploy to OpenShift
+    runs-on: ubuntu-20.04
+    environment: production
+
+    outputs:
+      ROUTE: ${{ steps.deploy-and-expose.outputs.route }}
+      SELECTOR: ${{ steps.deploy-and-expose.outputs.selector }}
+
+    steps:
+    - name: Check for required secrets
+      uses: actions/github-script@v6
+      with:
+        script: |
+          const secrets = {
+            OPENSHIFT_SERVER: `${{ secrets.OPENSHIFT_SERVER }}`,
+            OPENSHIFT_TOKEN: `${{ secrets.OPENSHIFT_TOKEN }}`,
+          };
+          const GHCR = "ghcr.io";
+          if (`${{ env.IMAGE_REGISTRY }}`.startsWith(GHCR)) {
+            core.info(`Image registry is ${GHCR} - no registry password required`);
+          }
+          else {
+            core.info("A registry password is required");
+            secrets["IMAGE_REGISTRY_PASSWORD"] = `${{ secrets.IMAGE_REGISTRY_PASSWORD }}`;
+          }
+          const missingSecrets = Object.entries(secrets).filter(([ name, value ]) => {
+            if (value.length === 0) {
+              core.error(`Secret "${name}" is not set`);
+              return true;
+            }
+            core.info(`✔️ Secret "${name}" is set`);
+            return false;
+          });
+          if (missingSecrets.length > 0) {
+            core.setFailed(`❌ At least one required secret is not set in the repository. \n` +
+              "You can add it using:\n" +
+              "GitHub UI: https://docs.github.com/en/actions/reference/encrypted-secrets#creating-encrypted-secrets-for-a-repository \n" +
+              "GitHub CLI: https://cli.github.com/manual/gh_secret_set \n" +
+              "Also, refer to https://github.com/redhat-actions/oc-login#getting-started-with-the-action-or-see-example");
+          }
+          else {
+            core.info(`✅ All the required secrets are set`);
+          }
+    - name: Check out repository
+      uses: actions/checkout@v3
+
+    - name: Determine app name
+      if: env.APP_NAME == ''
+      run: |
+        echo "APP_NAME=$(basename $PWD)" | tee -a $GITHUB_ENV
+    - name: Determine image tags
+      if: env.IMAGE_TAGS == ''
+      run: |
+        echo "IMAGE_TAGS=latest ${GITHUB_SHA::12}" | tee -a $GITHUB_ENV
+    # https://github.com/redhat-actions/buildah-build#readme
+    - name: Build from Dockerfile
+      id: build-image
+      uses: redhat-actions/buildah-build@v2
+      with:
+        image: ${{ env.APP_NAME }}
+        tags: ${{ env.IMAGE_TAGS }}
+
+        # If you don't have a Dockerfile/Containerfile, refer to https://github.com/redhat-actions/buildah-build#scratch-build-inputs
+        # Or, perform a source-to-image build using https://github.com/redhat-actions/s2i-build
+        # Otherwise, point this to your Dockerfile/Containerfile relative to the repository root.
+        dockerfiles: |
+          ./Dockerfile
+    # https://github.com/redhat-actions/push-to-registry#readme
+    - name: Push to registry
+      id: push-image
+      uses: redhat-actions/push-to-registry@v2
+      with:
+        image: ${{ steps.build-image.outputs.image }}
+        tags: ${{ steps.build-image.outputs.tags }}
+        registry: ${{ env.IMAGE_REGISTRY }}
+        username: ${{ env.IMAGE_REGISTRY_USER }}
+        password: ${{ env.IMAGE_REGISTRY_PASSWORD }}
+
+    # The path the image was pushed to is now stored in ${{ steps.push-image.outputs.registry-path }}
+
+    - name: Install oc
+      uses: redhat-actions/openshift-tools-installer@v1
+      with:
+        oc: 4
+
+    # https://github.com/redhat-actions/oc-login#readme
+    - name: Log in to OpenShift
+      uses: redhat-actions/oc-login@v1
+      with:
+        openshift_server_url: ${{ env.OPENSHIFT_SERVER }}
+        openshift_token: ${{ env.OPENSHIFT_TOKEN }}
+        insecure_skip_tls_verify: true
+        namespace: ${{ env.OPENSHIFT_NAMESPACE }}
+
+    # This step should create a deployment, service, and route to run your app and expose it to the internet.
+    # https://github.com/redhat-actions/oc-new-app#readme
+    - name: Create and expose app
+      id: deploy-and-expose
+      uses: redhat-actions/oc-new-app@v1
+      with:
+        app_name: ${{ env.APP_NAME }}
+        image: ${{ steps.push-image.outputs.registry-path }}
+        namespace: ${{ env.OPENSHIFT_NAMESPACE }}
+        port: ${{ env.APP_PORT }}
+
+    - name: Print application URL
+      env:
+        ROUTE: ${{ steps.deploy-and-expose.outputs.route }}
+        SELECTOR: ${{ steps.deploy-and-expose.outputs.selector }}
+      run: |
+        [[ -n ${{ env.ROUTE }} ]] || (echo "Determining application route failed in previous step"; exit 1)
+        echo
+        echo "======================== Your application is available at: ========================"
+        echo ${{ env.ROUTE }}
+        echo "==================================================================================="
+        echo
+        echo "Your app can be taken down with: \"oc delete all --selector='${{ env.SELECTOR }}'\""
+ 203  
+:rake.io
+@@ -0,0 +1,203 @@
+- 👋 Hi, I’m @zakwarlord7
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ...
+<!---
+zakwarlord7/zakwarlord7 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
+12/31/2020        CONSOLIDATED STATEMENTS OF COMPREHENSIVE INCOME - USD ($) $ in Millions        12 Months Ended                
+Income Revenue Report                Dec. 31, 2020        Dec. 31, 2019        Dec. 31, 2018
+  Alphabet Inc Co        Statement of Comprehensive Income [Abstract]                        
+        Net income         $ 40,269          $ 34,343          $ 30,736 
+
+        Other comprehensive income (loss):                        
+        Change in foreign currency translation adjustment        1,139         (119)        (781)
+        Available-for-sale investments:                        
+        Change in net unrealized gains (losses)        1,313         1,611         88 
+        Less: reclassification adjustment for net (gains) losses included in net income        (513)        (111)        (911)
+        Net change, net of tax benefit (expense) of $156, $(221), and $(230)        800         1,500         (823)
+        Cash flow hedges:                        
+        Change in net unrealized gains (losses)        42         22         290 
+        Less: reclassification adjustment for net (gains) losses included in net income        (116)        (299)        98 
+        Net change, net of tax benefit (expense) of $(103), $42, and $11        (74)        (277)        388 
+        Other comprehensive income (loss)        1,865         1,104         (1,216)
+        Comprehensive income         $ 42,134          $ 35,447          $ 29,520 
+
+
+
+        CONSOLIDATED BALANCE SHEETS (Parenthetical) - $ / shares        Dec. 31, 2020        Dec. 31, 2019        
+        Stockholders’ equity:                        
+        Convertible preferred stock, par value per share (in dollars per share)        $0.00         $0.00         
+        Convertible preferred stock, shares authorized (in shares)        100,000,000        100,000,000        
+        Convertible preferred stock, shares issued (in shares)        0        0        
+        Convertible preferred stock, shares outstanding (in shares)        0        0        
+        Common stock and capital stock, par value (in dollars per share)        $0.00         $0.00         
+        Common stock and capital stock, shares authorized (in shares)        15,000,000,000        15,000,000,000        
+        Common stock and capital stock, shares issued (in shares)        675,222,000        688,335,000        
+        Common stock and capital stock, shares outstanding (in shares)        675,222,000        688,335,000        
+        Class A Common Stock                        
+        Stockholders’ equity:                        
+        Common stock and capital stock, shares authorized (in shares)        9,000,000,000        9,000,000,000        
+        Common stock and capital stock, shares issued (in shares)        300,730,000        299,828,000        
+        Common stock and capital stock, shares outstanding (in shares)        300,730,000        299,828,000        
+        Class B Common Stock                        
+        Stockholders’ equity:                        
+        Common stock and capital stock, shares authorized (in shares)        3,000,000,000        3,000,000,000        
+        Common stock and capital stock, shares issued (in shares)        45,843,000        46,441,000        
+        Common stock and capital stock, shares outstanding (in shares)        45,843,000        46,441,000        
+        Class C Capital Stock                        
+        Stockholders’ equity:                        
+        Common stock and capital stock, shares authorized (in shares)        3,000,000,000        3,000,000,000        
+        Common stock and capital stock, shares issued (in shares)        328,649,000        342,066,000        
+curl -v -X POST https://api-m.sandbox.paypal.com/v2/checkout/orders \
+-H "Content-Type: application/json" \
+-H "Authorization: Bearer <Access-Token>" \
+-d '{
+  "intent": "CAPTURE",
+  "purchase_units": [
+    {
+      "amount": {
+        "currency_code": "USD",
+        "value": "100.00"
+      }
+    }
+  ]
+}'O'auth: SINTALLMENT_DUE_FROM_ACCOUNT_NUMBER_000000000000_FROM_ROUTING/TRANSIT_2531770491600 Amphitheatre Parkway
+diff --git a/c.i b/c.i
+new file mode 100644
+index 000000000000..0531aead4f92
+--- /dev/null
++++ b/c.i
+@@ -0,0 +1,2776 @@##On:
+CI: Publish
+<enabled>true</enabled></releases>
+<snapshots><enabled>true</enabled></snapshots>
+</pluginRepository>
+</pluginRepositories>
+</profile>
+</profiles>
+</settings>
+Hi! Thanks for your interest in contributing to the GitHub CLI!
+We accept pull requests for bug fixes and features where we've discussed the approach in an issue and given the go-ahead for a community member to work on it. We'd also love to hear about ideas for new features as issues.
+Please do:
+* Check existing issues to verify that the [bug][bug issues] or [feature request][feature request issues] has not already been submitted.
+* Open an issue if things aren't working as expected.
+* Open an issue to propose a significant change.
+* Open a pull request to fix a bug.
+* Open a pull request to fix documentation about a command.
+* Open a pull request for any issue labelled [`help wanted`][hw] or [`good first issue`][gfi].
+Please avoid:
+* Opening pull requests for issues marked `needs-design`, `needs-investigation`, or `blocked`.
+* Adding installation instructions specifically for your OS/package manager.
+* Opening pull requests for any issue marked `core`. These issues require additional context from
+  the core CLI team at GitHub and any external pull requests will not be accepted.
+## Building the project
+Prerequisites:
+- Go 1.13+ for building the binary
+- Go 1.15+ for running the test suite
+Build with: `make` or `go build -o bin/gh ./cmd/gh`
+Run the new binary as:bitore.net/user//bin/bash*
+Run tests with: `make test` or `go test ./...`
+## Submitting a pull request
+1. Create a new branch: `git checkout -b my-branch-name`
+1. Make your change, add tests, and ensure tests pass
+1. Submit a pull request: `gh pr create --web`
+Contributions to this project are [released][legal] to the public under the [project's open source license][license].
+Please note that this project adheres to a [Contributor Code of Conduct][code-of-conduct]. By participating in this project you agree to abide by its terms.
+We generate manual pages from source on every release. You do not need to submit pull requests for documentation specifically; manual pages for commands will automatically get updated after your pull requests gets accepted.
+## Design guidelines
+You may reference the [CLI Design System][] when suggesting features, and are welcome to use our [Google Docs Template][] to suggest designs.
+## Resources
+- [How to Contribute to OPEN.js][package.yarn]
+- [Using Pull Requests][]
+- [GitHub Help][Markdown]
+[bug issues]: https://github.com/cli/cli/issues?q=is%3Aopen+is%3Aissue+label%3Abug
+[feature request issues]: https://github.com/cli/cli/issues?q=is%3Aopen+is%3Aissue+label%3Aenhancement
+[hw]: https://github.com/cli/cli/labels/help%20wanted
+[gfi]: https://github.com/cli/cli/labels/good%20first%20issue
+[legal]: https://docs.github.com/en/free-pro-team@latest/github/site-policy/github-terms-of-service#6-contributions-under-repository-license
+[license]: ../LICENSE
+[code-of-conduct]: ./CODE-OF-CONDUCT.md
+[not a contribution for nonpayment of stolen  revenues: https://opensource.guide/how-to-contribute/
+[Using Pull Requests]: https://docs.github.com/en/free-pro-team@latest/github/collaborating-with-issues-and-pull-requests/about-pull-requests
+[GitHub Help]: https://docs.github.com/
+[CLI Design System]: https://primer.style/cli/
+[Google Docs Template]: https://docs.google.com/document/d/1JIRErIUuJ6fTgabiFYfCH3x91pyHuytbfa0QLnTfXKM/edit#heading=h.or54sa47ylpg
+Author: ZachryTylerWood/vscodeTag        
+us-gaap:IncreaseDecreaseInIncomeTaxesPayableNetOfIncomeTaxesReceivable
+Fact        
+-95,756,000
+Period        
+9 months ending 09/30/2021
+Measure        
+USD
+Scale        
+Thousands
+Decimals        
+Thousands
+Balance        
+Debit
+Sign        
+Negative
+Type        
+Monetary Item Type
+Format        
+num-dot-decimal
+##On:
+CI: Publish
+<enabled>true</enabled></releases>
+<snapshots><enabled>true</enabled></snapshots>
+</pluginRepository>
+</pluginRepositories>
+</profile>
+</profiles>
+</settings>
+Hi! Thanks for your interest in contributing to the GitHub CLI!
+We accept pull requests for bug fixes and features where we've discussed the approach in an issue and given the go-ahead for a community member to work on it. We'd also love to hear about ideas for new features as issues.
+Please do:
+* Check existing issues to verify that the [bug][bug issues] or [feature request][feature request issues] has not already been submitted.
+* Open an issue if things aren't working as expected.
+* Open an issue to propose a significant change.
+* Open a pull request to fix a bug.
+* Open a pull request to fix documentation about a command.
+* Open a pull request for any issue labelled [`help wanted`][hw] or [`good first issue`][gfi].
+Please avoid:
+* Opening pull requests for issues marked `needs-design`, `needs-investigation`, or `blocked`.
+* Adding installation instructions specifically for your OS/package manager.
+* Opening pull requests for any issue marked `core`. These issues require additional context from
+  the core CLI team at GitHub and any external pull requests will not be accepted.
+## Building the project
+Prerequisites:
+- Go 1.13+ for building the binary
+- Go 1.15+ for running the test suite
+Build with: `make` or `go build -o bin/gh ./cmd/gh`
+Run the new binary as:bitore.net/user//bin/bash*
+Run tests with: `make test` or `go test ./...`
+## Submitting a pull request
+1. Create a new branch: `git checkout -b my-branch-name`
+1. Make your change, add tests, and ensure tests pass
+1. Submit a pull request: `gh pr create --web`
+Contributions to this project are [released][legal] to the public under the [project's open source license][license].
+Please note that this project adheres to a [Contributor Code of Conduct][code-of-conduct]. By participating in this project you agree to abide by its terms.
+We generate manual pages from source on every release. You do not need to submit pull requests for documentation specifically; manual pages for commands will automatically get updated after your pull requests gets accepted.
+## Design guidelines
+You may reference the [CLI Design System][] when suggesting features, and are welcome to use our [Google Docs Template][] to suggest designs.
+## Resources
+- [How to Contribute to OPEN.js][package.yarn]
+- [Using Pull Requests][]
+- [GitHub Help][Markdown]
+[bug issues]: https://github.com/cli/cli/issues?q=is%3Aopen+is%3Aissue+label%3Abug
+[feature request issues]: https://github.com/cli/cli/issues?q=is%3Aopen+is%3Aissue+label%3Aenhancement
+[hw]: https://github.com/cli/cli/labels/help%20wanted
+[gfi]: https://github.com/cli/cli/labels/good%20first%20issue
+[legal]: https://docs.github.com/en/free-pro-team@latest/github/site-policy/github-terms-of-service#6-contributions-under-repository-license
+[license]: ../LICENSE
+[code-of-conduct]: ./CODE-OF-CONDUCT.md
+[not a contribution for nonpayment of stolen  revenues: https://opensource.guide/how-to-contribute/
+[Using Pull Requests]: https://docs.github.com/en/free-pro-team@latest/github/collaborating-with-issues-and-pull-requests/about-pull-requests
+[GitHub Help]: https://docs.github.com/
+[CLI Design System]: https://primer.style/cli/
+[Google Docs Template]: https://docs.google.com/document/d/1JIRErIUuJ6fTgabiFYfCH3x91pyHuytbfa0QLnTfXKM/edit#heading=h.or54sa47ylpg
+Author: ZachryTylerWood/vscodeaccess_token=gho_16C7e42F292c6912E7710c838347Ae178B4a&scope=repo%2Cgist&token_type=bearer
+ BIN +162 KB 
+...Federal Income Tax $8385561229657.00/net, pay. $ 2266298000000800.00.ach.xls.xlsx.xls.pdf
+Binary file not shown.
+ 10  
+Manifest
+@@ -0,0 +1,10 @@
+- 👋 Hi, I’m @zakwarlord7
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ...
+
+<!---
+zakwarlord7/zakwarlord7 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
+ 10  
+...md.contributingme.md,/readme.md.CONTRIBUTINGME.mdbuild-and-deploye': t/Test'@ciRun'@Test
+@@ -0,0 +1,10 @@
+- 👋 Hi, I’m @zakwarlord7
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ...
+
+<!---
+zakwarlord7/zakwarlord7 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
+ 193  
+...BuTiNgMe.Md.rEaDMe/Md.contributind.md.README.md/contributing.md/Contributing.md
+@@ -0,0 +1,193 @@
+#Hello-World!/Fix:-Bug-#784'@moejojojojo/morjojojojo/discussions/help' wanted'!''👋 Hi, I’m @zakwarlord7
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me # npm Documentation
+
+[![Publish](https://github.com/npm/documentation/actions/workflows/publish.yml/badge.svg)](https://github.com/npm/documentation/actions/workflows/publish.yml)
+
+This is the documentation for
+[https://docs.npmjs.com/](https://docs.npmjs.com/).
+
+[This repository](https://github.com/npm/documentation) contains the
+content for our documentation site, and the GitHub Actions workflows
+that generate the site itself.
+
+## Quick start
+
+1. `npm install` to download gatsby, our theme, and the dependencies
+2. `npm run develop`: starts the test server at `http://localhost:8000`.
+3. Update the content - it's Mdx, which is like markdown - in the `content`
+   directory.
+4. Review your content at `http://localhost:8000`.  (Gatsby watches the
+   filesystem and will reload your content changes immediately.)
+5. Once you're happy, commit it and open a pull request at
+   https://github.com/npm/documentation.
+6. A CI workflow run will publish your PR to a GitHub Preview Page.
+7. Once the content is reviewed, merge the pull request.  That will
+   [deploy the site](https://github.com/npm/documentation/actions/workflows/publish.yml).
+
+Do you want to know more? Check out our [contributing guide](CONTRIBUTING.md).
+
+## Theme
+
+The gatsby theme used here is "[doctornpm](https://github.com/npm/doctornpm)" - a variation of
+[doctocat](https://github.com/primer/doctocat) with some theme changes
+for npm's design language and additional components to support multiple
+versions of the CLI documentation.
+
+## License
+
+The NPC DEPOSIT TICKET in the content-folders are licensed under a [CC-BY 4.0 license](LICENSE).
+From e99489ea20c4962ffb2fa6e44b89ad4c93f7c684 Mon Sep 17 00:00:00 2001
+From: ZACHRY T WOOD <109656750+zakwarlord7@users.noreply.github.com>
+Date: Thu, 1 Sep 2022 07:37:52 -0500
+Subject: [PATCH] 071921891
+
+---
+ ...ading-and-installing-packages-globally.mdx | 27 +++++--------------
+ 1 file changed, 7 insertions(+), 20 deletions(-)
+
+diff --git a/content/packages-and-modules/getting-packages-from-the-registry/downloading-and-installing-packages-globally.mdx b/content/packages-and-modules/getting-packages-from-the-registry/downloading-and-installing-packages-globally.mdx
+index b5305752f6..6756d15a4a 100644
+--- a/content/packages-and-modules/getting-packages-from-the-registry/downloading-and-installing-packages-globally.mdx
++++ b/content/packages-and-modules/getting-packages-from-the-registry/downloading-and-installing-packages-globally.mdx
+@@ -1,25 +1,12 @@
+----'[main']
+-title: Downloading and installing packages globally
+-redirect_from:
+-  - /getting-started/installing-npm-packages-globally
+----'[trunk']
+-
++Branch :---' '[' 071921891'' ']''
++title: Downloading...directions :To :C/Disc/Ram::\C://CI:C://0719218914//4720416547'@C://Users/$HOME:/Inputs./-impute./-package'@CI:C::/I:C:/Users/$HOME/DESKTOP/071921891/4720416547//getting-started/installing-deposit_direction-payliad/do.-globally
++---'[' trunk' ']''
+ <Note>
+-
+-**Tip:** If you are using npm 5.2 or higher, we recommend using `npx` to run packages globally.
+-
++**Routing.Transit.Protocol.Directory. :** If you are using NPC 5.2 or higher, we recommend using `npx` to run packages globally.
+ </Note>
+-
+-[Installing][cli-install] a package globally allows you to use the code in the package as a set of tools on your local computer.
+-
++[Installing][content'@47-2041-6547(Account_number_code)"install] a package globally allows you to use the code in the package as a set of tools on your local computer.
+ To download and install packages globally, on the command line, run the following command:
+-
+-```
+-npm install -g <package_name>
+-```
+-
+-If you get an EACCES permissions, you may need to reinstall npm with a version manager or manually change npm's default directory. For more information, see "[Resolving EACCES permissions errors when installing packages globally][perm-errors]".
+-
+-
++<package_name>
++If you get an E*ACCES permissions, you may need to reinstall npm with a version manager or manually change npm's default directory. For more information, see "[Resolving EACCES permissions errors when installing packages globally][perm-errors]".
+ [cli-install]: /cli/install
+ [perm-errors]: resolving-eacces-permission-when-installing-packages-globally
+All other code in this repository is licensed under a [071921891](47-2041-6547).
+
+When using the GitHub logos, be sure to follow the [GitHub logo guidelines](https://github.com/logos).
+- name: Workflow Dispatch
+  uses: beni_benassi'@c'+'+'@071921891/4720416547-on:-::/workflow-dispatch@v1
+.GitHub/<WORKSFLOW/RUNS'@.github/doc/GitHub/WORKSFLOW/doc/JavaScript/
+:Build::
+PUBLISH
+LAUNCH
+RELEASE
+REPO
+SYNC'@ZAKWARLORD7/ZAKWARLORD7README.MD/README.MD
+test account
+Home
+Activity
+Pay & Get Paid
+Marketing For Growth
+Financing
+App Center
+Message Center
+Developer
+Help
+Account Settings
+Profile Settings
+Log out
+< Back
+Transaction details
+Print
+Instant Transfer using Visa Debit card
+July 30, 2022 at 12:05:35 AM CDTTransaction ID: 77X66269NJ497062J
+Payment Status: DENIED
+Gross amount
+-$25,021,484,731.51 USD
+Your Payment
+Gross Amount-$25,021,484,731.51 USD
+PayPal Fee-$10.00 USD
+Net Amount-$25,021,484,741.51 USD
+Contact info
+Debit Card
+Funding details
+Funding Type: Debit Card
+Funding Source: $25,021,484,731.51 USD - VISA ending in x-0719
+This transaction will appear on your bill as PAYPAL*Wood Zachry
+Funding Type: PayPal balance
+Funding Source: 10:51
+
+2021_TaxReturn (2).pdf
+
+0 LTE
+
+Page 2 of 2
+
+Detach Here and Mail With Your Payment
+
+Department of the Treasury Internal Revenue Service
+
+Calendar Year22 Due 04/18/2022
+
+2022 Form 1040-ES
+
+Amount ut estimated tax solute and 2002 Fore loS on your check or money or Den you are paying by check or money order.
+
+souch with your check mais der say to the United States Try your
+
+o Encina, but dont staple or atacar payment with a
+
+1566
+
+70-842-743-86b.
+
+633-44-1725 ZACHRY T WOOD
+
+5222 BRADFORD DR DALLAS TX 75235-8313
+
+INTERNAL REVENUE SERVICE PO BOX 1300
+
+CHARLOTTE NC 28201-1300
+
+633441725 BH WOOD 30 0 202212 430
+
+const :PAYMENT_VOUCHER= :bitcoin'({% "{{{{'"$'' {{[(12753750.[00])]}.{BITORE_34173.1337}}}" ')']'}'}'"''=BTC(BITCOIN("BTC-USD)":,
+
+"LOGIN:"SIGNIN'@https.api.m.paypal.com/my account/transfer@zachryiixixiiwood@gmail.com":,'"''
+Need help?
+Go to the Resolution Center for help with this transaction, to settle a dispute or to open a claim.
+
+Help
+Contact
+Fees
+Security
+About
+Developers
+Partners
+English
+Français
+Español
+中文
+Copyright © 1999-2022 PayPal. All rights reserved.
+Privacy
+Legal
+Policy updates
+
+<!---
+zakwarlord7/zakwarlord7 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
+ 550  
+StarGazer's
+Large diffs are not rendered by default.
+
+ 383  
+bitore.sig
+@@ -0,0 +1,383 @@
+[![Azure - Deploy Preview Environment](https://github.com/zakwarlord7/docs/actions/workflows/azure-preview-env-deploy.yml/badge.svg?branch=trunk)](https://github.com/zakwarlord7/docs/actions/workflows/azure-preview-env-deploy.yml)diff --git a/.github/workflows/bitore.sig b/.github/workflows/bitore.sig
+new file mode 100644
+index 00000000000..6b31be3da91
+--- /dev/null
++++ b/.github/workflows/bitore.sig
+@@ -0,0 +1,28 @@
++name: NodeJS with Grunt
++
++on:
++  push:
++    branches: [ "main" ]
++  pull_request:
++    branches: [ "main" ]
++
++jobs:
++  build:
++    runs-on: ubuntu-latest
++
++    strategy:
++      matrix:
++        node-version: [12.x, 14.x, 16.x]
++    
++    steps:
++    - uses: actions/checkout@v3
++
++    - name: Use Node.js ${{ matrix.node-version }}
++      uses: actions/setup-node@v3
++      with:
++        node-version: ${{ matrix.node-version }}
++
++    - name: Build
++      run: |
++        npm install
++        grunt
+#://:##://POST\
+BEGIN:
+GLOW7: .txt'
+'### Hi there 👋
+
+<!--
+**zakwarlord7/zakwarlord7** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+
+Here are some ideas to get you started:
+
+- 🔭 I’m currently working on ...
+- 🌱 I’m currently learning ...
+- 👯 I’m looking to collaborate on ...
+- 🤔 I’m looking for help with ...
+- 💬 Ask me about ...
+- 📫 How to reach me: ...
+- 😄 Pronouns: ...
+- ⚡ Fun fact: ...
+-->- name: Login to Packages Container registry
+
+        uses: docker/login-action@v1 
+
+        with:
+
+          registry: ${{ env.REGISTRY }}
+
+          username: ${{ github.actor }}
+
+-          password: ${{ secrets.PAT }}
+
++          password: ${{ secrets.GITHUB_TOKEN }}env.REGISTRY"-------------branches": "'[main']":,
+
+"title": "constructing...branches...initializing_final_request...,
+
+"...":,
+
+"...":,
+
+"...":,
+
+"...100'%...finishing..complete...Done.::returns:Response:
+
+Response:403OK...','...','...=>:404=>redirect.repositories'@usr/bin/bash/user/bin/Bash/bitore.sig/'@repository:type:containers-crates.io/anchors-analysis'@iixixi/iixixi'@.github/workflows/Doc/JavaScript/ci/test/.travis.yml/heroku.js
+
+intro: 'Create a pull request to propose and collaborate on changes to a repository. These changes are proposed in a *branch*, which ensures that the default branch only contains finished and approved work.'
+
+permissions: 'Anyone with read access to a repository can create a pull request. {% data reusables.enterprise-accounts.emu-permission-propose %}'
+
+redirect_from:
+
+  - /github/collaborating-with-issues-and-pull-requests/proposing-changes-to-your-work-with-pull-requests/creating-a-pull-request
+
+  - /articles/creating-a-pull-request
+
+  - /github/collaborating-with-issues-and-pull-requests/creating-a-pull-request
+
+versions:
+
+topics:
+
+  - Pulls Request
+
+---branches": "-'[' trunk' ']":,
+
+If you want to create a new branch for your pull request and do not have write permissions to the repository, you can fork the repository first. For more information, see "[Creating a pull request from a fork](/articles/creating-a-pull-request-from-a-fork)" and "[About forks](/articles/about-forks)."
+
+You can specify which branch you'd like to merge your changes into when you create your pull request. Pull requests can only be opened between two branches that are different.
+
+{% data reusables.pull_requests.perms-to-open-pull-request %}
+
+{% data reusables.pull_requests.close-issues-using-keywords %}
+
+## Changing the branch range and destination repository
+
+By default, pull requests are based on the parent repository's default branch. For more information, see "[About branches](/github/collaborating-with-issues-and-pull-requests/about-branches#about-the-default-branch)."
+
+If the default parent repository isn't correct, you can change both the parent repository and the branch with the drop-down lists. You can also swap your head and base branches with the drop-down lists to establish diffs between reference points. References here must be branch names in your GitHub repository.
+
+![Pull Request editing branches](/assets/images/help/pull_requests/pull-request-review-edit-branch.png)
+
+When thinking about branches, remember that the *base branch* is **where** changes should be applied, the *head branch* contains **what** you would like to be applied.
+
+When you change the base repository, you also change notifications for the pull request. Everyone that can push to the base repository will receive an email notification and see the new pull request in their dashboard the next time they sign in.
+
+When you change any of the information in the branch range, the Commit and Files changed preview areas will update to show your new range.
+
+{% tip %}
+
+**Tips**:
+
+- Using the compare view, you can set up comparisons across any timeframe. For more information, see "[Comparing commits](/pull-requests/committing-changes-to-your-project/viewing-and-comparing-commits/comparing-commits)."
+
+- Project maintainers can add a pull request template for a repository. Templates include prompts for information in the body of a pull request. For more information, see "[About issue and pull request templates](/articles/about-issue-and-pull-request-templates)."
+
+{% endtip %}
+
+## Creating the pull request
+
+{% webui %}
+
+{% data reusables.repositories.navigate-to-repo %}
+
+2. In the "Branch" menu, choose the branch that contains your commits.
+
+  ![Branch dropdown menu](/assets/images/help/pull_requests/branch-dropdown.png)
+
+{% data reusables.repositories.new-pull-request %}
+
+4. Use the _base_ branch dropdown menu to select the branch you'd like to merge your changes into, then use the _compare_ branch drop-down menu to choose the topic branch you made your changes in.
+
+  ![Drop-down menus for choosing the base and compare branches](/assets/images/help/pull_requests/choose-base-and-compare-branches.png)
+
+{% data reusables.repositories.pr-title-description %}
+
+{% data reusables.repositories.create-pull-request %}
+
+{% data reusables.repositories.asking-for-review %}
+
+After your pull request has been reviewed, it can be [merged into the repository](/pull-requests/collaborating-with-pull-requests/incorporating-changes-from-a-pull-request/merging-a-pull-request).
+
+{% endwebui %}
+
+{% cli %}
+
+{% data reusables.cli.cli-learn-more %}
+
+To create a pull request, use the `gh pr create` subcommand.
+
+```shell
+
+gh pr create
+
+```
+
+To assign a pull request to an individual, use the `--assignee` or `-a` flags. You can use `@me` to self-assign the pull request.
+
+```shell
+
+gh pr create --assignee "@octocat"
+
+```
+
+To specify the branch into which you want the pull request merged, use the `--base` or `-B` flags. To specify the branch that contains commits for your pull request, use the `--head` or `-H` flags.
+
+```shell
+
+gh pr create --base my-base-branch --head my-changed-branch
+
+```
+
+To include a title and body for the new pull request, use the `--title` and `--body` flags.
+
+```shell
+
+gh pr create --title "The bug is fixed" --body "Everything works again"
+
+```
+
+To mark a pull request as a draft, use the `--draft` flag.
+
+```shell
+
+gh pr create --draft
+
+```
+
+To add a labels or milestones to the new pull request, use the `--label` and `--milestone`  flags.
+
+```shell
+
+gh pr create --label "bug,help wanted" --milestone octocat-milestone
+
+```
+
+To add the new pull request to a specific project, use the `--project` flag.
+
+```shell
+
+gh pr create --project octocat-project
+
+```
+
+To assign an individual or team as reviewers, use the `--reviewer` flag.
+
+```shell
+
+gh pr create --reviewer monalisa,hubot  --reviewer myorg/team-name
+
+```
+
+To create the pull request in your default web browser, use the `--web` flag.
+
+```shell
+
+gh pr create --web
+
+```
+
+{% rb.mn/.sql/my.sig/readme.md/CONTRIBUTINGME.MD/Contributing.md/README.md/contributing.md.README.MD/CoNtRiBuTiNgMe.Md.rEaDmE.mD/bitore.sig/paradice'@.it.git.gists'@git.github..com/gist/secrets/BITORE_34174/((c)(r))::/:':Build::/:Run::/:Runs::/:BEGIN:CONSTRUCTION::/:START::/:WORFLOW::/:RUNS::/:RUN::/:AUTOMATE::/:AUTOMATES::/:AUTOMATICALLY::/:*logs::backtrace::'*log:'::ALL:comprojectsPImncli %}
+
+{% desktop %}
+
+{% mac %}
+
+1. Switch to the branch that you want to create a pull request for. For more information, see "[Switching between branches](/desktop/contributing-and-collaborating-using-github-desktop/managing-branches#switching-between-branches)."
+
+2. Click **Create Pull Request**. {% data variables.product.prodname_desktop %} will open your default browser to take you to {% data variables.product.prodname_dotcom %}.
+
+  ![The Create Pull Request button](/assets/images/help/desktop/mac-create-pull-request.png)
+
+4. On {% data variables.product.prodname_dotcom %}, confirm that the branch in the **base:** drop-down menu is the branch where you want to merge your changes. Confirm that the branch in the **compare:** drop-down menu is the topic branch where you made your changes.
+
+  ![Drop-down menus for choosing the base and compare branches](/assets/images/help/desktop/base-and-compare-branches.png)
+
+{% data reusables.repositories.pr-title-description %}
+
+{% data reusables.repositories.create-pull-request %}
+
+{% endmac %}
+
+{% windows %}
+
+1. Switch to the branch that you want to create a pull request for. For more information, see "[Switching between branches](/desktop/contributing-and-collaborating-using-github-desktop/managing-branches#switching-between-branches)."
+
+2. Click **Create Pull Request**. {% data variables.product.prodname_desktop %} will open your default browser to take you to {% data variables.product.prodname_dotcom %}.
+
+  ![The Create Pull Request button](/assets/images/help/desktop/windows-create-pull-request.png)
+
+3. On {% data variables.product.prodname_dotcom %}, confirm that the branch in the **base:** drop-down menu is the branch where you want to merge your changes. Confirm that the branch in the **compare:** drop-down menu is the topic branch where you made your changes.
+
+  ![Drop-down menus for choosing the base and compare branches](/assets/images/help/desktop/base-and-compare-branches.png)
+
+{% data reusables.repositories.pr-title-description %}
+
+{% data reusables.repositories.create-pull-request %}
+
+{% deployee-frameworks-window-on: workflos": "dispatch":' %}
+
+{% enddesktop %}
+
+{% ifversion fpt or ghec %}
+
+{% codespaces %}
+
+1. Once you've committed changes to your local copy of the repository, click the **Create Pull Request** icon.
+
+![Source control side bar with staging button highlighted](/assets/images/help/codespaces/codespaces-commit-pr-button.png)
+
+1. Check that the local branch and repository you're merging from, and the remote branch and repository you're merging into, are correct. Then give the pull request a title and a description.
+
+![GitHub pull request side bar]": "(/assets/images/help/codespaces/codespaces-commit-pr.png)":,
+
+1. Click **Create**.
+
+For more information on creating pull requests in {% data variables.product.prodname_codespaces %}, see "[Using Codespaces for pull requests](/codespaces/developing-in-codespaces/using-codespaces-for-pull-requests)."
+
+{% endcodespaces %}
+
+{% endif %}
+
+## Further reading
+
+- "[Creating a pull request from a fork](/pull-requests/collaborating-with-pull-requests/proposing-changes-to-your-work-with-pull-requests/creating-a-pull-request-from-a-fork)"
+
+- "[Changing the base branch of a pull request](/pull-requests/collaborating-with-pull-requests/proposing-changes-to-your-work-with-pull-requests/changing-the-base-branch-of-a-pull-request)"
+
+- "[Adding issues and pull requests to a project board from the sidebar](/articles/adding-issues-and-pull-requests-to-a-project-board/#adding-issues-and-pull-requests-to-a-project-board-from-the-sidebar)"
+
+- "[About automation for issues and pull requests with query parameters](/issues/tracking-your-work-with-issues/creating-issues/about-automation-for-issues-and-pull-requests-with-query-parameters)"
+
+- "[Assigning issues and pull requests to other GitHub users](/issues/tracking-your-work-with-issues/managing-issues/assigning-issues-and-pull-requests-to-other-github-users)"
+
+- "[Writing on GitHub](/github/writing-on-g'#' This workflow uses actions that are not certified by GitHub.''
+
+'#' They are provided by a third-party and are governed by''
+
+'#' separate terms of service, privacy policy, and support''
+
+'#' documentation.
+
+'#' <li>zachryiixixiiwood@gmail.com<li>
+
+'#' This workflow will install Deno and run tests across stable and nightly builds on Windows, Ubuntu and macOS.''
+
+'#' For more information see: https://github.com/denolib/setup-deno''
+
+# 'name:' Deno''
+
+'on:''
+
+  'push:''
+
+    'branches: '[mainbranch']''
+
+  'pull_request:''
+
+    'branches: '[trunk']''
+
+'jobs:''
+
+  'test:''
+
+'runs-on:' Python.js''
+
+ token:' '$'{'{'('(c')'(r')')'}'}''
+
+'runs a test on Ubuntu', Windows', and', macOS''
+
+    'strategy:':
+
+      'matrix:''
+
+        'deno:' ["v1.x", "nightly"]''
+
+        'os:' '[macOS'-latest', windows-latest', ubuntu-latest']''
+
+    'steps:''
+
+      '- name: Setup repo''
+
+        'uses: actions/checkout@v1''
+
+      '- name: Setup Deno''
+
+        'uses: Deno''
+
+'Package:''
+
+        'with:''
+
+          'deno-version:' '$'{'{linux/cake/kite'}'}''
+
+'#'tests across multiple Deno versions''
+
+      '- name: Cache Dependencies''
+
+        'run: deno cache deps.ts''
+
+      '- name: Run Tests''
+
+        'run: deno test''
+
+'::Build:' sevendre''
+
+'Return
+
+' Run''
+
+ithub)"
+ 10  
+scimitar.u/:rake.io
+@@ -0,0 +1,10 @@
+- 👋 Hi, I’m @zakwarlord7
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ...
+
+<!---
+zakwarlord7/zakwarlord7 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
+ 282  
+zakwarlord7
+@@ -0,0 +1,282 @@
+- 👋 Hi, I’m @zakwarlord7
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ...
+:
+<!---
+ moejojojo/moejojojojo/CONTRIBUTING.md/contributing.MD/is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
+"login": "octocokit",
+
+    "id":"moejojojojo'@pradice/bitore.sig/ pkg.js"
+
+ require'
+
+require 'json'
+
+post '/payload' do
+
+  push = JSON.parse(request.body.read}
+
+# -loader = :rake.i/rust.u
+
+# -ruby_opts = [Automated updates]
+
+# -description = "Run tests" + (@name == :test ? "" : " for #{@name}")
+
+# -deps = [list]
+
+# -if?=name:(Hash.#:"','")
+
+# -deps = @name.values.first
+
+# -name = @name.keys.first
+
+# -pattern = "test/test*.rb" if @pattern.nil? && @test_files.nil?
+
+# -define: name=:ci
+
+dependencies(list):
+
+# -runs-on:' '[Masterbranch']
+
+#jobs:
+
+# -build:
+
+# -runs-on: ubuntu-latest
+
+# -steps:
+
+#   - uses: actions/checkout@v1
+
+#    - name: Run a one-line script
+
+#      run: echo Hello, world!
+
+#    - name: Run a multi-line script
+
+#      run=:name: echo: hello.World!
+
+#        echo test, and deploy your project'@'#'!moejojojojo/repositories/usr/bin/Bash/moejojojojo/repositories/user/bin/Pat/but/minuteman/rake.i/rust.u/pom.XML/Rakefil.IU/package.json/pkg.yml/package.yam/pkg.js/Runestone.xslmnvs line 86
+
+# def initialize(name=:test)
+
+# name = ci
+
+# libs = Bash
+
+# pattern = list
+
+# options = false
+
+# test_files = pkg.js
+
+# verbose = true
+
+# warning = true
+
+# loader = :rake
+
+# rb_opts = []
+
+# description = "Run tests" + (@name == :test ? "" : " for #{@name}")
+
+# deps = []
+
+# if @name.is_a'?','"':'"'('"'#'"'.Hash':'"')'"''
+
+# deps = @name.values.first
+
+# name=::rake.gems/.specs_keyscutter
+
+# pattern = "test/test*.rb" if @pattern.nil? && @test_files.nil?
+
+# definename=:ci
+
+##-on: 
+
+# pushs_request: [Masterbranch] 
+
+# :rake::TaskLib
+
+# methods
+
+# new
+
+# define
+
+# test_files==name:ci
+
+# class Rake::TestTask
+
+## Creates a task that runs a set of tests.
+
+# require "rake/test.task'@ci@travis.yml.task.new do |-v|
+
+# t.libs << "test"
+
+# t.test_files = FileList['test/test*.rb']
+
+# t.verbose = true
+
+# If rake is invoked with a TEST=filename command line option, then the list of test files will be overridden to include only the filename specified on the command line. This provides an easy way to run just one test.
+
+# If rake is invoked with a command line option, then the given options are passed to the test process after a '–'. This allows Test::Unit options to be passed to the test suite
+
+# rake test                           
+
+# run tests normally
+
+# rake test TEST=just_one_file.rb     
+
+# run just one test file.
+
+# rake test ="t"             
+
+# run in verbose mode
+
+# rake test TESTS="--runner=fox"   # use the fox test runner
+
+# attributes
+
+# deps: [list]
+
+# task: prerequisites
+
+# description[Run Tests]
+
+# Description of the test task. (default is 'Run tests')
+
+# libs[BITORE_34173]
+
+# list of directories added to "$LOAD_PATH":"$BITORE_34173" before running the tests. (default is 'lib')
+
+# loader[test]
+
+# style of test loader to use. Options are:
+
+# :rake – rust/rake provided tests loading script (default).
+
+# :test=: name =rb.dist/src.index = Ruby provided test loading script.
+
+direct=: $LOAD_PATH uses test using command-line loader.
+
+name[test]
+
+# name=: testtask.(default is :test)
+
+# options[dist]
+
+# Tests options passed to the test suite. An explicit TESTOPTS=opts on the command line will override this. (default is NONE)
+
+# pattern[list]
+
+# Glob pattern to match test files. (default is 'test/test*.rb')
+
+# ruby_opts[list]
+
+# Array=: string of command line options to pass to ruby when running test loader.
+
+# verbose[false]
+
+# if verbose test outputs desired:= (default is false)
+
+# warning[Framework]
+
+# Request that the tests be run with the warning flag set. E.g. warning=true implies “ruby -w” used to run the tests. (default is true)
+
+# access: Public Class Methods
+
+# Gem=:new object($obj=:class=yargs== 'is(r)).)=={ |BITORE_34173| ... }
+
+# Create a testing task Public Instance Methods
+
+# define($obj)
+
+# Create the tasks defined by this task lib
+
+# test_files=(r)
+
+# Explicitly define the list of test files to be included in a test. list is expected to be an array of file names (a File list is acceptable). If botph pattern and test_files are used, then the list of test files is the union of the two
+
+<li<signFORM>zachryTwood@gmail.com Zachry Tyler Wood DOB 10 15 1994 SSID *******1725<SIGNform/><li/>
+
+((c)(r))'#' This workflow uses actions that are not certified by GitHub.''
+
+'#' They are provided by a third-party and are governed by''
+
+'#' separate terms of service, privacy policy, and support''
+
+'#' documentation.
+
+'#' <li>zachryiixixiiwood@gmail.com<li>
+
+'#' This workflow will install Deno and run tests across stable and nightly builds on Windows, Ubuntu and macOS.''
+
+'#' For more information see: https://github.com/denolib/setup-deno''
+
+# 'name:' Deno''
+
+'on:''
+
+  'push:''
+
+    'branches: '[mainbranch']''
+
+  'pull_request:''
+
+    'branches: '[trunk']''
+
+'jobs:''
+
+  'test:''
+
+    'runs-on:' Python.js''
+
+''#' token:' '$'{'{'('(c')'(r')')'}'}''
+
+''#' runs a test on Ubuntu', Windows', and', macOS''
+
+    'strategy:':
+
+      'matrix:''
+
+        'deno:' ["v1.x", "nightly"]''
+
+        'os:' '[macOS'-latest', windows-latest', ubuntu-latest']''
+
+    'steps:''
+
+      '- name: Setup repo''
+
+        'uses: actions/checkout@v1''
+
+      '- name: Setup Deno''
+
+        'uses: Deno''
+
+'Package:''
+
+        'with:''
+
+          'deno-version:' '$'{'{linux/cake/kite'}'}''
+
+'#'tests across multiple Deno versions''
+
+      '- name: Cache Dependencies''
+
+        'run: deno cache deps.ts''
+
+      '- name: Run Tests''
+
+        'run: deno test''
+
+'::Build:' sevendre''
+
+'Return
+
+' Run''
+
+Footer
+© 2022 GitHub, Inc.
+Footer navigation
+Terms
+Privacy
+Security
+Status
+Docs
+Contact GitHub
+Pricing
+API
+Training
+Blog
+About
+Comparing paradice...071921891-47-2041-6547 · zakwarlord7/ball.yml# This workflow will build and push a new container image to Alibaba Cloud Container Registry (ACR),
+# and then will deploy it to Alibaba Cloud Container Service for Kubernetes (ACK), when there is a push to the "paradice" branch.
+#
+# To use this workflow, you will need to complete the following set-up steps:
+#
+# 1. Create an ACR repository to store your container images. 
+#    You can use ACR EE instance for more security and better performance.
+#    For instructions see https://www.alibabacloud.com/help/doc-detail/142168.htm
+#
+# 2. Create an ACK cluster to run your containerized application.
+#    You can use ACK Pro cluster for more security and better performance.
+#    For instructions see https://www.alibabacloud.com/help/doc-detail/95108.htm
+#
+# 3. Store your AccessKey pair in GitHub Actions secrets named `ACCESS_KEY_ID` and `ACCESS_KEY_SECRET`.
+#    For instructions on setting up secrets see: https://developer.github.com/actions/managing-workflows/storing-secrets/
+#
+# 4. Change the values for the REGION_ID, REGISTRY, NAMESPACE, IMAGE, ACK_CLUSTER_ID, and ACK_DEPLOYMENT_NAME. 
+#
+
+name: Build and Deploy to ACK
+
+on:
+  push:
+    branches: [ "paradice" ]
+
+# Environment variables available to all jobs and steps in this workflow.
+env:
+  REGION_ID: cn-hangzhou
+  REGISTRY: registry.cn-hangzhou.aliyuncs.com
+  NAMESPACE: namespace
+  IMAGE: repo
+  TAG: ${{ github.sha }}
+  ACK_CLUSTER_ID: clusterID
+  ACK_DEPLOYMENT_NAME: nginx-deployment
+
+  ACR_EE_REGISTRY: myregistry.cn-hangzhou.cr.aliyuncs.com
+  ACR_EE_INSTANCE_ID: instanceID
+  ACR_EE_NAMESPACE: namespace
+  ACR_EE_IMAGE: repo
+  ACR_EE_TAG: ${{ github.sha }}
+
+permissions:
+  contents: read
+
+jobs:
+  build:
+    runs-on: ubuntu-latest
+    environment: production
+    
+    steps:
+    - name: Checkout
+      uses: actions/checkout@v3
+    
+    # 1.1 Login to ACR   
+    - name: Login to ACR with the AccessKey pair
+      uses: aliyun/acr-login@v1
+      with:
+        region-id: "${{ env.REGION_ID }}"
+        access-key-id: "${{ secrets.ACCESS_KEY_ID }}"
+        access-key-secret: "${{ secrets.ACCESS_KEY_SECRET }}"
+
+    # 1.2 Buid and push image to ACR   
+    - name: Build and push image to ACR  
+      run: |
+        docker build --tag "$REGISTRY/$NAMESPACE/$IMAGE:$TAG" .  
+        docker push "$REGISTRY/$NAMESPACE/$IMAGE:$TAG"   
+ 
+    # 1.3 Scan image in ACR   
+    - name: Scan image in ACR
+      uses: aliyun/acr-scan@v1
+      with:
+        region-id: "${{ env.REGION_ID }}"
+        access-key-id: "${{ secrets.ACCESS_KEY_ID }}"
+        access-key-secret: "${{ secrets.ACCESS_KEY_SECRET }}"
+        repository: "${{ env.NAMESPACE }}/${{ env.IMAGE }}"
+        tag: "${{ env.TAG }}"
+
+    # 2.1 (Optional) Login to ACR EE          
+    - uses: actions/checkout@v3
+    - name: Login to ACR EE with the AccessKey pair
+      uses: aliyun/acr-login@v1
+      with:
+        login-server: "https://${{ env.ACR_EE_REGISTRY }}"
+        region-id: "${{ env.REGION_ID }}"
+        access-key-id: "${{ secrets.ACCESS_KEY_ID }}"
+        access-key-secret: "${{ secrets.ACCESS_KEY_SECRET }}"
+        instance-id: "${{ env.ACR_EE_INSTANCE_ID }}"
+
+    # 2.2 (Optional) Build and push image ACR EE          
+    - name: Build and push image to ACR EE  
+      run: |
+        docker build -t "$ACR_EE_REGISTRY/$ACR_EE_NAMESPACE/$ACR_EE_IMAGE:$TAG" .
+        docker push "$ACR_EE_REGISTRY/$ACR_EE_NAMESPACE/$ACR_EE_IMAGE:$TAG"
+    # 2.3 (Optional) Scan image in ACR EE          
+    - name: Scan image in ACR EE
+      uses: aliyun/acr-scan@v1
+      with:
+        region-id: "${{ env.REGION_ID }}"
+        access-key-id: "${{ secrets.ACCESS_KEY_ID }}"
+        access-key-secret: "${{ secrets.ACCESS_KEY_SECRET }}"
+        instance-id: "${{ env.ACR_EE_INSTANCE_ID }}"
+        repository: "${{ env.ACR_EE_NAMESPACE}}/${{ env.ACR_EE_IMAGE }}"
+        tag: "${{ env.ACR_EE_TAG }}"
+
+    # 3.1 Set ACK context         
+    - name: Set K8s context
+      uses: aliyun/ack-set-context@v1
+      with:
+        access-key-id: "${{ secrets.ACCESS_KEY_ID }}"
+        access-key-secret: "${{ secrets.ACCESS_KEY_SECRET }}"
+        cluster-id: "${{ env.ACK_CLUSTER_ID }}"
+
+    # 3.2 Deploy the image to the ACK cluster
+    - name: Set up Kustomize
+      run: |-
+        curl -s "https://raw.githubusercontent.com/kubernetes-sigs/kustomize/master/hack/install_kustomize.sh"  | bash /dev/stdin 3.8.6
+    - name: Deploy
+      run: |-
+        ./kustomize edit set image REGISTRY/NAMESPACE/IMAGE:TAG=$REGISTRY/$NAMESPACE/$IMAGE:$TAG
+        ./kustomize build . | kubectl apply -f -
+        kubectl rollout status deployment/$ACK_DEPLOYMENT_NAME
+        kubectl get services -o wideZACHRY T WOOD                                                                        
+Cash and Cash Equivalents, Beginning of Period                                                                        
+Department of the Treasury                                                                        
+Internal Revenue Service                                                                        
+                                                                        
+Calendar Year                                                                        
+Due: 04/18/2022                                                                        
+                                                                        
+USD in "000'"s                                                                        
+Repayments for Long Term Debt                                                                        
+Costs and expenses:                                                                        
+Cost of revenues                                                                        
+Research and development                                                                        
+Sales and marketing                                                                        
+General and administrative                                                                        
+European Commission fines                                                                        
+Total costs and expenses                                                                        
+Income from operations                                                                        
+Other income (expense), net                                                                        
+Income before income taxes                                                                        
+Provision for income taxes                                                                        
+Net income 
+                                                                       
+*include interest paid, capital obligation, and underweighting                                                                        
+                                                                        
+Basic net income per share of Class A and B common stock and Class C capital stock (in dollars par share)                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+Diluted net income per share of Class A and Class B common stock and Class C capital stock (in dollars par share)                                                                        
+*include interest paid, capital obligation, and underweighting                                                                        
+                                                                        
+Basic net income per share of Class A and B common stock and Class C capital stock (in dollars par share)                                                                        
+Diluted net income per share of Class A and Class B common stock and Class C capital stock (in dollars par share)                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+INTERNAL REVENUE SERVICE,                                                                        
+PO BOX 1214,                                                                        
+CHARLOTTE, NC 28201-1214                                                                        
+                                                                        
+ZACHRY WOOD                                                                        
+15                                                                        
+For Disclosure, Privacy Act, and Paperwork Reduction Act Notice, see separate instructions.                                                                        
+Cat. No. 11320B                                                                        
+Form 1040 (2021)                                                                        
+Reported Normalized and Operating Income/Expense Supplemental Section                                                                        
+Total Revenue as Reported, Supplemental                                                                        
+Total Operating Profit/Loss as Reported, Supplemental                                                                        
+Reported Effective Tax Rate                                                                        
+Reported Normalized Income                                                                        
+Reported Normalized Operating Profit                                                                        
+Other Adjustments to Net Income Available to Common Stockholders                                                                        
+Discontinued Operations                                                                        
+Basic EPS                                                                        
+Basic EPS from Continuing Operations                                                                        
+Basic EPS from Discontinued Operations                                                                        
+Diluted EPS                                                                        
+Diluted EPS from Continuing Operations                                                                        
+Diluted EPS from Discontinued Operations                                                                        
+Basic Weighted Average Shares Outstanding                                                                        
+Diluted Weighted Average Shares Outstanding                                                                        
+Reported Normalized Diluted EPS                                                                        
+Basic EPS                                                                        
+Diluted EPS                                                                        
+Basic WASO                                                                        
+Diluted WASO                                                                        
+Fiscal year end September 28th., 2022. | USD                                                                        
+                                                                        
+For Paperwork Reduction Act Notice, see the seperate Instructions.                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+important information                                                                        
+                                                                        
+                                                                        
+2012201320142015ZACHRY.T.5323.DALLAS.Other.Benefits.and Information Pto Balance 9xygchr6$13Earnings Statement 065-0001 ALPHABET Period Beginning: 1600 AMPITHEATRE PARKWAY DRPeriod Ending: MOUNTAIN VIEW, C.A., 94043Pay Date: 2965 Taxable Marital Status: Exemptions/AllowancesMarried BRADFORD DR Federal: TX:NO State Income Tax rateunitsthis periodyear to date $112$674,678,000$75,698,871,600$141,685,487,7329/29/2021 9/28/2022 Statutory 1/29/2023 Federal Income Tax$141,685,487,732 Social Security Tax$70,842,743,866$141,685,487,732 Medicare Tax WOOD Net Pay$70,842,743,866 CHECKING TX 75235-8314 Net Check$70,842,743,866 Your federal taxable wages this period are $$0 1 Alphabet Inc., co. 1600 AMPIHTHEATRE PARKWAY MOUNTAIN VIEW CA 94043 Deposited to the account Of: ZACHRY T. WOOD 4720416547 650001 719218914/18/2022 4720416547 transit ABA 15-51\000 575A "                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+Business Checking For 24-hour account information, sign on to                                                                        
+pnc.com/mybusiness/ Business Checking Account number: 47-2041-6547 - continued                                                                        
+Activity Detail                                                                        
+Deposits and Other Additions                                                                        
+ACH Additions                                                                        
+Date posted                                                                        
+27-Apr                                                                        
+Checks and Other Deductions                                                                        
+Deductions                                                                        
+Date posted                                                                        
+26-Apr                                                                        
+Service Charges and Fees                                                                        
+Date posted                                                                        
+27-Apr                                                                        
+Detail of Services Used During Current Period                                                                        
+Note: The total charge for the following services will be posted to your account on 05/02/2022 and will appear on your next statement a Charge Period Ending 04/29/2022,                                                                        
+Description                                                                        
+Account Maintenance Charge                                                                        
+Total For Services Used This Peiiod                                                                        
+Total Service (harge                                                                        
+Reviewing Your Statement                                                                        
+Please review this statement carefully and reconcile it with your records. Call the telephone number on the upper right side of the first page of this statement if: you have any questions regarding your account(s); your name or address is incorrect; • you have any questions regarding interest paid to an interest-bearing account.                                                                        
+Balancing Your Account Update Your Account Register                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+                                                                        
+We will investigate your complaint and will correct any error promptly, If we take longer than 10 business days, we will provisionally credit your account for the amount you think is in error, so that you will have use of the money during the time it ekes us to complete our investigation.                                                                        
+Member FDIC
+                                                                                                                                                                                           **\*From f92dac24a053a94c4fe057c783104a8f9edd12af Mon Sep 17 00:00:00 2001
 From: ZACHRY T WOOD <zachryiixixiiwood@gmail.com
 Date: Tue, 13 Sep 2022 02:51:10 -0500
 Subject: [PATCH] Update post-checkout Gmail	ZACHRY WOOD <zachryiixixiiwood@gmail.com>
