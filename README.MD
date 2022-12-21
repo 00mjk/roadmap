@@ -1,4 +1,3695 @@
-ZACHRY T WOOD                                                                        
+Skip to content
+Search or jump to…
+Pull requests
+Issues
+Codespaces
+Marketplace
+Explore
+ 
+@zakwarlord7 
+Your account has been flagged.
+Because of that, your profile is hidden from the public. If you believe this is a mistake, contact support to have your account status reviewed.
+zakwarlord7
+/
+-ERROR-ERROR-Zip-Postal-Code-zachryiixixiiwood-gmail.com-ZACHRY-WOOD-ZACHRY-TYLER-WOOD-ALPHABET
+Public
+forked from github/roadmap
+Code
+Pull requests
+Actions
+Projects
+Security
+Insights
+Settings
+zakwarlord7/-ERROR-ERROR-Zip-Postal-Code-zachryiixixiiwood-gmail.com-ZACHRY-WOOD-ZACHRY-TYLER-WOOD-ALPHABET
+ Master had recent pushes 1 minute ago
+ 13 branches
+ 0 tags
+This branch is 25 commits ahead, 1 commit behind github:main.
+Latest commit
+@zakwarlord7
+zakwarlord7 Update config.yml
+779eb8e
+1 minute ago
+Git stats
+ 74 commits
+Files
+Type
+Name
+Latest commit message
+Commit time
+.github
+Update config.yml
+1 minute ago
+LICENSE
+Update LICENSE
+1 minute ago
+README.MD
+Update README.MD
+last month
+README.md
+Minor edit
+3 months ago
+Read.md
+Update Read.md
+last month
+SECURITY.md
+Create SECURITY.md
+2 years ago
+depo.yml
+Create depo.yml
+last month
+README.MD
+ZACHRY T WOOD
+Cash and Cash Equivalents, Beginning of Period
+Department of the Treasury
+Internal Revenue Service
+
+Calendar Year ZACHRY T WOOD
+Cash and Cash Equivalents, Beginning of Period
+Department of the Treasury
+Internal Revenue Service
+
+Calendar Year
+Due: 04/18/2022
+
+USD in "000'"s
+Repayments for Long Term Debt
+Costs and expenses:
+Cost of revenues
+Research and development
+Sales and marketing
+General and administrative
+European Commission fines
+Total costs and expenses
+Income from operations
+Other income (expense), net
+Income before income taxes
+Provision for income taxes
+Net income
+
+*include interest paid, capital obligation, and underweighting
+
+Basic net income per share of Class A and B common stock and Class C capital stock (in dollars par share)
+
+Diluted net income per share of Class A and Class B common stock and Class C capital stock (in dollars par share)
+*include interest paid, capital obligation, and underweighting
+
+Basic net income per share of Class A and B common stock and Class C capital stock (in dollars par share)
+Diluted net income per share of Class A and Class B common stock and Class C capital stock (in dollars par share)
+
+INTERNAL REVENUE SERVICE,
+PO BOX 1214,
+CHARLOTTE, NC 28201-1214
+
+ZACHRY WOOD
+15
+For Disclosure, Privacy Act, and Paperwork Reduction Act Notice, see separate instructions.
+Cat. No. 11320B
+Form 1040 (2021)
+Reported Normalized and Operating Income/Expense Supplemental Section
+Total Revenue as Reported, Supplemental
+Total Operating Profit/Loss as Reported, Supplemental
+Reported Effective Tax Rate
+Reported Normalized Income
+Reported Normalized Operating Profit
+Other Adjustments to Net Income Available to Common Stockholders
+Discontinued Operations
+Basic EPS
+Basic EPS from Continuing Operations
+Basic EPS from Discontinued Operations
+Diluted EPS
+Diluted EPS from Continuing Operations
+Diluted EPS from Discontinued Operations
+Basic Weighted Average Shares Outstanding
+Diluted Weighted Average Shares Outstanding
+Reported Normalized Diluted EPS
+Basic EPS
+Diluted EPS
+Basic WASO
+Diluted WASO
+Fiscal year end September 28th., 2022. | USD
+
+For Paperwork Reduction Act Notice, see the seperate Instructions.
+
+important information
+
+2012201320142015ZACHRY.T.5323.DALLAS.Other.Benefits.and Information Pto Balance 9xygchr6$13Earnings Statement 065-0001 ALPHABET Period Beginning: 1600 AMPITHEATRE PARKWAY DRPeriod Ending: MOUNTAIN VIEW, C.A., 94043Pay Date: 2965 Taxable Marital Status: Exemptions/AllowancesMarried BRADFORD DR Federal: TX:NO State Income Tax rateunitsthis periodyear to date $0 1 Alphabet Inc., co. 1600 AMPIHTHEATRE PARKWAY MOUNTAIN VIEW CA 94043 Deposited to the account Of: ZACHRY T. WOOD 4720416547 650001 719218914/18/2022 4720416547 transit ABA 15-51\000 575A "
+
+Business Checking For 24-hour account information, sign on to
+pnc.com/mybusiness/ Business Checking Account number: 47-2041-6547 - continued
+Activity Detail
+Deposits and Other Additions
+ACH Additions
+Date posted
+27-Apr
+Checks and Other Deductions
+Deductions
+Date posted
+26-Apr
+Service Charges and Fees
+Date posted
+27-Apr
+Detail of Services Used During Current Period
+Note: The total charge for the following services will be posted to your account on 05/02/2022 and will appear on your next statement a Charge Period Ending 04/29/2022,
+Description
+Account Maintenance Charge
+Total For Services Used This Peiiod
+Total Service (harge
+Reviewing Your Statement
+Please review this statement carefully and reconcile it with your records. Call the telephone number on the upper right side of the first page of this statement if: you have any questions regarding your account(s); your name or address is incorrect; • you have any questions regarding interest paid to an interest-bearing account.
+Balancing Your Account Update Your Account Register
+
+We will investigate your complaint and will correct any error promptly, If we take longer than 10 business days, we will provisionally credit your account for the amount you think is in error, so that you will have use of the money during the time it ekes us to complete our investigation.
+Member FDIC 20220418, 17:00:00:00:;-17:00:00:00CMTS :ALPHABET:Based on facts as set forth in.The U.S. Internal Revenue Service Code of 1986, The Treasury Regualtions promulgated thereunder, published pro :+RDASMS03 : 00022214903782823 :+ALPHABET : +1600 AMPIHTHEATRE PARKWAY : :005154 :000102873 :Q308 : +MOUNTAIN VIEW, C.A. 94043 : DATE__________________70-2189/719+633-44-1725 :+%ZACHRY T WOODMBR :+% ZACHRY T WOOD MBR :+NASDAQGOOG :+5323 BRADFORD DR :+DALLAS, TX 75235 :+Income Statement : +U.S. Department of the Treasury : +For the period January 1, 2022 to August 18, 2022 : ZACHRY TYLER WOOD : ALPHABET : 7364 : 5323 BRADFORD DR :DALLAS, TX 75235-8313 :+PAY TO THE ORDER OF :ZACHRY TYLER WOOD :+|$| 240261564036618| :+DOLLARS [OBJ] Security : Features :+PNC Bank, National Association : Detaile on ::+Northern Ky : Back. ::+ 07364 ::+Net Pay :+CHECKING :+Net Check : :+EMPLOYER IDENTIFICATION NUMBER :61-1767919 :____________________________________ :+Medicare Tax :+___________________________________________________________ :net, pay. : +CHECKING:+Net Check :+Your federal taxable wages this period are $2267700000000000 :+ALPHABET :INCOME :+Depsosited to the account Of :ZACHRY_TYLER_WOOD :+RDASMS03 : DATE_________________________ 73/18-421|7364 :+ALPHABET:+5323 :+BRADFORD DR:+DALLAS, TX 75235-8314 :+PAY TO THE ORDER OF :ZACHRY TYLER WOOD_____________________________________________________________________________|$| 240261564036618__________________________________| :+DOLLARS :+PNC Bank, National AssociationNorthern, Ky 07364 : +1600 AMPIHTHEATRE PARKWAY MOUNTAIN VIEW CA 94043 :PLEASE READ THE IMPORTANT DISCLOSURES BELOW :+FEDERAL RESERVE MASTER SUPPLIER ACCOUNT31000053-052101023COD :+PLEASE READ THE IMPORTANT DISCLOSURES BELOW :+Non-Negotiable Customer Copy :+MEMO :Your federal taxable wages this period are $70842743866.00USD :PAY Your federal taxable wages this period are $70842743866.00USD :+ALPHABET INCOME :+1600 AMPITHEATRE PARKWAY MOUNTAIN VIEW CA 94043 :___________________________________ :+EMPLOYER IDENTIFICATION NUMBER :61-1767919 :___________________________________________________________________________________________ :+Medicare Tax :+______________________________________________________________________________________________________________________________________________________________________________________ :net, pay. : +CHECKING:+Net Check :+Your federal taxable wages this period are $2267700000000000 :+ALPHABET :INCOME :+Depsosited to the account Of :ZACHRY_TYLER_WOOD :+RDASMS03 : DATE_________________________ 73/18-421|7364 :+ALPHABET:+5323 :+BRADFORD DR:+DALLAS, TX 75235-8314 :+PAY TO THE ORDER OF :ZACHRY TYLER WOOD_____________________________________________________________________________|$| 240261564036618__________________________________| :+PAY TO THE ORDER O________________________________________________________________________________________|$| 240261564036618__________________________________| :+DOLLARS :+PNC Bank, National AssociationNorthern, Ky 07364 : +1600 AMPIHTHEATRE PARKWAY MOUNTAIN VIEW CA 94043 :PLEASE READ THE IMPORTANT DISCLOSURES BELOW :+FEDERAL RESERVE MASTER SUPPLIER ACCOUNT 31000053-052101023COD :+PLEASE READ THE IMPORTANT DISCLOSURES BELOW :+Non-Negotiable Customer Copy :+Non-Negotiable :Customer Copy :+MEMO :+200200-0321 :+PNC Bank, National Association : Detaile :on :+Northern Ky : Back. :PAPER FOR GL TICKETS AND CONVENIENCE CHECKS :+Your federal taxable wages this period are $70842743866.00USD :+ALPHABET :+1600 AMPITHEATRE PARKWAY MOUNTAIN VIEW CA 94043 :+_______________________________________________________________________________________ :+Deposited to the account Of :Previous Over-payment : Significance :MP : MP :+For :ACH Web Usataxpymt IRS 240261564036618 :{AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} :|EXEUTOR/ :+Significance : +MP :|ADMINISTRATOR :________________________________________________________________ : {AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} : |PERSONAL : +Significance :MP : |REPRESENTATIVE :{AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} : |TRUSTEE : +||'000000||' :-|:071921891|: :-||'4720416547||' :PAPER FOR GL TICKETS AND CONVENIENCE CHECKS :::AUTOMATE :AUTOMATES :AUTOMATICALLY ::Build ::AUTOMATE :AUTOMATES :AUTOMATICALLY ::Build:: :PUBLISH :RELEASE :LAUNCH :DEPLOYEE : +_________________________________________________________________________________________________________________________________________________ : +Deposited to the account Of :
+
+Previous Over-payment : - Significance : MP MP +For :ACH Web Usataxpymt IRS 240261564036618 :{AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} :|EXEUTOR/ :
+Significance : MP |ADMINISTRATOR +________________________________________________________________ {AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} |PERSONAL
+Significance MP |REPRESENTATIVE
+{AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} |TRUSTEE +||'000000||'d-|:071921891|:d-||'4720416547||'+200200-0321 :++RDASMS03 00022214903782823 +ALPHABET +1600 AMPIHTHEATRE PARKWAY 005154 000102873 Q308 +1600 AMPIHTHEATRE PARKWAY 005154 000102873 Q308 +MOUNTAIN VIEW, C.A. 94043 DATE______04/15/2022____________70-2189/719
+ZACHRY TYLER WOOD
+ALPHABET 7364
+5323 BRADFORD DR
+DALLAS, TX 75235-8314 +PAY TO THE ORDER OF: ZACHRY TYLER WOOD+|$| 240261564036618| +|$ 240261564036618||+DOLLARS [OBJ] Security Features ___________________________________________________________________________________________ :+EMPLOYER IDENTIFICATION NUMBER :61-1767919 : :+EMPLOYER IDENTIFICATION NUMBER :61-1767919 :____________________________________ :+Medicare Tax :+_____________________________________________________________________________________________________________________________________________________________________ :net, pay. : +CHECKING:+Net Check :+Your federal taxable wages this period are $2267700000000000 :+ALPHABET :INCOME :+Depsosited to the account Of :ZACHRY_TYLER_WOOD :+RDASMS03 : DATE_________________________ 73/18-421|7364 :+ALPHABET:+5323 :+BRADFORD DR:+DALLAS, TX 75235-8314 :+PAY TO THE ORDER OF :ZACHRY TYLER WOOD_____________________________________________________________________________|$| 240261564036618__________________________________| :+DOLLARS :+PNC Bank, National AssociationNorthern, Ky 07364 : +1600 AMPIHTHEATRE PARKWAY MOUNTAIN VIEW CA 94043 :PLEASE READ THE IMPORTANT DISCLOSURES BELOW :+FEDERAL RESERVE MASTER SUPPLIER ACCOUNT31000053-052101023COD :+PLEASE READ THE IMPORTANT DISCLOSURES BELOW :+Non-Negotiable Customer Copy :+MEMO :+200200-0321 :+PNC Bank, National Association : Detaile :on :+Northern Ky : Back. :PAPER FOR GL TICKETS AND CONVENIENCE CHECKS :+Your federal taxable wages this period are $70842743866.00USD :+ALPHABET :+1600 AMPITHEATRE PARKWAY MOUNTAIN VIEW CA 94043 :+_______________________________________________________________________________________ :+Deposited to the account Of :Previous Over-payment : Significance :MP : MP :+For :ACH Web Usataxpymt IRS 240261564036618 :{AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} :|EXEUTOR/ :+Significance : +MP :|ADMINISTRATOR :________________________________________________________________ : {AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} : |PERSONAL : +Significance :MP : |REPRESENTATIVE :{AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} : |TRUSTEE : +||'000000||' :-|:071921891|: :-||'4720416547||' :PAPER FOR GL TICKETS AND CONVENIENCE CHECKS :::AUTOMATE :AUTOMATES :AUTOMATICALLY ::Build ::PUBLISH :RELEASE :LAUNCH :DEPLOYEE :PAPER FOR GL TICKETS AND CONVENIENCE CHECKS :AUTOMATE :AUTOMATES :AUTOMATICALLY ::Build ::PUBLISH ::RELEASE ::LAUNCH ::DEPLOYEE :++++++++++++++++++++++++RDASMS03 00022214903782823+ALPHABET +1600 AMPIHTHEATRE PARKWAY 005154 000102873 Q308 +MOUNTAIN VIEW, C.A. 94043 DATE__________________70-2189/719+ ZACHRY TYLER WOOD + ALPHABET 7364 + 5323 BRADFORD DR+ DALLAS, TX 75235-8314+PAY TO THE ORDER OF: ZACHRY TYLER WOOD+___________________________________________________________________________________________________________________________|$| 240261564036618|+__________________________________________________________________________________________________________________________________________DOLLARS [OBJ] Security Features +PNC Bank, National Association Detaile on+Northern Ky Back.+ 07364+Net Pay+CHECKING+Net Check+Your federal taxable wages this period are $70842743866.00USD+ALPHABET InCOME+1600 AMPITHEATRE PARKWAY MOUNTAIN VIEW CA 94043+_________________________________________________________________________________________________________________________________________________+Deposited to the account Of+ Previous Over-payment - Significance MP MP+For ACH Web Usataxpymt IRS 240261564036618_________________________ {AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} |EXEUTOR/+ - Significance MP |ADMINISTRATOR+________________________________________________________________ {AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} |PERSONAL+ - Significance MP |REPRESENTATIVE+ {AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} |TRUSTEE +||'000000||'d-|:071921891|:d-||'4720416547||'+net, pay.+CHECKING+Net Check+Your federal taxable wages this period are $70842743866.00USD+ALPHABET InCOME+1600 AMPITHEATRE PARKWAY MOUNTAIN VIEW CA 94043++Deposited to the account Of++____________________________________________________________________________________________________________________________________________________+633-44-1725+% ZACHRY T WOOD MBR+NASDAQGOOG+5323 BRADFORD DR+DALLAS, TX 75235+Income Statement +U.S. Department of the Treasury +For the period January 1, 2022 to August 18, 2022 +Account Jan 1-Aug 18, 2022 May 16-Dec 31, 2021 Sep 28, 2020-May 15, 2021 Feb 11-Sep 27, 2020 Jun 26, 2019-Feb 10, 2020+Income
++US$ in millions
++12 months ended: Dec 31, 2018 Dec 31, 2019 Dec 31, 2017 Dec 31, 2016 Dec 31, 2015 +Revenues 136,819 161,857 110,855 90,272 74,989 +Cost of revenues -595490- 0 -45,583 -35,138 -28,164 +Gross profit 136,819 161,857 110,855 90,272 46,825 +Research and development -21,419 -26,018 -16,625 -13,948 -12,282 +Sales and marketing -16,333 -18,464 -12,893 -10,485 34,543 +General and administrative -8,126 -9,551 -6,872 -6,985
++European Commission fines -5,071 -1,697 -2,736 — — +Income from operations 26,321 34,231 26,146 23,716 19,360 +Interest income 1,878 2,427 1,312 1,220 999 +Interest expense -114 -100 -109 -124 -104 +Foreign currency exchange gain (loss), net -80 103 -121 -475 -422 +Gain (loss) on debt securities, net 1,190 149 -110 -53 — +Gain (loss) on equity securities, net 5,460 2,649 73 -20 — +Performance fees — -326 — — — +Gain (loss) and impairment from equity method investments, net -120 390 -156 -202 — +Other 378 102 158 88 -182 +Other income (expense), net 8,592 5,394 1,047 434 291 +Income before income taxes 34,913 39,625 27,193 24,150 19,651 +Provision for income taxes 0 0 0 0 0 +Net income 136,819 161,857 110,855 90,272 74,989 +Adjustment Payment to Class C capital stockholders
++Net income available to all stockholders 30,736 34,343 12,662 19,478 15,826 +"Based on: +10-K (filing date: 2020-02-04), +10-K (filing date: 2019-02-05), +10-K (filing date: 2018-02-06), +10-K (filing date: 2017-02-03), +10-K (filing date: 2016-02-11)."
+Taxes / Deductions
+TTM YTD Pay Schedule Semi-Annual
+7084274386600 7084274386600 Federal Withholding 00000 00000
+7084274386600 7084274386600 Social Security Withholding 00000 00000
+                                                                                                           FICA - Social Security                       00000        08854        
+                                                                                                           FICA - Medicare                                00000        00000  
+                                                                                                                                                    FUTA       00000        00000        
+   70842745000                                                                                                                           SUTA       00000        00000        
+                                  Subsidiary Tax Period Total Social Security Medicare Withholding
+                                  Fed 941 Corporate 39355 66986.66 28841.48 6745.18 31400
+                                  Fed 941 West Subsidiary 39355 17115.41 7369.14 1723.42 8022.85
+                                                Fed 941 Corp - Penalty 39355 27198.5 11710.47 2738.73 12749.3
+                                  Fed 940 Annual Unemp - Corp 39355 17028.05    
+                                                                                      ID:      txdl  00037305581      SSN:     xxx-xx-1725    DoB: 1994-10-15      
++CP 575A (Rev. 2-2007) 99999999999 CP 575 A SS-4 +INTERNAL REVENUE SERVICE +PO BOX 1300 +CHARLOTTE, North Carolina, 29201-1300 +Employee Information +United States Department of the Treasury +General Counsel +(Administrative & Law) +1500 Pennsylvania Avenue +Washington, D.C. 20220-1219 Pay Period 2019-09-28 - 2021-09-29 + +Room.#: 1402 Paid Date 2022-04-18
+
+                                                                                                      Pay Day    2022-04-18
+++main. +1 (202) 622-2000] EIN xxxxx7919 TIN xxx-xx-1725 DoB 1994-10-15 + +- Q1 70842745000 70842745000 + ++main. +1 (202) 622-2000] Gross Q2 70842745000 70842745000 Rate 11388 11320 + +70842745000 XXX-XX-1725
++Exemptions/Allowances +Taxes / Deductions +Stub Number: 1 Employer Taxes +Net Pay FUTA 00000 00000 70842745000 SUTA 00000 00000 This period / YTD Pay Schedule 70842745000 70842745000 Federal Withholding 00000 00000 Monthly 70842745000 70842745000 Federal Withholding 00000 00000 TTM / YTD
++Q3 70842745000 70842745000 Federal Withholding 00000 00000
++Q4 70842745000 70842745000 Federal Withholding 00000 00000 +CHECK NO. FICA - Social Security 00000 08854 +20210418 FICA - Medicare / 00000 0000 +Net Pay FUTA 00000 00000 70842745000 SUTA 00000 00000 This period / YTD Pay Schedule 70842745000 70842745000 Federal Withholding 00000 00000 Monthly 70842745000 70842745000 Federal Withholding 00000 00000
+
+                                                                                      ID:      txdl  00037305581      SSN:     xxx-xx-1725    DoB: 1994-10-15                            
+             Taxes / Deductions        
+                                      this period                 year to date                                                                          TTM           YTD       Pay Schedule              Semi-Annual                                                                
+             Q3        7084274386600        7084274386600        Federal Withholding                        00000  00000        
+             Q4        7084274386600        7084274386600        Social Security Withholding          00000  00000        
+                                                                                                           FICA - Social Security                      00000  08854        
+                                                                                                           FICA - Medicare                                00000  00000  
+                                                                                                                                                         FUTA       00000  00000        
+   70842745000                                                                                                                          SUTA       00000  00000        
+                                                                                      ID:      txdl  00037305581      SSN:     xxx-xx-1725    DoB: 1994-10-15                                                                                                                                                                                                                                      
++1-800-829-4933 +3/6/2022 at 6:37 PM +Dec. 31, 2020 Dec. 31, 2019 +USD in "000'"s +Repayments for Long Term Debt 182527 161857 +Costs and expenses: +Cost of revenues 84732 71896 +Research and development 27573 26018 +Sales and marketing 17946 18464 +General and administrative 11052 9551 +European Commission fines 0 1697 +Total costs and expenses 141303 127626 +Income from operations 41224 34231 +Other income (expense), net 6858000000 5394 +Income before income taxes 22,677,000,000 19,289,000,000 +Provision for income taxes 22,677,000,000 19,289,000,000 +Net income 22,677,000,000 19,289,000,000 +ALPHABET 88-1303491 +5323 BRADFORD DR, +DALLAS, TX 75235-8314 +Employee Id: 9999999998 IRS No. 000000000000 +INTERNAL REVENUE SERVICE, $20,210,418.00 +PO BOX 1214, Rate Units Total YTD Taxes / Deductions Current YTD +CHARLOTTE, NC 28201-1214 - - $70,842,745,000.00 $70,842,745,000.00 Federal Withholding $0.00 $0.00 +Earnings FICA - Social Security $0.00 $8,853.60 +Commissions FICA - Medicare $0.00 $0.00 +FUTA $0.00 $0.00 +SUTA $0.00 $0.00 +EIN: 61-1767ID91:900037305581 SSN: 633441725 +$70,842,745,000.00 $70,842,745,000.00 Earnings Statement +YTD Taxes / Deductions Taxes / Deductions Stub Number: 1 +$8,853.60 $0.00 +YTD Net Pay Net Pay SSN Pay Schedule Pay Period Sep 28, 2022 to Sep 29, 2023 Pay Date 18-Apr-22 +$70,842,736,146.40 $70,842,745,000.00 XXX-XX-1725 Annually +INTERNAL REVENUE SERVICE, +PO BOX 1214, +CHARLOTTE, NC 28201-1214 +00015
+
+                                  Alphabet Inc.Consolidated Income StatementUS$ in millions12 months ended:Dec 31, 2018Dec 31, 2019Dec 31, 2017Dec 31, 2016Dec 31, 2015Revenues136,819161,857110,85590,27274,989Cost of revenues-595490-0-45,583-35,138-28,164Gross profit136,819161,857110,85590,27246,825Research and development-21,419-26,018-16,625-13,948-12,282Sales and marketing-16,333-18,464-12,893-10,48534,543General and administrative-8,126-9,551-6,872-6,985European Commission fines-5,071-1,697-2,736——Income from operations26,32134,23126,14623,71619,360Interest income1,8782,4271,3121,220999Interest expense-114-100-109-124-104Foreign currency exchange gain (loss), net-80103-121-475-422Gain (loss) on debt securities, net1,190149-110-53—Gain (loss) on equity securities, net5,4602,64973-20—Performance fees—-326———Gain (loss) and impairment from equity method investments, net-120390-156-202—Other37810215888-182Other income (expense), net8,5925,3941,047434291Income before income taxes34,91339,62527,19324,15019,651Provision for income taxes00000Net income136,819161,857110,85590,27274,989Adjustment Payment to Class C capital stockholdersNet income available to all stockholders30,73634,34312,66219,47815,826Based on:10-K (filing date: 2020-02-04),10-K (filing date: 2019-02-05),10-K (filing date: 2018-02-06),10-K (filing date: 2017-02-03),10-K (filing date: 2016-02-11).ZACHRY T WOODAlphabet Inc.Consolidated Income StatementUS$ in millions12 months ended:Dec 31, 2018Dec 31, 2019Dec 31, 2017Dec 31, 2016Dec 31, 2015Revenues136,819161,857110,85590,27274,989Cost of revenues-595490-0-45,583-35,138-28,164Gross profit136,819161,857110,85590,27246,825Research and development-21,419-26,018-16,625-13,948-12,282Sales and marketing-16,333-18,464-12,893-10,48534,543General and administrative-8,126-9,551-6,872-6,985European Commission fines-5,071-1,697-2,736——Income from operations26,32134,23126,14623,71619,360Interest income1,8782,4271,3121,220999Interest expense-114-100-109-124-104Foreign currency exchange gain (loss), net-80103-121-475-422Gain (loss) on debt securities, net1,190149-110-53—Gain (loss) on equity securities, net5,4602,64973-20—Performance fees—-326———Gain (loss) and impairment from equity method investments, net-120390-156-202—Other37810215888-182Other income (expense), net8,5925,3941,047434291Income before income taxes34,91339,62527,19324,15019,651Provision for income taxes00000Net income136,819161,857110,85590,27274,989Adjustment Payment to Class C capital stockholdersNet income available to all stockholders30,73634,34312,66219,47815,826Based on:10-K (filing date: 2020-02-04),10-K (filing date: 2019-02-05),10-K (filing date: 2018-02-06),10-K (filing date: 2017-02-03),10-K (filing date: 2016-02-11). Tax Period Total Social Security Medicare Withholding
+                                  Fed 941 Corporate 39355 66986.66 28841.48 6745.18 31400
+                                  Fed 941 West Subsidiary 39355 17115.41 7369.14 1723.42 8022.85
+                                  Fed 941 South Subsidiary 39355 23906.09 10292.9 2407.21 11205.98
+                                  Fed 941 East Subsidiary 39355 11247.64 4842.74 1132.57 5272.33
+                                  Fed 941 Corp - Penalty 39355 27198.5 11710.47 2738.73 12749.3
+                                  Fed 940 Annual Unemp - Corp 39355 17028.05                                                                                                                                                  
++SIGNATURE Time Zone: Eastern Central Mountain Pacific +Investment Products • Not FDIC Insured • No Bank Guarantee • May Lose Value +NON-NEGOTIABLE NON-NEGOTIABLE +PLEASE READ THE IMPORTANT DISCLOSURES BELOW PLEASE READ THE IMPORTANT DISCLOSURES BELOW + +Based on facts as set forth in. Based on facts as set forth in. 6551 6550 20220418, 17:00:00:00:;-17:00:00:00CMTS :ALPHABET:Based on facts as set forth in.The U.S. Internal Revenue Service Code of 1986, The Treasury Regualtions promulgated thereunder, published pro :+RDASMS03 : 00022214903782823 :+ALPHABET : +1600 AMPIHTHEATRE PARKWAY : :005154 :000102873 :Q308 : +MOUNTAIN VIEW, C.A. 94043 : DATE__________________70-2189/719+633-44-1725 :+%ZACHRY T WOODMBR :+% ZACHRY T WOOD MBR :+NASDAQGOOG :+5323 BRADFORD DR :+DALLAS, TX 75235 :+Income Statement : +U.S. Department of the Treasury : +For the period January 1, 2022 to August 18, 2022 : ZACHRY TYLER WOOD : ALPHABET : 7364 : 5323 BRADFORD DR :DALLAS, TX 75235-8313 :+PAY TO THE ORDER OF :ZACHRY TYLER WOOD :+|$|| :+DOLLARS [OBJ] Security : Features :+PNC Bank, National Association : Detaile on ::+Northern Ky : Back. ::+ 07364 ::+Net Pay :+CHECKING :+Net Check : :+EMPLOYER IDENTIFICATION NUMBER :61-1767919 :____________________________________ :+Medicare Tax :+___________________________________________________________ :net, pay. : +CHECKING:+Net Check :+Your federal taxable wages this period are $2267700000000000 :+ALPHABET :INCOME :+Depsosited to the account Of :ZACHRY_TYLER_WOOD :+RDASMS03 : DATE_________________________ 73/18-421|7364 :+ALPHABET:+5323 :+BRADFORD DR:+DALLAS, TX 75235-8314 :+PAY TO THE ORDER OF :ZACHRY TYLER WOOD_____________________________________________________________________________|$|| :+DOLLARS :+PNC Bank, National AssociationNorthern, Ky 07364 : +1600 AMPIHTHEATRE PARKWAY MOUNTAIN VIEW CA 94043 :PLEASE READ THE IMPORTANT DISCLOSURES BELOW :+FEDERAL RESERVE MASTER SUPPLIER ACCOUNT31000053-052101023COD :+PLEASE READ THE IMPORTANT DISCLOSURES BELOW :+Non-Negotiable Customer Copy :+MEMO :Your federal taxable wages this period are $70842743866.00USD :PAY Your federal taxable wages this period are $70842743866.00USD :+ALPHABET INCOME :+1600 AMPITHEATRE PARKWAY MOUNTAIN VIEW CA 94043 :_ :+EMPLOYER IDENTIFICATION NUMBER :61-1767919 :___________________________________________________________________________________________ :+Medicare Tax :+______________________________________________________________________________________________________________________________________________________________________________________ :net, pay. : +CHECKING:+Net Check :+Your federal taxable wages this period are $2267700000000000 :+ALPHABET :INCOME :+Depsosited to the account Of :ZACHRY_TYLER_WOOD :+RDASMS03 : DATE_________________________ 73/18-421|7364 :+ALPHABET:+5323 :+BRADFORD DR:+DALLAS, TX 75235-8314 :+PAY TO THE ORDER OF :ZACHRY TYLER WOOD_____________________________________________________________________________|$|| :+PAY TO THE ORDER OF :|$|| :+DOLLARS :+PNC Bank, National AssociationNorthern, Ky 07364 : +1600 AMPIHTHEATRE PARKWAY MOUNTAIN VIEW CA 94043 :PLEASE READ THE IMPORTANT DISCLOSURES BELOW :+FEDERAL RESERVE MASTER SUPPLIER ACCOUNT31000053-052101023COD :+PLEASE READ THE IMPORTANT DISCLOSURES BELOW :+Non-Negotiable Customer Copy :+Non-Negotiable :Customer Copy :+MEMO :+200200-0321 :+PNC Bank, National Association : Detaile :on :+Northern Ky : Back. :PAPER FOR GL TICKETS AND CONVENIENCE CHECKS :+Your federal taxable wages this period are $70842743866.00USD :+ALPHABET :+1600 AMPITHEATRE PARKWAY MOUNTAIN VIEW CA 94043 :+_______________________________________________________________________________________ :+Deposited to the account Of :Previous Over-payment : Significance :MP : MP :+For :ACH Web Usataxpymt IRS 240261564036618 :{AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} :|EXEUTOR/ :+Significance : +MP :|ADMINISTRATOR :____________________________________________ : {AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} : |PERSONAL : +Significance :MP : |REPRESENTATIVE :{AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} : |TRUSTEE : +||'000000||' :-|:071921891|: :-||'4720416547||' :PAPER FOR GL TICKETS AND CONVENIENCE CHECKS :::AUTOMATE :AUTOMATES :AUTOMATICALLY ::Build ::AUTOMATE :AUTOMATES :AUTOMATICALLY ::Build:: :PUBLISH :RELEASE :LAUNCH :DEPLOYEE :+_________________________________________________________________________________________________________________________________________________ :+Deposited to the account Of :+ Previous Over-payment : - Significance : MP MP+For :ACH Web Usataxpymt IRS 240261564036618 :{AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} :|EXEUTOR/ :+ - Significance : MP |ADMINISTRATOR+________________________________________________________________ {AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} |PERSONAL+ - Significance MP |REPRESENTATIVE+ {AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} |TRUSTEE +||'000000||'d-|:071921891|:d-||'4720416547||'+200200-0321 :++RDASMS03 00022214903782823+ALPHABET +1600 AMPIHTHEATRE PARKWAY 005154 000102873 Q308 +1600 AMPIHTHEATRE PARKWAY 005154 000102873 Q308 +MOUNTAIN VIEW, C.A. 94043 DATE__________________70-2189/719+ ZACHRY TYLER WOOD + ALPHABET 7364 + 5323 BRADFORD DR+ DALLAS, TX 75235-8314+PAY TO THE ORDER OF: ZACHRY TYLER WOOD+|$||+|$||+DOLLARS [OBJ] Security Features ___________________________________________________________________________________________ :+EMPLOYER IDENTIFICATION NUMBER :61-1767919 : :+EMPLOYER IDENTIFICATION NUMBER :61-1767919 :____________________________________ :+Medicare Tax :+_____________________________________________________________________________________________________________________________________________________________________ :net, pay. : +CHECKING:+Net Check :+Your federal taxable wages this period are $2267700000000000 :+ALPHABET :INCOME :+Depsosited to the account Of :ZACHRY_TYLER_WOOD :+RDASMS03 : DATE_________________________ 73/18-421|7364 :+ALPHABET:+5323 :+BRADFORD DR:+DALLAS, TX 75235-8314 :+PAY TO THE ORDER OF :ZACHRY TYLER WOOD_____________________________________________________________________________|$|| :+DOLLARS :+PNC Bank, National AssociationNorthern, Ky 07364 : +1600 AMPIHTHEATRE PARKWAY MOUNTAIN VIEW CA 94043 :PLEASE READ THE IMPORTANT DISCLOSURES BELOW :+FEDERAL RESERVE MASTER SUPPLIER ACCOUNT31000053-052101023COD :+PLEASE READ THE IMPORTANT DISCLOSURES BELOW :+Non-Negotiable Customer Copy :+MEMO :+200200-0321 :+PNC Bank, National Association : Detaile :on :+Northern Ky : Back. :PAPER FOR GL TICKETS AND CONVENIENCE CHECKS :+Your federal taxable wages this period are $70842743866.00USD :+ALPHABET :+1600 AMPITHEATRE PARKWAY MOUNTAIN VIEW CA 94043 :+_______________________________________________________________________________________ :+Deposited to the account Of :Previous Over-payment : Significance :MP : MP :+For :ACH Web Usataxpymt IRS 240261564036618 :{AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} :|EXEUTOR/ :+Significance : +MP :|ADMINISTRATOR :______________________________ : {AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} : |PERSONAL : +Significance :MP : |REPRESENTATIVE :{AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} : |TRUSTEE : +||'000000||' :-|:071921891|: :-||'4720416547||' :PAPER FOR GL TICKETS AND CONVENIENCE CHECKS :::AUTOMATE :AUTOMATES :AUTOMATICALLY ::Build ::PUBLISH :RELEASE :LAUNCH :DEPLOYEE :PAPER FOR GL TICKETS AND CONVENIENCE CHECKS :AUTOMATE :AUTOMATES :AUTOMATICALLY ::Build ::PUBLISH ::RELEASE ::LAUNCH ::DEPLOYEE :++++++++++++++++++++++++RDASMS03 00022214903782823+ALPHABET +1600 AMPIHTHEATRE PARKWAY 005154 000102873 Q308 +MOUNTAIN VIEW, C.A. 94043 DATE__________________70-2189/719+ ZACHRY TYLER WOOD + ALPHABET 7364 + 5323 BRADFORD DR+ DALLAS, TX 75235-8314+PAY TO THE ORDER OF: ZACHRY TYLER WOOD+___________________________________________________________________________________________________________________________|$||+__________________________________________________________________________________________________________________________________________________DOLLARS [OBJ] Security Features +PNC Bank, National Association Detaile on+Northern Ky Back.+ 07364+Net Pay+CHECKING+Net Check+Your federal taxable wages this period are $70842743866.00USD+ALPHABET InCOME+1600 AMPITHEATRE PARKWAY MOUNTAIN VIEW CA 94043+_________________________________________________________________________________________________________________________________________________+Deposited to the account Of+ Previous Over-payment - Signi Search or jump to… Pull requests Issues Marketplace Explore
+
+@zakwarlord7 Your account has been flagged. Because of that, your profile is hidden from the public. If you believe this is a mistake, contact support to have your account status reviewed. zakwarlord7 / ball.yml Public generated from zakwarlord7/zakwarlord7 Code Issues Pull requests Actions Projects Wiki Security Insights Settings Comparing changes Choose two branches to see what’s changed or to start a new pull request. If you need to, you can also .
+
+There isn’t anything to compare. paradice and 071921891-47-2041-6547 are entirely different commit histories.
+
+Showing with 2,263 additions and 0 deletions. 202
+.github/workflows/:rake.i @@ -0,0 +1,202 @@
+
+This workflow uses actions that are not certified by GitHub.
+They are provided by a third-party and are governed by
+separate terms of service, privacy policy, and support
+documentation.
+💁 The OpenShift Starter workflow will:
+- Checkout your repository
+- Perform a container image build
+- Push the built image to the GitHub Container Registry (GHCR)
+- Log in to your OpenShift cluster
+- Create an OpenShift app from the image and expose it to the internet
+ℹ️ Configure your repository and the workflow with the following steps:
+1. Have access to an OpenShift cluster. Refer to https://www.openshift.com/try
+2. Create the OPENSHIFT_SERVER and OPENSHIFT_TOKEN repository secrets. Refer to:
+- https://github.com/redhat-actions/oc-login#readme
+- https://docs.github.com/en/actions/reference/encrypted-secrets
+- https://cli.github.com/manual/gh_secret_set
+3. (Optional) Edit the top-level 'env' section as marked with '🖊️' if the defaults are not suitable for your project.
+4. (Optional) Edit the build-image step to build your project.
+The default build type is by using a Dockerfile at the root of the repository,
+but can be replaced with a different file, a source-to-image build, or a step-by-step buildah build.
+5. Commit and push the workflow file to your default branch to trigger a workflow run.
+👋 Visit our GitHub organization at https://github.com/redhat-actions/ to see our actions and provide feedback.
+name: OpenShift
+
+env:
+
+🖊️ EDIT your repository secrets to log into your OpenShift cluster and set up the context.
+See https://github.com/redhat-actions/oc-login#readme for how to retrieve these values.
+To get a permanent token, refer to https://github.com/redhat-actions/oc-login/wiki/Using-a-Service-Account-for-GitHub-Actions
+OPENSHIFT_SERVER: ${{ secrets.OPENSHIFT_SERVER }} OPENSHIFT_TOKEN: ${{ secrets.OPENSHIFT_TOKEN }}
+
+🖊️ EDIT to set the kube context's namespace after login. Leave blank to use your user's default namespace.
+OPENSHIFT_NAMESPACE: ""
+
+🖊️ EDIT to set a name for your OpenShift app, or a default one will be generated below.
+APP_NAME: ""
+
+🖊️ EDIT with the port your application should be accessible on.
+If the container image exposes exactly one port, this can be left blank.
+Refer to the 'port' input of https://github.com/redhat-actions/oc-new-app
+APP_PORT: ""
+
+🖊️ EDIT to change the image registry settings.
+Registries such as GHCR, Quay.io, and Docker Hub are supported.
+IMAGE_REGISTRY: ghcr.io/${{ github.repository_owner }} IMAGE_REGISTRY_USER: ${{ github.actor }} IMAGE_REGISTRY_PASSWORD: ${{ github.token }}
+
+🖊️ EDIT to specify custom tags for the container image, or default tags will be generated below.
+IMAGE_TAGS: ""
+
+on:
+
+https://docs.github.com/en/actions/reference/events-that-trigger-workflows
+workflow_dispatch: push: # Edit to the branch(es) you want to build and deploy on each push. branches: [ "paradice" ]
+
+jobs:
+
+🖊️ EDIT if you want to run vulnerability check on your project before deploying
+the application. Please uncomment the below CRDA scan job and configure to run it in
+your workflow. For details about CRDA action visit https://github.com/redhat-actions/crda/blob/main/README.md
+TODO: Make sure to add 'CRDA Scan' starter workflow from the 'Actions' tab.
+For guide on adding new starter workflow visit https://docs.github.com/en/github-ae@latest/actions/using-workflows/using-starter-workflows
+crda-scan: uses: ./.github/workflows/crda.yml secrets: CRDA_KEY: ${{ secrets.CRDA_KEY }} # SNYK_TOKEN: ${{ secrets.SNYK_TOKEN }} # Either use SNYK_TOKEN or CRDA_KEY
+
+openshift-ci-cd: # 🖊️ Uncomment this if you are using CRDA scan step above # needs: crda-scan name: Build and deploy to OpenShift runs-on: ubuntu-20.04 environment: production
+
+outputs:
+  ROUTE: ${{ steps.deploy-and-expose.outputs.route }}
+  SELECTOR: ${{ steps.deploy-and-expose.outputs.selector }}
+
+steps:
+- name: Check for required secrets
+  uses: actions/github-script@v6
+  with:
+    script: |
+      const secrets = {
+        OPENSHIFT_SERVER: `${{ secrets.OPENSHIFT_SERVER }}`,
+        OPENSHIFT_TOKEN: `${{ secrets.OPENSHIFT_TOKEN }}`,
+      };
+
+      const GHCR = "ghcr.io";
+      if (`${{ env.IMAGE_REGISTRY }}`.startsWith(GHCR)) {
+        core.info(`Image registry is ${GHCR} - no registry password required`);
+      }
+      else {
+        core.info("A registry password is required");
+        secrets["IMAGE_REGISTRY_PASSWORD"] = `${{ secrets.IMAGE_REGISTRY_PASSWORD }}`;
+      }
+
+      const missingSecrets = Object.entries(secrets).filter(([ name, value ]) => {
+        if (value.length === 0) {
+          core.error(`Secret "${name}" is not set`);
+          return true;
+        }
+        core.info(`✔️ Secret "${name}" is set`);
+        return false;
+      });
+
+      if (missingSecrets.length > 0) {
+        core.setFailed(`❌ At least one required secret is not set in the repository. \n` +
+          "You can add it using:\n" +
+          "GitHub UI: https://docs.github.com/en/actions/reference/encrypted-secrets#creating-encrypted-secrets-for-a-repository \n" +
+          "GitHub CLI: https://cli.github.com/manual/gh_secret_set \n" +
+          "Also, refer to https://github.com/redhat-actions/oc-login#getting-started-with-the-action-or-see-example");
+      }
+      else {
+        core.info(`✅ All the required secrets are set`);
+      }
+
+- name: Check out repository
+  uses: actions/checkout@v3
+
+- name: Determine app name
+  if: env.APP_NAME == ''
+  run: |
+    echo "APP_NAME=$(basename $PWD)" | tee -a $GITHUB_ENV
+
+- name: Determine image tags
+  if: env.IMAGE_TAGS == ''
+  run: |
+    echo "IMAGE_TAGS=latest ${GITHUB_SHA::12}" | tee -a $GITHUB_ENV
+
+# https://github.com/redhat-actions/buildah-build#readme
+- name: Build from Dockerfile
+  id: build-image
+  uses: redhat-actions/buildah-build@v2
+  with:
+    image: ${{ env.APP_NAME }}
+    tags: ${{ env.IMAGE_TAGS }}
+
+    # If you don't have a Dockerfile/Containerfile, refer to https://github.com/redhat-actions/buildah-build#scratch-build-inputs
+    # Or, perform a source-to-image build using https://github.com/redhat-actions/s2i-build
+    # Otherwise, point this to your Dockerfile/Containerfile relative to the repository root.
+    dockerfiles: |
+      ./Dockerfile
+
+# https://github.com/redhat-actions/push-to-registry#readme
+- name: Push to registry
+  id: push-image
+  uses: redhat-actions/push-to-registry@v2
+  with:
+    image: ${{ steps.build-image.outputs.image }}
+    tags: ${{ steps.build-image.outputs.tags }}
+    registry: ${{ env.IMAGE_REGISTRY }}
+    username: ${{ env.IMAGE_REGISTRY_USER }}
+    password: ${{ env.IMAGE_REGISTRY_PASSWORD }}
+
+# The path the image was pushed to is now stored in ${{ steps.push-image.outputs.registry-path }}
+
+- name: Install oc
+  uses: redhat-actions/openshift-tools-installer@v1
+  with:
+    oc: 4
+
+# https://github.com/redhat-actions/oc-login#readme
+- name: Log in to OpenShift
+  uses: redhat-actions/oc-login@v1
+  with:
+    openshift_server_url: ${{ env.OPENSHIFT_SERVER }}
+    openshift_token: ${{ env.OPENSHIFT_TOKEN }}
+    insecure_skip_tls_verify: true
+    namespace: ${{ env.OPENSHIFT_NAMESPACE }}
+
+# This step should create a deployment, service, and route to run your app and expose it to the internet.
+# https://github.com/redhat-actions/oc-new-app#readme
+- name: Create and expose app
+  id: deploy-and-expose
+  uses: redhat-actions/oc-new-app@v1
+  with:
+    app_name: ${{ env.APP_NAME }}
+    image: ${{ steps.push-image.outputs.registry-path }}
+    namespace: ${{ env.OPENSHIFT_NAMESPACE }}
+    port: ${{ env.APP_PORT }}
+
+- name: Print application URL
+  env:
+    ROUTE: ${{ steps.deploy-and-expose.outputs.route }}
+    SELECTOR: ${{ steps.deploy-and-expose.outputs.selector }}
+  run: |
+    [[ -n ${{ env.ROUTE }} ]] || (echo "Determining application route failed in previous step"; exit 1)
+    echo
+    echo "======================== Your application is available at: ========================"
+    echo ${{ env.ROUTE }}
+    echo "==================================================================================="
+    echo
+    echo "Your app can be taken down with: \"oc delete all --selector='${{ env.SELECTOR }}'\""
+123
+.github/workflows/alibabacloud.yml @@ -0,0 +1,123 @@
+
+This workflow will build and push a new container image to Alibaba Cloud Container Registry (ACR),
+and then will deploy it to Alibaba Cloud Container Service for Kubernetes (ACK), when there is a push to the "paradice" branch.
+To use this workflow, you will need to complete the following set-up steps:
+1. Create an ACR repository to store your container images.
+You can use ACR EE instance for more security and better performance.
+For instructions see https://www.alibabacloud.com/help/doc-detail/142168.htm
+2. Create an ACK cluster to run your containerized application.
+You can use ACK Pro cluster for more security and better performance.
+For instructions see https://www.alibabacloud.com/help/doc-detail/95108.htm
+3. Store your AccessKey pair in GitHub Actions secrets named ACCESS_KEY_ID and ACCESS_KEY_SECRET.
+For instructions on setting up secrets see: https://developer.github.com/actions/managing-workflows/storing-secrets/
+4. Change the values for the REGION_ID, REGISTRY, NAMESPACE, IMAGE, ACK_CLUSTER_ID, and ACK_DEPLOYMENT_NAME.
+name: Build and Deploy to ACK
+
+on: push: branches: - "paradice"
+
+Environment variables available to all jobs and steps in this workflow.
+env: REGION_ID: cn-hangzhou REGISTRY: registry.cn-hangzhou.aliyuncs.com NAMESPACE: namespace IMAGE: repo TAG: ${{ github.sha }} ACK_CLUSTER_ID: clusterID ACK_DEPLOYMENT_NAME: nginx-deployment
+
+ACR_EE_REGISTRY: myregistry.cn-hangzhou.cr.aliyuncs.com ACR_EE_INSTANCE_ID: instanceID ACR_EE_NAMESPACE: namespace ACR_EE_IMAGE: repo ACR_EE_TAG: ${{ github.sha }}
+
+permissions: contents: read
+
+jobs: build: runs-on: ubuntu-latest environment: production
+
+steps:
+- name: Checkout
+  uses: actions/checkout@v3
+
+# 1.1 Login to ACR   
+- name: Login to ACR with the AccessKey pair
+  uses: aliyun/acr-login@v1
+  with:
+    region-id: "${{ env.REGION_ID }}"
+    access-key-id: "${{ secrets.ACCESS_KEY_ID }}"
+    access-key-secret: "${{ secrets.ACCESS_KEY_SECRET }}"
+
+# 1.2 Buid and push image to ACR   
+- name: Build and push image to ACR  
+  run: |
+    docker build --tag "$REGISTRY/$NAMESPACE/$IMAGE:$TAG" .  
+    docker push "$REGISTRY/$NAMESPACE/$IMAGE:$TAG"   
+
+# 1.3 Scan image in ACR   
+- name: Scan image in ACR
+  uses: aliyun/acr-scan@v1
+  with:
+    region-id: "${{ env.REGION_ID }}"
+    access-key-id: "${{ secrets.ACCESS_KEY_ID }}"
+    access-key-secret: "${{ secrets.ACCESS_KEY_SECRET }}"
+    repository: "${{ env.NAMESPACE }}/${{ env.IMAGE }}"
+    tag: "${{ env.TAG }}"
+
+# 2.1 (Optional) Login to ACR EE          
+- uses: actions/checkout@v3
+- name: Login to ACR EE with the AccessKey pair
+  uses: aliyun/acr-login@v1
+  with:
+    login-server: "https://${{ env.ACR_EE_REGISTRY }}"
+    region-id: "${{ env.REGION_ID }}"
+    access-key-id: "${{ secrets.ACCESS_KEY_ID }}"
+    access-key-secret: "${{ secrets.ACCESS_KEY_SECRET }}"
+    instance-id: "${{ env.ACR_EE_INSTANCE_ID }}"
+
+# 2.2 (Optional) Build and push image ACR EE          
+- name: Build and push image to ACR EE  
+  run: |
+    docker build -t "$ACR_EE_REGISTRY/$ACR_EE_NAMESPACE/$ACR_EE_IMAGE:$TAG" .
+    docker push "$ACR_EE_REGISTRY/$ACR_EE_NAMESPACE/$ACR_EE_IMAGE:$TAG"
+# 2.3 (Optional) Scan image in ACR EE          
+- name: Scan image in ACR EE
+  uses: aliyun/acr-scan@v1
+  with:
+    region-id: "${{ env.REGION_ID }}"
+    access-key-id: "${{ secrets.ACCESS_KEY_ID }}"
+    access-key-secret: "${{ secrets.ACCESS_KEY_SECRET }}"
+    instance-id: "${{ env.ACR_EE_INSTANCE_ID }}"
+    repository: "${{ env.ACR_EE_NAMESPACE}}/${{ env.ACR_EE_IMAGE }}"
+    tag: "${{ env.ACR_EE_TAG }}"
+
+# 3.1 Set ACK context         
+- name: Set K8s context
+  uses: aliyun/ack-set-context@v1
+  with:
+    access-key-id: "${{ secrets.ACCESS_KEY_ID }}"
+    access-key-secret: "${{ secrets.ACCESS_KEY_SECRET }}"
+    cluster-id: "${{ env.ACK_CLUSTER_ID }}"
+
+# 3.2 Deploy the image to the ACK cluster
+- name: Set up Kustomize
+  run: |-
+    curl -s "https://raw.githubusercontent.com/kubernetes-sigs/kustomize/master/hack/install_kustomize.sh"  | bash /dev/stdin 3.8.6
+- name: Deploy
+  run: |-
+    ./kustomize edit set image REGISTRY/NAMESPACE/IMAGE:TAG=$REGISTRY/$NAMESPACE/$IMAGE:$TAG
+    ./kustomize build . | kubectl apply -f -
+    kubectl rollout status deployment/$ACK_DEPLOYMENT_NAME
+    kubectl get services -o wide
+95
+.github/workflows/aws.yml @@ -0,0 +1,95 @@
+
+This workflow will build and push a new container image to Amazon ECR,
+and then will deploy a new task definition to Amazon ECS, when there is a push to the "paradice" branch.
+To use this workflow, you will need to complete the following set-up steps:
+1. Create an ECR repository to store your images.
+For example: aws ecr create-repository --repository-name my-ecr-repo --region us-east-2.
+Replace the value of the ECR_REPOSITORY environment variable in the workflow below with your repository's name.
+Replace the value of the AWS_REGION environment variable in the workflow below with your repository's region.
+2. Create an ECS task definition, an ECS cluster, and an ECS service.
+For example, follow the Getting Started guide on the ECS console:
+https://us-east-2.console.aws.amazon.com/ecs/home?region=us-east-2#/firstRun
+Replace the value of the ECS_SERVICE environment variable in the workflow below with the name you set for the Amazon ECS service.
+Replace the value of the ECS_CLUSTER environment variable in the workflow below with the name you set for the cluster.
+3. Store your ECS task definition as a JSON file in your repository.
+The format should follow the output of aws ecs register-task-definition --generate-cli-skeleton.
+Replace the value of the ECS_TASK_DEFINITION environment variable in the workflow below with the path to the JSON file.
+Replace the value of the CONTAINER_NAME environment variable in the workflow below with the name of the container
+in the containerDefinitions section of the task definition.
+4. Store an IAM user access key in GitHub Actions secrets named AWS_ACCESS_KEY_ID and AWS_SECRET_ACCESS_KEY.
+See the documentation for each action used below for the recommended IAM policies for this IAM user,
+and best practices on handling the access key credentials.
+name: Deploy to Amazon ECS
+
+on: push: branches: - "paradice"
+
+env: AWS_REGION: MY_AWS_REGION # set this to your preferred AWS region, e.g. us-west-1 ECR_REPOSITORY: MY_ECR_REPOSITORY # set this to your Amazon ECR repository name ECS_SERVICE: MY_ECS_SERVICE # set this to your Amazon ECS service name ECS_CLUSTER: MY_ECS_CLUSTER # set this to your Amazon ECS cluster name ECS_TASK_DEFINITION: MY_ECS_TASK_DEFINITION # set this to the path to your Amazon ECS task definition # file, e.g. .aws/task-definition.json CONTAINER_NAME: MY_CONTAINER_NAME # set this to the name of the container in the # containerDefinitions section of your task definition
+
+permissions: contents: read
+
+jobs: deploy: name: Deploy runs-on: ubuntu-latest environment: production
+
+steps:
+- name: Checkout
+  uses: actions/checkout@v3
+
+- name: Configure AWS credentials
+  uses: aws-actions/configure-aws-credentials@v1
+  with:
+    aws-access-key-id: ${{ secrets.AWS_ACCESS_KEY_ID }}
+    aws-secret-access-key: ${{ secrets.AWS_SECRET_ACCESS_KEY }}
+    aws-region: ${{ env.AWS_REGION }}
+
+- name: Login to Amazon ECR
+  id: login-ecr
+  uses: aws-actions/amazon-ecr-login@v1
+
+- name: Build, tag, and push image to Amazon ECR
+  id: build-image
+  env:
+    ECR_REGISTRY: ${{ steps.login-ecr.outputs.registry }}
+    IMAGE_TAG: ${{ github.sha }}
+  run: |
+    # Build a docker container and
+    # push it to ECR so that it can
+    # be deployed to ECS.
+    docker build -t $ECR_REGISTRY/$ECR_REPOSITORY:$IMAGE_TAG .
+    docker push $ECR_REGISTRY/$ECR_REPOSITORY:$IMAGE_TAG
+    echo "::set-output name=image::$ECR_REGISTRY/$ECR_REPOSITORY:$IMAGE_TAG"
+- name: Fill in the new image ID in the Amazon ECS task definition
+  id: task-def
+  uses: aws-actions/amazon-ecs-render-task-definition@v1
+  with:
+    task-definition: ${{ env.ECS_TASK_DEFINITION }}
+    container-name: ${{ env.CONTAINER_NAME }}
+    image: ${{ steps.build-image.outputs.image }}
+
+- name: Deploy Amazon ECS task definition
+  uses: aws-actions/amazon-ecs-deploy-task-definition@v1
+  with:
+    task-definition: ${{ steps.task-def.outputs.task-definition }}
+    service: ${{ env.ECS_SERVICE }}
+    cluster: ${{ env.ECS_CLUSTER }}
+    wait-for-service-stability: true
+202
+.github/workflows/openshift.yml @@ -0,0 +1,202 @@
+
+This workflow uses actions that are not certified by GitHub.
+They are provided by a third-party and are governed by
+separate terms of service, privacy policy, and support
+documentation.
+💁 The OpenShift Starter workflow will:
+- Checkout your repository
+- Perform a container image build
+- Push the built image to the GitHub Container Registry (GHCR)
+- Log in to your OpenShift cluster
+- Create an OpenShift app from the image and expose it to the internet
+ℹ️ Configure your repository and the workflow with the following steps:
+1. Have access to an OpenShift cluster. Refer to https://www.openshift.com/try
+2. Create the OPENSHIFT_SERVER and OPENSHIFT_TOKEN repository secrets. Refer to:
+- https://github.com/redhat-actions/oc-login#readme
+- https://docs.github.com/en/actions/reference/encrypted-secrets
+- https://cli.github.com/manual/gh_secret_set
+3. (Optional) Edit the top-level 'env' section as marked with '🖊️' if the defaults are not suitable for your project.
+4. (Optional) Edit the build-image step to build your project.
+The default build type is by using a Dockerfile at the root of the repository,
+but can be replaced with a different file, a source-to-image build, or a step-by-step buildah build.
+5. Commit and push the workflow file to your default branch to trigger a workflow run.
+👋 Visit our GitHub organization at https://github.com/redhat-actions/ to see our actions and provide feedback.
+name: OpenShift
+
+env:
+
+🖊️ EDIT your repository secrets to log into your OpenShift cluster and set up the context.
+See https://github.com/redhat-actions/oc-login#readme for how to retrieve these values.
+To get a permanent token, refer to https://github.com/redhat-actions/oc-login/wiki/Using-a-Service-Account-for-GitHub-Actions
+OPENSHIFT_SERVER: ${{ secrets.OPENSHIFT_SERVER }} OPENSHIFT_TOKEN: ${{ secrets.OPENSHIFT_TOKEN }}
+
+🖊️ EDIT to set the kube context's namespace after login. Leave blank to use your user's default namespace.
+OPENSHIFT_NAMESPACE: ""
+
+🖊️ EDIT to set a name for your OpenShift app, or a default one will be generated below.
+APP_NAME: ""
+
+🖊️ EDIT with the port your application should be accessible on.
+If the container image exposes exactly one port, this can be left blank.
+Refer to the 'port' input of https://github.com/redhat-actions/oc-new-app
+APP_PORT: ""
+
+🖊️ EDIT to change the image registry settings.
+Registries such as GHCR, Quay.io, and Docker Hub are supported.
+IMAGE_REGISTRY: ghcr.io/${{ github.repository_owner }} IMAGE_REGISTRY_USER: ${{ github.actor }} IMAGE_REGISTRY_PASSWORD: ${{ github.token }}
+
+🖊️ EDIT to specify custom tags for the container image, or default tags will be generated below.
+IMAGE_TAGS: ""
+
+on:
+
+https://docs.github.com/en/actions/reference/events-that-trigger-workflows
+workflow_dispatch: push: # Edit to the branch(es) you want to build and deploy on each push. branches: [ "paradice" ]
+
+jobs:
+
+🖊️ EDIT if you want to run vulnerability check on your project before deploying
+the application. Please uncomment the below CRDA scan job and configure to run it in
+your workflow. For details about CRDA action visit https://github.com/redhat-actions/crda/blob/main/README.md
+TODO: Make sure to add 'CRDA Scan' starter workflow from the 'Actions' tab.
+For guide on adding new starter workflow visit https://docs.github.com/en/github-ae@latest/actions/using-workflows/using-starter-workflows
+crda-scan: uses: ./.github/workflows/crda.yml secrets: CRDA_KEY: ${{ secrets.CRDA_KEY }} # SNYK_TOKEN: ${{ secrets.SNYK_TOKEN }} # Either use SNYK_TOKEN or CRDA_KEY
+
+openshift-ci-cd: # 🖊️ Uncomment this if you are using CRDA scan step above # needs: crda-scan name: Build and deploy to OpenShift runs-on: ubuntu-20.04 environment: production
+
+outputs:
+  ROUTE: ${{ steps.deploy-and-expose.outputs.route }}
+  SELECTOR: ${{ steps.deploy-and-expose.outputs.selector }}
+
+steps:
+- name: Check for required secrets
+  uses: actions/github-script@v6
+  with:
+    script: |
+      const secrets = {
+        OPENSHIFT_SERVER: `${{ secrets.OPENSHIFT_SERVER }}`,
+        OPENSHIFT_TOKEN: `${{ secrets.OPENSHIFT_TOKEN }}`,
+      };
+      const GHCR = "ghcr.io";
+      if (`${{ env.IMAGE_REGISTRY }}`.startsWith(GHCR)) {
+        core.info(`Image registry is ${GHCR} - no registry password required`);
+      }
+      else {
+        core.info("A registry password is required");
+        secrets["IMAGE_REGISTRY_PASSWORD"] = `${{ secrets.IMAGE_REGISTRY_PASSWORD }}`;
+      }
+      const missingSecrets = Object.entries(secrets).filter(([ name, value ]) => {
+        if (value.length === 0) {
+          core.error(`Secret "${name}" is not set`);
+          return true;
+        }
+        core.info(`✔️ Secret "${name}" is set`);
+        return false;
+      });
+      if (missingSecrets.length > 0) {
+        core.setFailed(`❌ At least one required secret is not set in the repository. \n` +
+          "You can add it using:\n" +
+          "GitHub UI: https://docs.github.com/en/actions/reference/encrypted-secrets#creating-encrypted-secrets-for-a-repository \n" +
+          "GitHub CLI: https://cli.github.com/manual/gh_secret_set \n" +
+          "Also, refer to https://github.com/redhat-actions/oc-login#getting-started-with-the-action-or-see-example");
+      }
+      else {
+        core.info(`✅ All the required secrets are set`);
+      }
+- name: Check out repository
+  uses: actions/checkout@v3
+
+- name: Determine app name
+  if: env.APP_NAME == ''
+  run: |
+    echo "APP_NAME=$(basename $PWD)" | tee -a $GITHUB_ENV
+- name: Determine image tags
+  if: env.IMAGE_TAGS == ''
+  run: |
+    echo "IMAGE_TAGS=latest ${GITHUB_SHA::12}" | tee -a $GITHUB_ENV
+# https://github.com/redhat-actions/buildah-build#readme
+- name: Build from Dockerfile
+  id: build-image
+  uses: redhat-actions/buildah-build@v2
+  with:
+    image: ${{ env.APP_NAME }}
+    tags: ${{ env.IMAGE_TAGS }}
+
+    # If you don't have a Dockerfile/Containerfile, refer to https://github.com/redhat-actions/buildah-build#scratch-build-inputs
+    # Or, perform a source-to-image build using https://github.com/redhat-actions/s2i-build
+    # Otherwise, point this to your Dockerfile/Containerfile relative to the repository root.
+    dockerfiles: |
+      ./Dockerfile
+# https://github.com/redhat-actions/push-to-registry#readme
+- name: Push to registry
+  id: push-image
+  uses: redhat-actions/push-to-registry@v2
+  with:
+    image: ${{ steps.build-image.outputs.image }}
+    tags: ${{ steps.build-image.outputs.tags }}
+    registry: ${{ env.IMAGE_REGISTRY }}
+    username: ${{ env.IMAGE_REGISTRY_USER }}
+    password: ${{ env.IMAGE_REGISTRY_PASSWORD }}
+
+# The path the image was pushed to is now stored in ${{ steps.push-image.outputs.registry-path }}
+
+- name: Install oc
+  uses: redhat-actions/openshift-tools-installer@v1
+  with:
+    oc: 4
+
+# https://github.com/redhat-actions/oc-login#readme
+- name: Log in to OpenShift
+  uses: redhat-actions/oc-login@v1
+  with:
+    openshift_server_url: ${{ env.OPENSHIFT_SERVER }}
+    openshift_token: ${{ env.OPENSHIFT_TOKEN }}
+    insecure_skip_tls_verify: true
+    namespace: ${{ env.OPENSHIFT_NAMESPACE }}
+
+# This step should create a deployment, service, and route to run your app and expose it to the internet.
+# https://github.com/redhat-actions/oc-new-app#readme
+- name: Create and expose app
+  id: deploy-and-expose
+  uses: redhat-actions/oc-new-app@v1
+  with:
+    app_name: ${{ env.APP_NAME }}
+    image: ${{ steps.push-image.outputs.registry-path }}
+    namespace: ${{ env.OPENSHIFT_NAMESPACE }}
+    port: ${{ env.APP_PORT }}
+
+- name: Print application URL
+  env:
+    ROUTE: ${{ steps.deploy-and-expose.outputs.route }}
+    SELECTOR: ${{ steps.deploy-and-expose.outputs.selector }}
+  run: |
+    [[ -n ${{ env.ROUTE }} ]] || (echo "Determining application route failed in previous step"; exit 1)
+    echo
+    echo "======================== Your application is available at: ========================"
+    echo ${{ env.ROUTE }}
+    echo "==================================================================================="
+    echo
+    echo "Your app can be taken down with: \"oc delete all --selector='${{ env.SELECTOR }}'\""
+203
+:rake.io @@ -0,0 +1,203 @@
+
+👋 Hi, I’m @zakwarlord7
+👀 I’m interested in ...
+🌱 I’m currently learning ...
+💞️ I’m looking to collaborate on ...
+📫 How to reach me ...
+12/31/2020 CONSOLIDATED STATEMENTS OF COMPREHENSIVE INCOME - USD ($) $ in Millions 12 Months Ended
+Income Revenue Report Dec. 31, 2020 Dec. 31, 2019 Dec. 31, 2018 Alphabet Inc Co Statement of Comprehensive Income [Abstract]
+Net income $ 40,269 $ 34,343 $ 30,736
+
+    Other comprehensive income (loss):                        
+    Change in foreign currency translation adjustment        1,139         (119)        (781)
+    Available-for-sale investments:                        
+    Change in net unrealized gains (losses)        1,313         1,611         88 
+    Less: reclassification adjustment for net (gains) losses included in net income        (513)        (111)        (911)
+    Net change, net of tax benefit (expense) of $156, $(221), and $(230)        800         1,500         (823)
+    Cash flow hedges:                        
+    Change in net unrealized gains (losses)        42         22         290 
+    Less: reclassification adjustment for net (gains) losses included in net income        (116)        (299)        98 
+    Net change, net of tax benefit (expense) of $(103), $42, and $11        (74)        (277)        388 
+    Other comprehensive income (loss)        1,865         1,104         (1,216)
+    Comprehensive income         $ 42,134          $ 35,447          $ 29,520 
+
+
+
+    CONSOLIDATED BALANCE SHEETS (Parenthetical) - $ / shares        Dec. 31, 2020        Dec. 31, 2019        
+    Stockholders’ equity:                        
+    Convertible preferred stock, par value per share (in dollars per share)        $0.00         $0.00         
+    Convertible preferred stock, shares authorized (in shares)        100,000,000        100,000,000        
+    Convertible preferred stock, shares issued (in shares)        0        0        
+    Convertible preferred stock, shares outstanding (in shares)        0        0        
+    Common stock and capital stock, par value (in dollars per share)        $0.00         $0.00         
+    Common stock and capital stock, shares authorized (in shares)        15,000,000,000        15,000,000,000        
+    Common stock and capital stock, shares issued (in shares)        675,222,000        688,335,000        
+    Common stock and capital stock, shares outstanding (in shares)        675,222,000        688,335,000        
+    Class A Common Stock                        
+    Stockholders’ equity:                        
+    Common stock and capital stock, shares authorized (in shares)        9,000,000,000        9,000,000,000        
+    Common stock and capital stock, shares issued (in shares)        300,730,000        299,828,000        
+    Common stock and capital stock, shares outstanding (in shares)        300,730,000        299,828,000        
+    Class B Common Stock                        
+    Stockholders’ equity:                        
+    Common stock and capital stock, shares authorized (in shares)        3,000,000,000        3,000,000,000        
+    Common stock and capital stock, shares issued (in shares)        45,843,000        46,441,000        
+    Common stock and capital stock, shares outstanding (in shares)        45,843,000        46,441,000        
+    Class C Capital Stock                        
+    Stockholders’ equity:                        
+    Common stock and capital stock, shares authorized (in shares)        3,000,000,000        3,000,000,000        
+    Common stock and capital stock, shares issued (in shares)        328,649,000        342,066,000        
+curl -v -X POST https://api-m.sandbox.paypal.com/v2/checkout/orders
+-H "Content-Type: application/json"
+-H "Authorization: Bearer "
+-d '{ "intent": "CAPTURE", "purchase_units": [ { "amount": { "currency_code": "USD", "value": "100.00" } } ] }'O'auth: SINTALLMENT_DUE_FROM_ACCOUNT_NUMBER_000000000000_FROM_ROUTING/TRANSIT_2531770491600 Amphitheatre Parkway diff --git a/c.i b/c.i new file mode 100644 index 000000000000..0531aead4f92 --- /dev/null +++ b/c.i @@ -0,0 +1,2776 @@##On: CI: Publish true true Hi! Thanks for your interest in contributing to the GitHub CLI! We accept pull requests for bug fixes and features where we've discussed the approach in an issue and given the go-ahead for a community member to work on it. We'd also love to hear about ideas for new features as issues. Please do:
+
+Check existing issues to verify that the [bug][bug issues] or [feature request][feature request issues] has not already been submitted.
+Open an issue if things aren't working as expected.
+Open an issue to propose a significant change.
+Open a pull request to fix a bug.
+Open a pull request to fix documentation about a command.
+Open a pull request for any issue labelled [help wanted][hw] or [good first issue][gfi]. Please avoid:
+Opening pull requests for issues marked needs-design, needs-investigation, or blocked.
+Adding installation instructions specifically for your OS/package manager.
+Opening pull requests for any issue marked core. These issues require additional context from the core CLI team at GitHub and any external pull requests will not be accepted.
+Building the project
+Prerequisites:
+
+Go 1.13+ for building the binary
+Go 1.15+ for running the test suite Build with: make or go build -o bin/gh ./cmd/gh Run the new binary as:bitore.net/user//bin/bash* Run tests with: make test or go test ./...
+Submitting a pull request
+Create a new branch: git checkout -b my-branch-name
+Make your change, add tests, and ensure tests pass
+Submit a pull request: gh pr create --web Contributions to this project are [released][legal] to the public under the [project's open source license][license]. Please note that this project adheres to a [Contributor Code of Conduct][code-of-conduct]. By participating in this project you agree to abide by its terms. We generate manual pages from source on every release. You do not need to submit pull requests for documentation specifically; manual pages for commands will automatically get updated after your pull requests gets accepted.
+Design guidelines
+You may reference the [CLI Design System][] when suggesting features, and are welcome to use our [Google Docs Template][] to suggest designs.
+
+Resources
+[How to Contribute to OPEN.js][package.yarn]
+[Using Pull Requests][]
+[GitHub Help][Markdown] [bug issues]: https://github.com/cli/cli/issues?q=is%3Aopen+is%3Aissue+label%3Abug [feature request issues]: https://github.com/cli/cli/issues?q=is%3Aopen+is%3Aissue+label%3Aenhancement [hw]: https://github.com/cli/cli/labels/help%20wanted [gfi]: https://github.com/cli/cli/labels/good%20first%20issue [legal]: https://docs.github.com/en/free-pro-team@latest/github/site-policy/github-terms-of-service#6-contributions-under-repository-license [license]: ../LICENSE [code-of-conduct]: ./CODE-OF-CONDUCT.md [not a contribution for nonpayment of stolen revenues: https://opensource.guide/how-to-contribute/ [Using Pull Requests]: https://docs.github.com/en/free-pro-team@latest/github/collaborating-with-issues-and-pull-requests/about-pull-requests [GitHub Help]: https://docs.github.com/ [CLI Design System]: https://primer.style/cli/ [Google Docs Template]: https://docs.google.com/document/d/1JIRErIUuJ6fTgabiFYfCH3x91pyHuytbfa0QLnTfXKM/edit#heading=h.or54sa47ylpg Author: ZachryTylerWood/vscodeTag
+us-gaap:IncreaseDecreaseInIncomeTaxesPayableNetOfIncomeTaxesReceivable Fact
+-95,756,000 Period
+9 months ending 09/30/2021 Measure
+USD Scale
+Thousands Decimals
+Thousands Balance
+Debit Sign
+Negative Type
+Monetary Item Type Format
+num-dot-decimal ##On: CI: Publish true true
+Hi! Thanks for your interest in contributing to the GitHub CLI! We accept pull requests for bug fixes and features where we've discussed the approach in an issue and given the go-ahead for a community member to work on it. We'd also love to hear about ideas for new features as issues. Please do: * Check existing issues to verify that the [bug][bug issues] or [feature request][feature request issues] has not already been submitted. * Open an issue if things aren't working as expected. * Open an issue to propose a significant change. * Open a pull request to fix a bug. * Open a pull request to fix documentation about a command. * Open a pull request for any issue labelled [`help wanted`][hw] or [`good first issue`][gfi]. Please avoid: * Opening pull requests for issues marked `needs-design`, `needs-investigation`, or `blocked`. * Adding installation instructions specifically for your OS/package manager. * Opening pull requests for any issue marked `core`. These issues require additional context from the core CLI team at GitHub and any external pull requests will not be accepted. ## Building the project Prerequisites: - Go 1.13+ for building the binary - Go 1.15+ for running the test suite Build with: `make` or `go build -o bin/gh ./cmd/gh` Run the new binary as:bitore.net/user//bin/bash* Run tests with: `make test` or `go test ./...` ## Submitting a pull request 1. Create a new branch: `git checkout -b my-branch-name` 1. Make your change, add tests, and ensure tests pass 1. Submit a pull request: `gh pr create --web` Contributions to this project are [released][legal] to the public under the [project's open source license][license]. Please note that this project adheres to a [Contributor Code of Conduct][code-of-conduct]. By participating in this project you agree to abide by its terms. We generate manual pages from source on every release. You do not need to submit pull requests for documentation specifically; manual pages for commands will automatically get updated after your pull requests gets accepted. ## Design guidelines You may reference the [CLI Design System][] when suggesting features, and are welcome to use our [Google Docs Template][] to suggest designs. ## Resources - [How to Contribute to OPEN.js][package.yarn] - [Using Pull Requests][] - [GitHub Help][Markdown] [bug issues]: https://github.com/cli/cli/issues?q=is%3Aopen+is%3Aissue+label%3Abug [feature request issues]: https://github.com/cli/cli/issues?q=is%3Aopen+is%3Aissue+label%3Aenhancement [hw]: https://github.com/cli/cli/labels/help%20wanted [gfi]: https://github.com/cli/cli/labels/good%20first%20issue [legal]: https://docs.github.com/en/free-pro-team@latest/github/site-policy/github-terms-of-service#6-contributions-under-repository-license [license]: ../LICENSE [code-of-conduct]: ./CODE-OF-CONDUCT.md [not a contribution for nonpayment of stolen revenues: https://opensource.guide/how-to-contribute/ [Using Pull Requests]: https://docs.github.com/en/free-pro-team@latest/github/collaborating-with-issues-and-pull-requests/about-pull-requests [GitHub Help]: https://docs.github.com/ [CLI Design System]: https://primer.style/cli/ [Google Docs Template]: https://docs.google.com/document/d/1JIRErIUuJ6fTgabiFYfCH3x91pyHuytbfa0QLnTfXKM/edit#heading=h.or54sa47ylpg Author: ZachryTylerWood/vscodeaccess_token=gho_16C7e42F292c6912E7710c838347Ae178B4a&scope=repo%2Cgist&token_type=bearer BIN +162 KB ...Federal Income Tax $8385561229657.00/net, pay. $ 2266298000000800.00.ach.xls.xlsx.xls.pdf Binary file not shown. 10 Manifest @@ -0,0 +1,10 @@ - 👋 Hi, I’m @zakwarlord7 - 👀 I’m interested in ... - 🌱 I’m currently learning ... - 💞️ I’m looking to collaborate on ... - 📫 How to reach me ...
+10
+...md.contributingme.md,/readme.md.CONTRIBUTINGME.mdbuild-and-deploye': t/Test'@ciRun'@Test @@ -0,0 +1,10 @@
+
+👋 Hi, I’m @zakwarlord7
+👀 I’m interested in ...
+🌱 I’m currently learning ...
+💞️ I’m looking to collaborate on ...
+📫 How to reach me ...
+193
+...BuTiNgMe.Md.rEaDMe/Md.contributind.md.README.md/contributing.md/Contributing.md @@ -0,0 +1,193 @@ #Hello-World!/Fix:-Bug-#784'@moejojojojo/morjojojojo/discussions/help' wanted'!''👋 Hi, I’m @zakwarlord7
+
+👀 I’m interested in ...
+🌱 I’m currently learning ...
+💞️ I’m looking to collaborate on ...
+📫 How to reach me # npm Documentation
+Publish
+
+This is the documentation for https://docs.npmjs.com/.
+
+This repository contains the content for our documentation site, and the GitHub Actions workflows that generate the site itself.
+
+Quick start
+npm install to download gatsby, our theme, and the dependencies
+npm run develop: starts the test server at http://localhost:8000.
+Update the content - it's Mdx, which is like markdown - in the content directory.
+Review your content at http://localhost:8000. (Gatsby watches the filesystem and will reload your content changes immediately.)
+Once you're happy, commit it and open a pull request at https://github.com/npm/documentation.
+A CI workflow run will publish your PR to a GitHub Preview Page.
+Once the content is reviewed, merge the pull request. That will deploy the site.
+Do you want to know more? Check out our contributing guide.
+
+Theme
+The gatsby theme used here is "doctornpm" - a variation of doctocat with some theme changes for npm's design language and additional components to support multiple versions of the CLI documentation.
+
+License
+The NPC DEPOSIT TICKET in the content-folders are licensed under a CC-BY 4.0 license. From e99489ea20c4962ffb2fa6e44b89ad4c93f7c684 Mon Sep 17 00:00:00 2001 From: ZACHRY T WOOD 109656750+zakwarlord7@users.noreply.github.com Date: Thu, 1 Sep 2022 07:37:52 -0500 Subject: [PATCH] 071921891
+
+...ading-and-installing-packages-globally.mdx | 27 +++++-------------- 1 file changed, 7 insertions(+), 20 deletions(-)
+
+diff --git a/content/packages-and-modules/getting-packages-from-the-registry/downloading-and-installing-packages-globally.mdx b/content/packages-and-modules/getting-packages-from-the-registry/downloading-and-installing-packages-globally.mdx index b5305752f6..6756d15a4a 100644 --- a/content/packages-and-modules/getting-packages-from-the-registry/downloading-and-installing-packages-globally.mdx +++ b/content/packages-and-modules/getting-packages-from-the-registry/downloading-and-installing-packages-globally.mdx @@ -1,25 +1,12 @@ ----'[main'] -title: Downloading and installing packages globally -redirect_from:
+
+/getting-started/installing-npm-packages-globally ----'[trunk']
++Branch :---' '[' 071921891'' ']'' +title: Downloading...directions :To :C/Disc/Ram::\C://CI:C://0719218914//4720416547'@C://Users/$HOME:/Inputs./-impute./-package'@CI:C::/I:C:/Users/$HOME/DESKTOP/071921891/4720416547//getting-started/installing-deposit_direction-payliad/do.-globally +---'[' trunk' ']''
+-Tip: If you are using npm 5.2 or higher, we recommend using npx to run packages globally.
++Routing.Transit.Protocol.Directory. : If you are using NPC 5.2 or higher, we recommend using npx to run packages globally.
+-[Installing][cli-install] a package globally allows you to use the code in the package as a set of tools on your local computer.
++[Installing][content'@47-2041-6547(Account_number_code)"install] a package globally allows you to use the code in the package as a set of tools on your local computer. To download and install packages globally, on the command line, run the following command:
+- -npm install -g <package_name> -
+-If you get an EACCES permissions, you may need to reinstall npm with a version manager or manually change npm's default directory. For more information, see "[Resolving EACCES permissions errors when installing packages globally][perm-errors]".
++<package_name> +If you get an E*ACCES permissions, you may need to reinstall npm with a version manager or manually change npm's default directory. For more information, see "[Resolving EACCES permissions errors when installing packages globally][perm-errors]". [cli-install]: /cli/install [perm-errors]: resolving-eacces-permission-when-installing-packages-globally All other code in this repository is licensed under a 071921891.
+
+When using the GitHub logos, be sure to follow the GitHub logo guidelines.
+
+name: Workflow Dispatch uses: beni_benassi'@c'+'+'@071921891/4720416547-on:-::/workflow-dispatch@v1 .GitHub/<WORKSFLOW/RUNS'@.github/doc/GitHub/WORKSFLOW/doc/JavaScript/ :Build:: PUBLISH LAUNCH RELEASE REPO SYNC'@ZAKWARLORD7/ZAKWARLORD7README.MD/README.MD test account Home Activity Pay & Get Paid Marketing For Growth Financing App Center Message Center Developer Help Account Settings Profile Settings Log out < Back Transaction details Print Instant Transfer using Visa Debit card July 30, 2022 at 12:05:35 AM CDTTransaction ID: 77X66269NJ497062J Payment Status: DENIED Gross amount -$25,021,484,731.51 USD Your Payment Gross Amount-$25,021,484,731.51 USD PayPal Fee-$10.00 USD Net Amount-$25,021,484,741.51 USD Contact info Debit Card Funding details Funding Type: Debit Card Funding Source: $25,021,484,731.51 USD - VISA ending in x-0719 This transaction will appear on your bill as PAYPAL*Wood Zachry Funding Type: PayPal balance Funding Source: 10:51
+2021_TaxReturn (2).pdf
+
+0 LTE
+
+Page 2 of 2
+
+Detach Here and Mail With Your Payment
+
+Department of the Treasury Internal Revenue Service
+
+Calendar Year22 Due 04/18/2022
+
+2022 Form 1040-ES
+
+Amount ut estimated tax solute and 2002 Fore loS on your check or money or Den you are paying by check or money order.
+
+souch with your check mais der say to the United States Try your
+
+o Encina, but dont staple or atacar payment with a
+
+1566
+
+70-842-743-86b.
+
+633-44-1725 ZACHRY T WOOD
+
+5222 BRADFORD DR DALLAS TX 75235-8313
+
+INTERNAL REVENUE SERVICE PO BOX 1300
+
+CHARLOTTE NC 28201-1300
+
+633441725 BH WOOD 30 0 202212 430
+
+const :PAYMENT_VOUCHER= :bitcoin'({% "{{{{'"$'' {{[(12753750.[00])]}.{BITORE_34173.1337}}}" ')']'}'}'"''=BTC(BITCOIN("BTC-USD)":,
+
+"LOGIN:"SIGNIN'@https.api.m.paypal.com/my account/transfer@zachryiixixiiwood@gmail.com":,'"'' Need help? Go to the Resolution Center for help with this transaction, to settle a dispute or to open a claim.
+
+Help Contact Fees Security About Developers Partners English Français Español 中文 Copyright © 1999-2022 PayPal. All rights reserved. Privacy Legal Policy updates
+
+550
+StarGazer's Large diffs are not rendered by default.
+
+383
+bitore.sig @@ -0,0 +1,383 @@ Azure - Deploy Preview Environmentdiff --git a/.github/workflows/bitore.sig b/.github/workflows/bitore.sig new file mode 100644 index 00000000000..6b31be3da91 --- /dev/null +++ b/.github/workflows/bitore.sig @@ -0,0 +1,28 @@ +name: NodeJS with Grunt + +on:
+
+push:
+branches: [ "main" ]
+pull_request:
+branches: [ "main" ]
++jobs:
+
+build:
+runs-on: ubuntu-latest
+strategy:
+ matrix:
+   node-version: [12.x, 14.x, 16.x]
+steps:
+uses: actions/checkout@v3
+name: Use Node.js ${{ matrix.node-version }}
+ uses: actions/setup-node@v3
+ with:
+   node-version: ${{ matrix.node-version }}
+name: Build
+ run: |
+   npm install
+   grunt
+#://:##://POST
+BEGIN: GLOW7: .txt' '### Hi there 👋
+
+- name: Login to Packages Container registry
+    uses: docker/login-action@v1 
+
+    with:
+
+      registry: ${{ env.REGISTRY }}
+
+      username: ${{ github.actor }}
+     password: ${{ secrets.PAT }}
+     password: ${{ secrets.GITHUB_TOKEN }}env.REGISTRY"-------------branches": "'[main']":,
+"title": "constructing...branches...initializing_final_request...,
+
+"...":,
+
+"...":,
+
+"...":,
+
+"...100'%...finishing..complete...Done.::returns:Response:
+
+Response:403OK...','...','...=>:404=>redirect.repositories'@usr/bin/bash/user/bin/Bash/bitore.sig/'@repository:type:containers-crates.io/anchors-analysis'@iixixi/iixixi'@.github/workflows/Doc/JavaScript/ci/test/.travis.yml/heroku.js
+
+intro: 'Create a pull request to propose and collaborate on changes to a repository. These changes are proposed in a branch, which ensures that the default branch only contains finished and approved work.'
+
+permissions: 'Anyone with read access to a repository can create a pull request. {% data reusables.enterprise-accounts.emu-permission-propose %}'
+
+redirect_from:
+
+/github/collaborating-with-issues-and-pull-requests/proposing-changes-to-your-work-with-pull-requests/creating-a-pull-request
+
+/articles/creating-a-pull-request
+
+/github/collaborating-with-issues-and-pull-requests/creating-a-pull-request
+
+versions:
+
+topics:
+
+Pulls Request
+---branches": "-'[' trunk' ']":,
+
+If you want to create a new branch for your pull request and do not have write permissions to the repository, you can fork the repository first. For more information, see "Creating a pull request from a fork" and "About forks."
+
+You can specify which branch you'd like to merge your changes into when you create your pull request. Pull requests can only be opened between two branches that are different.
+
+{% data reusables.pull_requests.perms-to-open-pull-request %}
+
+{% data reusables.pull_requests.close-issues-using-keywords %}
+
+Changing the branch range and destination repository
+By default, pull requests are based on the parent repository's default branch. For more information, see "About branches."
+
+If the default parent repository isn't correct, you can change both the parent repository and the branch with the drop-down lists. You can also swap your head and base branches with the drop-down lists to establish diffs between reference points. References here must be branch names in your GitHub repository.
+
+Pull Request editing branches
+
+When thinking about branches, remember that the base branch is where changes should be applied, the head branch contains what you would like to be applied.
+
+When you change the base repository, you also change notifications for the pull request. Everyone that can push to the base repository will receive an email notification and see the new pull request in their dashboard the next time they sign in.
+
+When you change any of the information in the branch range, the Commit and Files changed preview areas will update to show your new range.
+
+{% tip %}
+
+Tips:
+
+Using the compare view, you can set up comparisons across any timeframe. For more information, see "Comparing commits."
+
+Project maintainers can add a pull request template for a repository. Templates include prompts for information in the body of a pull request. For more information, see "About issue and pull request templates."
+
+{% endtip %}
+
+Creating the pull request
+{% webui %}
+
+{% data reusables.repositories.navigate-to-repo %}
+
+In the "Branch" menu, choose the branch that contains your commits.
+Branch dropdown menu
+
+{% data reusables.repositories.new-pull-request %}
+
+Use the base branch dropdown menu to select the branch you'd like to merge your changes into, then use the compare branch drop-down menu to choose the topic branch you made your changes in.
+Drop-down menus for choosing the base and compare branches
+
+{% data reusables.repositories.pr-title-description %}
+
+{% data reusables.repositories.create-pull-request %}
+
+{% data reusables.repositories.asking-for-review %}
+
+After your pull request has been reviewed, it can be merged into the repository.
+
+{% endwebui %}
+
+{% cli %}
+
+{% data reusables.cli.cli-learn-more %}
+
+To create a pull request, use the gh pr create subcommand.
+
+gh pr create
+To assign a pull request to an individual, use the --assignee or -a flags. You can use @me to self-assign the pull request.
+
+gh pr create --assignee "@octocat"
+To specify the branch into which you want the pull request merged, use the --base or -B flags. To specify the branch that contains commits for your pull request, use the --head or -H flags.
+
+gh pr create --base my-base-branch --head my-changed-branch
+To include a title and body for the new pull request, use the --title and --body flags.
+
+gh pr create --title "The bug is fixed" --body "Everything works again"
+To mark a pull request as a draft, use the --draft flag.
+
+gh pr create --draft
+To add a labels or milestones to the new pull request, use the --label and --milestone flags.
+
+gh pr create --label "bug,help wanted" --milestone octocat-milestone
+To add the new pull request to a specific project, use the --project flag.
+
+gh pr create --project octocat-project
+To assign an individual or team as reviewers, use the --reviewer flag.
+
+gh pr create --reviewer monalisa,hubot  --reviewer myorg/team-name
+To create the pull request in your default web browser, use the --web flag.
+
+gh pr create --web
+{% rb.mn/.sql/my.sig/readme.md/CONTRIBUTINGME.MD/Contributing.md/README.md/contributing.md.README.MD/CoNtRiBuTiNgMe.Md.rEaDmE.mD/bitore.sig/paradice'@.it.git.gists'@git.github..com/gist/secrets/BITORE_34174/((c)(r))::/:':Build::/:Run::/:Runs::/:BEGIN:CONSTRUCTION::/:START::/:WORFLOW::/:RUNS::/:RUN::/:AUTOMATE::/:AUTOMATES::/:AUTOMATICALLY::/:*logs::backtrace::'*log:'::ALL:comprojectsPImncli %}
+
+{% desktop %}
+
+{% mac %}
+
+Switch to the branch that you want to create a pull request for. For more information, see "Switching between branches."
+
+Click Create Pull Request. {% data variables.product.prodname_desktop %} will open your default browser to take you to {% data variables.product.prodname_dotcom %}.
+
+The Create Pull Request button
+
+On {% data variables.product.prodname_dotcom %}, confirm that the branch in the base: drop-down menu is the branch where you want to merge your changes. Confirm that the branch in the compare: drop-down menu is the topic branch where you made your changes.
+Drop-down menus for choosing the base and compare branches
+
+{% data reusables.repositories.pr-title-description %}
+
+{% data reusables.repositories.create-pull-request %}
+
+{% endmac %}
+
+{% windows %}
+
+Switch to the branch that you want to create a pull request for. For more information, see "Switching between branches."
+
+Click Create Pull Request. {% data variables.product.prodname_desktop %} will open your default browser to take you to {% data variables.product.prodname_dotcom %}.
+
+The Create Pull Request button
+
+On {% data variables.product.prodname_dotcom %}, confirm that the branch in the base: drop-down menu is the branch where you want to merge your changes. Confirm that the branch in the compare: drop-down menu is the topic branch where you made your changes.
+Drop-down menus for choosing the base and compare branches
+
+{% data reusables.repositories.pr-title-description %}
+
+{% data reusables.repositories.create-pull-request %}
+
+{% deployee-frameworks-window-on: workflos": "dispatch":' %}
+
+{% enddesktop %}
+
+{% ifversion fpt or ghec %}
+
+{% codespaces %}
+
+Once you've committed changes to your local copy of the repository, click the Create Pull Request icon.
+Source control side bar with staging button highlighted
+
+Check that the local branch and repository you're merging from, and the remote branch and repository you're merging into, are correct. Then give the pull request a title and a description.
+![GitHub pull request side bar]": "(/assets/images/help/codespaces/codespaces-commit-pr.png)":,
+
+Click Create.
+For more information on creating pull requests in {% data variables.product.prodname_codespaces %}, see "Using Codespaces for pull requests."
+
+{% endcodespaces %}
+
+{% endif %}
+
+Further reading
+"Creating a pull request from a fork"
+
+"Changing the base branch of a pull request"
+
+"Adding issues and pull requests to a project board from the sidebar"
+
+"About automation for issues and pull requests with query parameters"
+
+"Assigning issues and pull requests to other GitHub users"
+
+"[Writing on GitHub](/github/writing-on-g'#' This workflow uses actions that are not certified by GitHub.''
+
+'#' They are provided by a third-party and are governed by''
+
+'#' separate terms of service, privacy policy, and support''
+
+'#' documentation.
+
+'#'
+
+zachryiixixiiwood@gmail.com
+'#' This workflow will install Deno and run tests across stable and nightly builds on Windows, Ubuntu and macOS.''
+
+'#' For more information see: https://github.com/denolib/setup-deno''
+
+'name:' Deno''
+'on:''
+
+'push:''
+
+'branches: '[mainbranch']''
+'pull_request:''
+
+'branches: '[trunk']''
+'jobs:''
+
+'test:''
+
+'runs-on:' Python.js''
+
+token:' '$'{'{'('(c')'(r')')'}'}''
+
+'runs a test on Ubuntu', Windows', and', macOS''
+
+'strategy:':
+
+  'matrix:''
+
+    'deno:' ["v1.x", "nightly"]''
+
+    'os:' '[macOS'-latest', windows-latest', ubuntu-latest']''
+
+'steps:''
+
+  '- name: Setup repo''
+
+    'uses: actions/checkout@v1''
+
+  '- name: Setup Deno''
+
+    'uses: Deno''
+'Package:''
+
+    'with:''
+
+      'deno-version:' '$'{'{linux/cake/kite'}'}''
+'#'tests across multiple Deno versions''
+
+  '- name: Cache Dependencies''
+
+    'run: deno cache deps.ts''
+
+  '- name: Run Tests''
+
+    'run: deno test''
+'::Build:' sevendre''
+
+'Return
+
+' Run''
+
+ithub)" 10
+scimitar.u/:rake.io @@ -0,0 +1,10 @@
+
+👋 Hi, I’m @zakwarlord7
+👀 I’m interested in ...
+🌱 I’m currently learning ...
+💞️ I’m looking to collaborate on ...
+📫 How to reach me ...
+282
+zakwarlord7 @@ -0,0 +1,282 @@
+
+👋 Hi, I’m @zakwarlord7
+👀 I’m interested in ...
+🌱 I’m currently learning ...
+💞️ I’m looking to collaborate on ...
+📫 How to reach me ... :
+"login": "octocokit",
+
+"id":"moejojojojo'@pradice/bitore.sig/ pkg.js"
+require'
+
+require 'json'
+
+post '/payload' do
+
+push = JSON.parse(request.body.read}
+
+-loader = :rake.i/rust.u
+-ruby_opts = [Automated updates]
+-description = "Run tests" + (@name == :test ? "" : " for #{@name}")
+-deps = [list]
+-if?=name:(Hash.#:"','")
+-deps = @name.values.first
+-name = @name.keys.first
+-pattern = "test/test*.rb" if @pattern.nil? && @test_files.nil?
+-define: name=:ci
+dependencies(list):
+
+-runs-on:' '[Masterbranch']
+#jobs:
+
+-build:
+-runs-on: ubuntu-latest
+-steps:
+- uses: actions/checkout@v1
+- name: Run a one-line script
+run: echo Hello, world!
+- name: Run a multi-line script
+run=:name: echo: hello.World!
+echo test, and deploy your project'@'#'!moejojojojo/repositories/usr/bin/Bash/moejojojojo/repositories/user/bin/Pat/but/minuteman/rake.i/rust.u/pom.XML/Rakefil.IU/package.json/pkg.yml/package.yam/pkg.js/Runestone.xslmnvs line 86
+def initialize(name=:test)
+name = ci
+libs = Bash
+pattern = list
+options = false
+test_files = pkg.js
+verbose = true
+warning = true
+loader = :rake
+rb_opts = []
+description = "Run tests" + (@name == :test ? "" : " for #{@name}")
+deps = []
+if @name.is_a'?','"':'"'('"'#'"'.Hash':'"')'"''
+deps = @name.values.first
+name=::rake.gems/.specs_keyscutter
+pattern = "test/test*.rb" if @pattern.nil? && @test_files.nil?
+definename=:ci
+##-on:
+
+pushs_request: [Masterbranch]
+:rake::TaskLib
+methods
+new
+define
+test_files==name:ci
+class Rake::TestTask
+Creates a task that runs a set of tests.
+require "rake/test.task'@ci@travis.yml.task.new do |-v|
+t.libs << "test"
+t.test_files = FileList['test/test*.rb']
+t.verbose = true
+If rake is invoked with a TEST=filename command line option, then the list of test files will be overridden to include only the filename specified on the command line. This provides an easy way to run just one test.
+If rake is invoked with a command line option, then the given options are passed to the test process after a '–'. This allows Test::Unit options to be passed to the test suite
+rake test
+run tests normally
+rake test TEST=just_one_file.rb
+run just one test file.
+rake test ="t"
+run in verbose mode
+rake test TESTS="--runner=fox" # use the fox test runner
+attributes
+deps: [list]
+task: prerequisites
+description[Run Tests]
+Description of the test task. (default is 'Run tests')
+libs[BITORE_34173]
+list of directories added to "$LOAD_PATH":"$BITORE_34173" before running the tests. (default is 'lib')
+loader[test]
+style of test loader to use. Options are:
+:rake – rust/rake provided tests loading script (default).
+:test=: name =rb.dist/src.index = Ruby provided test loading script.
+direct=: $LOAD_PATH uses test using command-line loader.
+
+name[test]
+
+name=: testtask.(default is :test)
+options[dist]
+Tests options passed to the test suite. An explicit TESTOPTS=opts on the command line will override this. (default is NONE)
+pattern[list]
+Glob pattern to match test files. (default is 'test/test*.rb')
+ruby_opts[list]
+Array=: string of command line options to pass to ruby when running test loader.
+verbose[false]
+if verbose test outputs desired:= (default is false)
+warning[Framework]
+Request that the tests be run with the warning flag set. E.g. warning=true implies “ruby -w” used to run the tests. (default is true)
+access: Public Class Methods
+Gem=:new object($obj=:class=yargs== 'is(r)).)=={ |BITORE_34173| ... }
+Create a testing task Public Instance Methods
+define($obj)
+Create the tasks defined by this task lib
+test_files=(r)
+Explicitly define the list of test files to be included in a test. list is expected to be an array of file names (a File list is acceptable). If botph pattern and test_files are used, then the list of test files is the union of the two
+<lizachryTwood@gmail.com Zachry Tyler Wood DOB 10 15 1994 SSID *******1725
+
+((c)(r))'#' This workflow uses actions that are not certified by GitHub.''
+
+'#' They are provided by a third-party and are governed by''
+
+'#' separate terms of service, privacy policy, and support''
+
+'#' documentation.
+
+'#'
+
+zachryiixixiiwood@gmail.com
+'#' This workflow will install Deno and run tests across stable and nightly builds on Windows, Ubuntu and macOS.''
+
+'#' For more information see: https://github.com/denolib/setup-deno''
+
+'name:' Deno''
+'on:''
+
+'push:''
+
+'branches: '[mainbranch']''
+'pull_request:''
+
+'branches: '[trunk']''
+'jobs:''
+
+'test:''
+
+'runs-on:' Python.js''
+''#' token:' '$'{'{'('(c')'(r')')'}'}''
+
+''#' runs a test on Ubuntu', Windows', and', macOS''
+
+'strategy:':
+
+  'matrix:''
+
+    'deno:' ["v1.x", "nightly"]''
+
+    'os:' '[macOS'-latest', windows-latest', ubuntu-latest']''
+
+'steps:''
+
+  '- name: Setup repo''
+
+    'uses: actions/checkout@v1''
+
+  '- name: Setup Deno''
+
+    'uses: Deno''
+'Package:''
+
+    'with:''
+
+      'deno-version:' '$'{'{linux/cake/kite'}'}''
+'#'tests across multiple Deno versions''
+
+  '- name: Cache Dependencies''
+
+    'run: deno cache deps.ts''
+
+  '- name: Run Tests''
+
+    'run: deno test''
+'::Build:' sevendre''
+
+'Return
+
+' Run''
+
+Footer © 2022 GitHub, Inc. Footer navigation Terms Privacy Security Status Docs Contact GitHub Pricing API Training Blog About Comparing paradice...071921891-47-2041-6547 · zakwarlord7/ball.yml# This workflow will build and push a new container image to Alibaba Cloud Container Registry (ACR),
+
+and then will deploy it to Alibaba Cloud Container Service for Kubernetes (ACK), when there is a push to the "paradice" branch.
+To use this workflow, you will need to complete the following set-up steps:
+1. Create an ACR repository to store your container images.
+You can use ACR EE instance for more security and better performance.
+For instructions see https://www.alibabacloud.com/help/doc-detail/142168.htm
+2. Create an ACK cluster to run your containerized application.
+You can use ACK Pro cluster for more security and better performance.
+For instructions see https://www.alibabacloud.com/help/doc-detail/95108.htm
+3. Store your AccessKey pair in GitHub Actions secrets named ACCESS_KEY_ID and ACCESS_KEY_SECRET.
+For instructions on setting up secrets see: https://developer.github.com/actions/managing-workflows/storing-secrets/
+4. Change the values for the REGION_ID, REGISTRY, NAMESPACE, IMAGE, ACK_CLUSTER_ID, and ACK_DEPLOYMENT_NAME.
+name: Build and Deploy to ACK
+
+on: push: branches: [ "paradice" ]
+
+Environment variables available to all jobs and steps in this workflow.
+env: REGION_ID: cn-hangzhou REGISTRY: registry.cn-hangzhou.aliyuncs.com NAMESPACE: namespace IMAGE: repo TAG: ${{ github.sha }} ACK_CLUSTER_ID: clusterID ACK_DEPLOYMENT_NAME: nginx-deployment
+
+ACR_EE_REGISTRY: myregistry.cn-hangzhou.cr.aliyuncs.com ACR_EE_INSTANCE_ID: instanceID ACR_EE_NAMESPACE: namespace ACR_EE_IMAGE: repo ACR_EE_TAG: ${{ github.sha }}
+
+permissions: contents: read
+
+jobs: build: runs-on: ubuntu-latest environment: production
+
+steps:
+- name: Checkout
+  uses: actions/checkout@v3
+
+# 1.1 Login to ACR   
+- name: Login to ACR with the AccessKey pair
+  uses: aliyun/acr-login@v1
+  with:
+    region-id: "${{ env.REGION_ID }}"
+    access-key-id: "${{ secrets.ACCESS_KEY_ID }}"
+    access-key-secret: "${{ secrets.ACCESS_KEY_SECRET }}"
+
+# 1.2 Buid and push image to ACR   
+- name: Build and push image to ACR  
+  run: |
+    docker build --tag "$REGISTRY/$NAMESPACE/$IMAGE:$TAG" .  
+    docker push "$REGISTRY/$NAMESPACE/$IMAGE:$TAG"   
+
+# 1.3 Scan image in ACR   
+- name: Scan image in ACR
+  uses: aliyun/acr-scan@v1
+  with:
+    region-id: "${{ env.REGION_ID }}"
+    access-key-id: "${{ secrets.ACCESS_KEY_ID }}"
+    access-key-secret: "${{ secrets.ACCESS_KEY_SECRET }}"
+    repository: "${{ env.NAMESPACE }}/${{ env.IMAGE }}"
+    tag: "${{ env.TAG }}"
+
+# 2.1 (Optional) Login to ACR EE          
+- uses: actions/checkout@v3
+- name: Login to ACR EE with the AccessKey pair
+  uses: aliyun/acr-login@v1
+  with:
+    login-server: "https://${{ env.ACR_EE_REGISTRY }}"
+    region-id: "${{ env.REGION_ID }}"
+    access-key-id: "${{ secrets.ACCESS_KEY_ID }}"
+    access-key-secret: "${{ secrets.ACCESS_KEY_SECRET }}"
+    instance-id: "${{ env.ACR_EE_INSTANCE_ID }}"
+
+# 2.2 (Optional) Build and push image ACR EE          
+- name: Build and push image to ACR EE  
+  run: |
+    docker build -t "$ACR_EE_REGISTRY/$ACR_EE_NAMESPACE/$ACR_EE_IMAGE:$TAG" .
+    docker push "$ACR_EE_REGISTRY/$ACR_EE_NAMESPACE/$ACR_EE_IMAGE:$TAG"
+# 2.3 (Optional) Scan image in ACR EE          
+- name: Scan image in ACR EE
+  uses: aliyun/acr-scan@v1
+  with:
+    region-id: "${{ env.REGION_ID }}"
+    access-key-id: "${{ secrets.ACCESS_KEY_ID }}"
+    access-key-secret: "${{ secrets.ACCESS_KEY_SECRET }}"
+    instance-id: "${{ env.ACR_EE_INSTANCE_ID }}"
+    repository: "${{ env.ACR_EE_NAMESPACE}}/${{ env.ACR_EE_IMAGE }}"
+    tag: "${{ env.ACR_EE_TAG }}"
+
+# 3.1 Set ACK context         
+- name: Set K8s context
+  uses: aliyun/ack-set-context@v1
+  with:
+    access-key-id: "${{ secrets.ACCESS_KEY_ID }}"
+    access-key-secret: "${{ secrets.ACCESS_KEY_SECRET }}"
+    cluster-id: "${{ env.ACK_CLUSTER_ID }}"
+
+# 3.2 Deploy the image to the ACK cluster
+- name: Set up Kustomize
+  run: |-
+    curl -s "https://raw.githubusercontent.com/kubernetes-sigs/kustomize/master/hack/install_kustomize.sh"  | bash /dev/stdin 3.8.6
+- name: Deploy
+  run: |-
+    ./kustomize edit set image REGISTRY/NAMESPACE/IMAGE:TAG=$REGISTRY/$NAMESPACE/$IMAGE:$TAG
+    ./kustomize build . | kubectl apply -f -
+    kubectl rollout status deployment/$ACK_DEPLOYMENT_NAME
+    kubectl get services -o wide
+Due: 04/18/2022
+
+USD in "000'"s
+Repayments for Long Term Debt
+Costs and expenses:
+Cost of revenues
+Research and development
+Sales and marketing
+General and administrative
+European Commission fines
+Total costs and expenses
+Income from operations
+Other income (expense), net
+Income before income taxes
+Provision for income taxes
+Net income
+
+*include interest paid, capital obligation, and underweighting
+
+Basic net income per share of Class A and B common stock and Class C capital stock (in dollars par share)
+
+Diluted net income per share of Class A and Class B common stock and Class C capital stock (in dollars par share)
+*include interest paid, capital obligation, and underweighting
+
+Basic net income per share of Class A and B common stock and Class C capital stock (in dollars par share)
+Diluted net income per share of Class A and Class B common stock and Class C capital stock (in dollars par share)
+
+INTERNAL REVENUE SERVICE,
+PO BOX 1214,
+CHARLOTTE, NC 28201-1214
+
+ZACHRY WOOD
+15
+For Disclosure, Privacy Act, and Paperwork Reduction Act Notice, see separate instructions.
+Cat. No. 11320B
+Form 1040 (2021)
+Reported Normalized and Operating Income/Expense Supplemental Section
+Total Revenue as Reported, Supplemental
+Total Operating Profit/Loss as Reported, Supplemental
+Reported Effective Tax Rate
+Reported Normalized Income
+Reported Normalized Operating Profit
+Other Adjustments to Net Income Available to Common Stockholders
+Discontinued Operations
+Basic EPS
+Basic EPS from Continuing Operations
+Basic EPS from Discontinued Operations
+Diluted EPS
+Diluted EPS from Continuing Operations
+Diluted EPS from Discontinued Operations
+Basic Weighted Average Shares Outstanding
+Diluted Weighted Average Shares Outstanding
+Reported Normalized Diluted EPS
+Basic EPS
+Diluted EPS
+Basic WASO
+Diluted WASO
+Fiscal year end September 28th., 2022. | USD
+
+For Paperwork Reduction Act Notice, see the seperate Instructions.
+
+important information
+
+2012201320142015ZACHRY.T.5323.DALLAS.Other.Benefits.and Information Pto Balance 9xygchr6$13Earnings Statement 065-0001 ALPHABET Period Beginning: 1600 AMPITHEATRE PARKWAY DRPeriod Ending: MOUNTAIN VIEW, C.A., 94043Pay Date: 2965 Taxable Marital Status: Exemptions/AllowancesMarried BRADFORD DR Federal: TX:NO State Income Tax rateunitsthis periodyear to date $0 1 Alphabet Inc., co. 1600 AMPIHTHEATRE PARKWAY MOUNTAIN VIEW CA 94043 Deposited to the account Of: ZACHRY T. WOOD 4720416547 650001 719218914/18/2022 4720416547 transit ABA 15-51\000 575A "
+
+Business Checking For 24-hour account information, sign on to
+pnc.com/mybusiness/ Business Checking Account number: 47-2041-6547 - continued
+Activity Detail
+Deposits and Other Additions
+ACH Additions
+Date posted
+27-Apr
+Checks and Other Deductions
+Deductions
+Date posted
+26-Apr
+Service Charges and Fees
+Date posted
+27-Apr
+Detail of Services Used During Current Period
+Note: The total charge for the following services will be posted to your account on 05/02/2022 and will appear on your next statement a Charge Period Ending 04/29/2022,
+Description
+Account Maintenance Charge
+Total For Services Used This Peiiod
+Total Service (harge
+Reviewing Your Statement
+Please review this statement carefully and reconcile it with your records. Call the telephone number on the upper right side of the first page of this statement if: you have any questions regarding your account(s); your name or address is incorrect; • you have any questions regarding interest paid to an interest-bearing account.
+Balancing Your Account Update Your Account Register
+
+We will investigate your complaint and will correct any error promptly, If we take longer than 10 business days, we will provisionally credit your account for the amount you think is in error, so that you will have use of the money during the time it ekes us to complete our investigation.
+Member FDIC 20220418, 17:00:00:00:;-17:00:00:00CMTS :ALPHABET:Based on facts as set forth in.The U.S. Internal Revenue Service Code of 1986, The Treasury Regualtions promulgated thereunder, published pro :+RDASMS03 : 00022214903782823 :+ALPHABET : +1600 AMPIHTHEATRE PARKWAY : :005154 :000102873 :Q308 : +MOUNTAIN VIEW, C.A. 94043 : DATE__________________70-2189/719+633-44-1725 :+%ZACHRY T WOODMBR :+% ZACHRY T WOOD MBR :+NASDAQGOOG :+5323 BRADFORD DR :+DALLAS, TX 75235 :+Income Statement : +U.S. Department of the Treasury : +For the period January 1, 2022 to August 18, 2022 : ZACHRY TYLER WOOD : ALPHABET : 7364 : 5323 BRADFORD DR :DALLAS, TX 75235-8313 :+PAY TO THE ORDER OF :ZACHRY TYLER WOOD :+|$| 240261564036618| :+DOLLARS [OBJ] Security : Features :+PNC Bank, National Association : Detaile on ::+Northern Ky : Back. ::+ 07364 ::+Net Pay :+CHECKING :+Net Check : :+EMPLOYER IDENTIFICATION NUMBER :61-1767919 :____________________________________ :+Medicare Tax :+___________________________________________________________ :net, pay. : +CHECKING:+Net Check :+Your federal taxable wages this period are $2267700000000000 :+ALPHABET :INCOME :+Depsosited to the account Of :ZACHRY_TYLER_WOOD :+RDASMS03 : DATE_________________________ 73/18-421|7364 :+ALPHABET:+5323 :+BRADFORD DR:+DALLAS, TX 75235-8314 :+PAY TO THE ORDER OF :ZACHRY TYLER WOOD_____________________________________________________________________________|$| 240261564036618__________________________________| :+DOLLARS :+PNC Bank, National AssociationNorthern, Ky 07364 : +1600 AMPIHTHEATRE PARKWAY MOUNTAIN VIEW CA 94043 :PLEASE READ THE IMPORTANT DISCLOSURES BELOW :+FEDERAL RESERVE MASTER SUPPLIER ACCOUNT31000053-052101023COD :+PLEASE READ THE IMPORTANT DISCLOSURES BELOW :+Non-Negotiable Customer Copy :+MEMO :Your federal taxable wages this period are $70842743866.00USD :PAY Your federal taxable wages this period are $70842743866.00USD :+ALPHABET INCOME :+1600 AMPITHEATRE PARKWAY MOUNTAIN VIEW CA 94043 :___________________________________ :+EMPLOYER IDENTIFICATION NUMBER :61-1767919 :___________________________________________________________________________________________ :+Medicare Tax :+______________________________________________________________________________________________________________________________________________________________________________________ :net, pay. : +CHECKING:+Net Check :+Your federal taxable wages this period are $2267700000000000 :+ALPHABET :INCOME :+Depsosited to the account Of :ZACHRY_TYLER_WOOD :+RDASMS03 : DATE_________________________ 73/18-421|7364 :+ALPHABET:+5323 :+BRADFORD DR:+DALLAS, TX 75235-8314 :+PAY TO THE ORDER OF :ZACHRY TYLER WOOD_____________________________________________________________________________|$| 240261564036618__________________________________| :+PAY TO THE ORDER O________________________________________________________________________________________|$| 240261564036618__________________________________| :+DOLLARS :+PNC Bank, National AssociationNorthern, Ky 07364 : +1600 AMPIHTHEATRE PARKWAY MOUNTAIN VIEW CA 94043 :PLEASE READ THE IMPORTANT DISCLOSURES BELOW :+FEDERAL RESERVE MASTER SUPPLIER ACCOUNT 31000053-052101023COD :+PLEASE READ THE IMPORTANT DISCLOSURES BELOW :+Non-Negotiable Customer Copy :+Non-Negotiable :Customer Copy :+MEMO :+200200-0321 :+PNC Bank, National Association : Detaile :on :+Northern Ky : Back. :PAPER FOR GL TICKETS AND CONVENIENCE CHECKS :+Your federal taxable wages this period are $70842743866.00USD :+ALPHABET :+1600 AMPITHEATRE PARKWAY MOUNTAIN VIEW CA 94043 :+_______________________________________________________________________________________ :+Deposited to the account Of :Previous Over-payment : Significance :MP : MP :+For :ACH Web Usataxpymt IRS 240261564036618 :{AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} :|EXEUTOR/ :+Significance : +MP :|ADMINISTRATOR :________________________________________________________________ : {AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} : |PERSONAL : +Significance :MP : |REPRESENTATIVE :{AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} : |TRUSTEE : +||'000000||' :-|:071921891|: :-||'4720416547||' :PAPER FOR GL TICKETS AND CONVENIENCE CHECKS :::AUTOMATE :AUTOMATES :AUTOMATICALLY ::Build ::AUTOMATE :AUTOMATES :AUTOMATICALLY ::Build:: :PUBLISH :RELEASE :LAUNCH :DEPLOYEE : +_________________________________________________________________________________________________________________________________________________ : +Deposited to the account Of :
+
+Previous Over-payment : - Significance : MP MP +For :ACH Web Usataxpymt IRS 240261564036618 :{AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} :|EXEUTOR/ :
+Significance : MP |ADMINISTRATOR +________________________________________________________________ {AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} |PERSONAL
+Significance MP |REPRESENTATIVE
+{AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} |TRUSTEE +||'000000||'d-|:071921891|:d-||'4720416547||'+200200-0321 :++RDASMS03 00022214903782823 +ALPHABET +1600 AMPIHTHEATRE PARKWAY 005154 000102873 Q308 +1600 AMPIHTHEATRE PARKWAY 005154 000102873 Q308 +MOUNTAIN VIEW, C.A. 94043 DATE______04/15/2022____________70-2189/719
+ZACHRY TYLER WOOD
+ALPHABET 7364
+5323 BRADFORD DR
+DALLAS, TX 75235-8314 +PAY TO THE ORDER OF: ZACHRY TYLER WOOD+|$| 240261564036618| +|$ 240261564036618||+DOLLARS [OBJ] Security Features ___________________________________________________________________________________________ :+EMPLOYER IDENTIFICATION NUMBER :61-1767919 : :+EMPLOYER IDENTIFICATION NUMBER :61-1767919 :____________________________________ :+Medicare Tax :+_____________________________________________________________________________________________________________________________________________________________________ :net, pay. : +CHECKING:+Net Check :+Your federal taxable wages this period are $2267700000000000 :+ALPHABET :INCOME :+Depsosited to the account Of :ZACHRY_TYLER_WOOD :+RDASMS03 : DATE_________________________ 73/18-421|7364 :+ALPHABET:+5323 :+BRADFORD DR:+DALLAS, TX 75235-8314 :+PAY TO THE ORDER OF :ZACHRY TYLER WOOD_____________________________________________________________________________|$| 240261564036618__________________________________| :+DOLLARS :+PNC Bank, National AssociationNorthern, Ky 07364 : +1600 AMPIHTHEATRE PARKWAY MOUNTAIN VIEW CA 94043 :PLEASE READ THE IMPORTANT DISCLOSURES BELOW :+FEDERAL RESERVE MASTER SUPPLIER ACCOUNT31000053-052101023COD :+PLEASE READ THE IMPORTANT DISCLOSURES BELOW :+Non-Negotiable Customer Copy :+MEMO :+200200-0321 :+PNC Bank, National Association : Detaile :on :+Northern Ky : Back. :PAPER FOR GL TICKETS AND CONVENIENCE CHECKS :+Your federal taxable wages this period are $70842743866.00USD :+ALPHABET :+1600 AMPITHEATRE PARKWAY MOUNTAIN VIEW CA 94043 :+_______________________________________________________________________________________ :+Deposited to the account Of :Previous Over-payment : Significance :MP : MP :+For :ACH Web Usataxpymt IRS 240261564036618 :{AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} :|EXEUTOR/ :+Significance : +MP :|ADMINISTRATOR :________________________________________________________________ : {AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} : |PERSONAL : +Significance :MP : |REPRESENTATIVE :{AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} : |TRUSTEE : +||'000000||' :-|:071921891|: :-||'4720416547||' :PAPER FOR GL TICKETS AND CONVENIENCE CHECKS :::AUTOMATE :AUTOMATES :AUTOMATICALLY ::Build ::PUBLISH :RELEASE :LAUNCH :DEPLOYEE :PAPER FOR GL TICKETS AND CONVENIENCE CHECKS :AUTOMATE :AUTOMATES :AUTOMATICALLY ::Build ::PUBLISH ::RELEASE ::LAUNCH ::DEPLOYEE :++++++++++++++++++++++++RDASMS03 00022214903782823+ALPHABET +1600 AMPIHTHEATRE PARKWAY 005154 000102873 Q308 +MOUNTAIN VIEW, C.A. 94043 DATE__________________70-2189/719+ ZACHRY TYLER WOOD + ALPHABET 7364 + 5323 BRADFORD DR+ DALLAS, TX 75235-8314+PAY TO THE ORDER OF: ZACHRY TYLER WOOD+___________________________________________________________________________________________________________________________|$| 240261564036618|+__________________________________________________________________________________________________________________________________________DOLLARS [OBJ] Security Features +PNC Bank, National Association Detaile on+Northern Ky Back.+ 07364+Net Pay+CHECKING+Net Check+Your federal taxable wages this period are $70842743866.00USD+ALPHABET InCOME+1600 AMPITHEATRE PARKWAY MOUNTAIN VIEW CA 94043+_________________________________________________________________________________________________________________________________________________+Deposited to the account Of+ Previous Over-payment - Significance MP MP+For ACH Web Usataxpymt IRS 240261564036618_________________________ {AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} |EXEUTOR/+ - Significance MP |ADMINISTRATOR+________________________________________________________________ {AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} |PERSONAL+ - Significance MP |REPRESENTATIVE+ {AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} |TRUSTEE +||'000000||'d-|:071921891|:d-||'4720416547||'+net, pay.+CHECKING+Net Check+Your federal taxable wages this period are $70842743866.00USD+ALPHABET InCOME+1600 AMPITHEATRE PARKWAY MOUNTAIN VIEW CA 94043++Deposited to the account Of++____________________________________________________________________________________________________________________________________________________+633-44-1725+% ZACHRY T WOOD MBR+NASDAQGOOG+5323 BRADFORD DR+DALLAS, TX 75235+Income Statement +U.S. Department of the Treasury +For the period January 1, 2022 to August 18, 2022 +Account Jan 1-Aug 18, 2022 May 16-Dec 31, 2021 Sep 28, 2020-May 15, 2021 Feb 11-Sep 27, 2020 Jun 26, 2019-Feb 10, 2020+Income
++US$ in millions
++12 months ended: Dec 31, 2018 Dec 31, 2019 Dec 31, 2017 Dec 31, 2016 Dec 31, 2015 +Revenues 136,819 161,857 110,855 90,272 74,989 +Cost of revenues -595490- 0 -45,583 -35,138 -28,164 +Gross profit 136,819 161,857 110,855 90,272 46,825 +Research and development -21,419 -26,018 -16,625 -13,948 -12,282 +Sales and marketing -16,333 -18,464 -12,893 -10,485 34,543 +General and administrative -8,126 -9,551 -6,872 -6,985
++European Commission fines -5,071 -1,697 -2,736 — — +Income from operations 26,321 34,231 26,146 23,716 19,360 +Interest income 1,878 2,427 1,312 1,220 999 +Interest expense -114 -100 -109 -124 -104 +Foreign currency exchange gain (loss), net -80 103 -121 -475 -422 +Gain (loss) on debt securities, net 1,190 149 -110 -53 — +Gain (loss) on equity securities, net 5,460 2,649 73 -20 — +Performance fees — -326 — — — +Gain (loss) and impairment from equity method investments, net -120 390 -156 -202 — +Other 378 102 158 88 -182 +Other income (expense), net 8,592 5,394 1,047 434 291 +Income before income taxes 34,913 39,625 27,193 24,150 19,651 +Provision for income taxes 0 0 0 0 0 +Net income 136,819 161,857 110,855 90,272 74,989 +Adjustment Payment to Class C capital stockholders
++Net income available to all stockholders 30,736 34,343 12,662 19,478 15,826 +"Based on: +10-K (filing date: 2020-02-04), +10-K (filing date: 2019-02-05), +10-K (filing date: 2018-02-06), +10-K (filing date: 2017-02-03), +10-K (filing date: 2016-02-11)."
+Taxes / Deductions
+TTM YTD Pay Schedule Semi-Annual
+7084274386600 7084274386600 Federal Withholding 00000 00000
+7084274386600 7084274386600 Social Security Withholding 00000 00000
+                                                                                                           FICA - Social Security                       00000        08854        
+                                                                                                           FICA - Medicare                                00000        00000  
+                                                                                                                                                    FUTA       00000        00000        
+   70842745000                                                                                                                           SUTA       00000        00000        
+                                  Subsidiary Tax Period Total Social Security Medicare Withholding
+                                  Fed 941 Corporate 39355 66986.66 28841.48 6745.18 31400
+                                  Fed 941 West Subsidiary 39355 17115.41 7369.14 1723.42 8022.85
+                                                Fed 941 Corp - Penalty 39355 27198.5 11710.47 2738.73 12749.3
+                                  Fed 940 Annual Unemp - Corp 39355 17028.05    
+                                                                                      ID:      txdl  00037305581      SSN:     xxx-xx-1725    DoB: 1994-10-15      
++CP 575A (Rev. 2-2007) 99999999999 CP 575 A SS-4 +INTERNAL REVENUE SERVICE +PO BOX 1300 +CHARLOTTE, North Carolina, 29201-1300 +Employee Information +United States Department of the Treasury +General Counsel +(Administrative & Law) +1500 Pennsylvania Avenue +Washington, D.C. 20220-1219 Pay Period 2019-09-28 - 2021-09-29 + +Room.#: 1402 Paid Date 2022-04-18
+
+                                                                                                      Pay Day    2022-04-18
+++main. +1 (202) 622-2000] EIN xxxxx7919 TIN xxx-xx-1725 DoB 1994-10-15 + +- Q1 70842745000 70842745000 + ++main. +1 (202) 622-2000] Gross Q2 70842745000 70842745000 Rate 11388 11320 + +70842745000 XXX-XX-1725
++Exemptions/Allowances +Taxes / Deductions +Stub Number: 1 Employer Taxes +Net Pay FUTA 00000 00000 70842745000 SUTA 00000 00000 This period / YTD Pay Schedule 70842745000 70842745000 Federal Withholding 00000 00000 Monthly 70842745000 70842745000 Federal Withholding 00000 00000 TTM / YTD
++Q3 70842745000 70842745000 Federal Withholding 00000 00000
++Q4 70842745000 70842745000 Federal Withholding 00000 00000 +CHECK NO. FICA - Social Security 00000 08854 +20210418 FICA - Medicare / 00000 0000 +Net Pay FUTA 00000 00000 70842745000 SUTA 00000 00000 This period / YTD Pay Schedule 70842745000 70842745000 Federal Withholding 00000 00000 Monthly 70842745000 70842745000 Federal Withholding 00000 00000
+
+                                                                                      ID:      txdl  00037305581      SSN:     xxx-xx-1725    DoB: 1994-10-15                            
+             Taxes / Deductions        
+                                      this period                 year to date                                                                          TTM           YTD       Pay Schedule              Semi-Annual                                                                
+             Q3        7084274386600        7084274386600        Federal Withholding                        00000  00000        
+             Q4        7084274386600        7084274386600        Social Security Withholding          00000  00000        
+                                                                                                           FICA - Social Security                      00000  08854        
+                                                                                                           FICA - Medicare                                00000  00000  
+                                                                                                                                                         FUTA       00000  00000        
+   70842745000                                                                                                                          SUTA       00000  00000        
+                                                                                      ID:      txdl  00037305581      SSN:     xxx-xx-1725    DoB: 1994-10-15                                                                                                                                                                                                                                      
++1-800-829-4933 +3/6/2022 at 6:37 PM +Dec. 31, 2020 Dec. 31, 2019 +USD in "000'"s +Repayments for Long Term Debt 182527 161857 +Costs and expenses: +Cost of revenues 84732 71896 +Research and development 27573 26018 +Sales and marketing 17946 18464 +General and administrative 11052 9551 +European Commission fines 0 1697 +Total costs and expenses 141303 127626 +Income from operations 41224 34231 +Other income (expense), net 6858000000 5394 +Income before income taxes 22,677,000,000 19,289,000,000 +Provision for income taxes 22,677,000,000 19,289,000,000 +Net income 22,677,000,000 19,289,000,000 +ALPHABET 88-1303491 +5323 BRADFORD DR, +DALLAS, TX 75235-8314 +Employee Id: 9999999998 IRS No. 000000000000 +INTERNAL REVENUE SERVICE, $20,210,418.00 +PO BOX 1214, Rate Units Total YTD Taxes / Deductions Current YTD +CHARLOTTE, NC 28201-1214 - - $70,842,745,000.00 $70,842,745,000.00 Federal Withholding $0.00 $0.00 +Earnings FICA - Social Security $0.00 $8,853.60 +Commissions FICA - Medicare $0.00 $0.00 +FUTA $0.00 $0.00 +SUTA $0.00 $0.00 +EIN: 61-1767ID91:900037305581 SSN: 633441725 +$70,842,745,000.00 $70,842,745,000.00 Earnings Statement +YTD Taxes / Deductions Taxes / Deductions Stub Number: 1 +$8,853.60 $0.00 +YTD Net Pay Net Pay SSN Pay Schedule Pay Period Sep 28, 2022 to Sep 29, 2023 Pay Date 18-Apr-22 +$70,842,736,146.40 $70,842,745,000.00 XXX-XX-1725 Annually +INTERNAL REVENUE SERVICE, +PO BOX 1214, +CHARLOTTE, NC 28201-1214 +00015
+
+                                  Alphabet Inc.Consolidated Income StatementUS$ in millions12 months ended:Dec 31, 2018Dec 31, 2019Dec 31, 2017Dec 31, 2016Dec 31, 2015Revenues136,819161,857110,85590,27274,989Cost of revenues-595490-0-45,583-35,138-28,164Gross profit136,819161,857110,85590,27246,825Research and development-21,419-26,018-16,625-13,948-12,282Sales and marketing-16,333-18,464-12,893-10,48534,543General and administrative-8,126-9,551-6,872-6,985European Commission fines-5,071-1,697-2,736——Income from operations26,32134,23126,14623,71619,360Interest income1,8782,4271,3121,220999Interest expense-114-100-109-124-104Foreign currency exchange gain (loss), net-80103-121-475-422Gain (loss) on debt securities, net1,190149-110-53—Gain (loss) on equity securities, net5,4602,64973-20—Performance fees—-326———Gain (loss) and impairment from equity method investments, net-120390-156-202—Other37810215888-182Other income (expense), net8,5925,3941,047434291Income before income taxes34,91339,62527,19324,15019,651Provision for income taxes00000Net income136,819161,857110,85590,27274,989Adjustment Payment to Class C capital stockholdersNet income available to all stockholders30,73634,34312,66219,47815,826Based on:10-K (filing date: 2020-02-04),10-K (filing date: 2019-02-05),10-K (filing date: 2018-02-06),10-K (filing date: 2017-02-03),10-K (filing date: 2016-02-11).ZACHRY T WOODAlphabet Inc.Consolidated Income StatementUS$ in millions12 months ended:Dec 31, 2018Dec 31, 2019Dec 31, 2017Dec 31, 2016Dec 31, 2015Revenues136,819161,857110,85590,27274,989Cost of revenues-595490-0-45,583-35,138-28,164Gross profit136,819161,857110,85590,27246,825Research and development-21,419-26,018-16,625-13,948-12,282Sales and marketing-16,333-18,464-12,893-10,48534,543General and administrative-8,126-9,551-6,872-6,985European Commission fines-5,071-1,697-2,736——Income from operations26,32134,23126,14623,71619,360Interest income1,8782,4271,3121,220999Interest expense-114-100-109-124-104Foreign currency exchange gain (loss), net-80103-121-475-422Gain (loss) on debt securities, net1,190149-110-53—Gain (loss) on equity securities, net5,4602,64973-20—Performance fees—-326———Gain (loss) and impairment from equity method investments, net-120390-156-202—Other37810215888-182Other income (expense), net8,5925,3941,047434291Income before income taxes34,91339,62527,19324,15019,651Provision for income taxes00000Net income136,819161,857110,85590,27274,989Adjustment Payment to Class C capital stockholdersNet income available to all stockholders30,73634,34312,66219,47815,826Based on:10-K (filing date: 2020-02-04),10-K (filing date: 2019-02-05),10-K (filing date: 2018-02-06),10-K (filing date: 2017-02-03),10-K (filing date: 2016-02-11). Tax Period Total Social Security Medicare Withholding
+                                  Fed 941 Corporate 39355 66986.66 28841.48 6745.18 31400
+                                  Fed 941 West Subsidiary 39355 17115.41 7369.14 1723.42 8022.85
+                                  Fed 941 South Subsidiary 39355 23906.09 10292.9 2407.21 11205.98
+                                  Fed 941 East Subsidiary 39355 11247.64 4842.74 1132.57 5272.33
+                                  Fed 941 Corp - Penalty 39355 27198.5 11710.47 2738.73 12749.3
+                                  Fed 940 Annual Unemp - Corp 39355 17028.05                                                                                                                                                  
++SIGNATURE Time Zone: Eastern Central Mountain Pacific +Investment Products • Not FDIC Insured • No Bank Guarantee • May Lose Value +NON-NEGOTIABLE NON-NEGOTIABLE +PLEASE READ THE IMPORTANT DISCLOSURES BELOW PLEASE READ THE IMPORTANT DISCLOSURES BELOW + +Based on facts as set forth in. Based on facts as set forth in. 6551 6550 20220418, 17:00:00:00:;-17:00:00:00CMTS :ALPHABET:Based on facts as set forth in.The U.S. Internal Revenue Service Code of 1986, The Treasury Regualtions promulgated thereunder, published pro :+RDASMS03 : 00022214903782823 :+ALPHABET : +1600 AMPIHTHEATRE PARKWAY : :005154 :000102873 :Q308 : +MOUNTAIN VIEW, C.A. 94043 : DATE__________________70-2189/719+633-44-1725 :+%ZACHRY T WOODMBR :+% ZACHRY T WOOD MBR :+NASDAQGOOG :+5323 BRADFORD DR :+DALLAS, TX 75235 :+Income Statement : +U.S. Department of the Treasury : +For the period January 1, 2022 to August 18, 2022 : ZACHRY TYLER WOOD : ALPHABET : 7364 : 5323 BRADFORD DR :DALLAS, TX 75235-8313 :+PAY TO THE ORDER OF :ZACHRY TYLER WOOD :+|$|| :+DOLLARS [OBJ] Security : Features :+PNC Bank, National Association : Detaile on ::+Northern Ky : Back. ::+ 07364 ::+Net Pay :+CHECKING :+Net Check : :+EMPLOYER IDENTIFICATION NUMBER :61-1767919 :____________________________________ :+Medicare Tax :+___________________________________________________________ :net, pay. : +CHECKING:+Net Check :+Your federal taxable wages this period are $2267700000000000 :+ALPHABET :INCOME :+Depsosited to the account Of :ZACHRY_TYLER_WOOD :+RDASMS03 : DATE_________________________ 73/18-421|7364 :+ALPHABET:+5323 :+BRADFORD DR:+DALLAS, TX 75235-8314 :+PAY TO THE ORDER OF :ZACHRY TYLER WOOD_____________________________________________________________________________|$|| :+DOLLARS :+PNC Bank, National AssociationNorthern, Ky 07364 : +1600 AMPIHTHEATRE PARKWAY MOUNTAIN VIEW CA 94043 :PLEASE READ THE IMPORTANT DISCLOSURES BELOW :+FEDERAL RESERVE MASTER SUPPLIER ACCOUNT31000053-052101023COD :+PLEASE READ THE IMPORTANT DISCLOSURES BELOW :+Non-Negotiable Customer Copy :+MEMO :Your federal taxable wages this period are $70842743866.00USD :PAY Your federal taxable wages this period are $70842743866.00USD :+ALPHABET INCOME :+1600 AMPITHEATRE PARKWAY MOUNTAIN VIEW CA 94043 :_ :+EMPLOYER IDENTIFICATION NUMBER :61-1767919 :___________________________________________________________________________________________ :+Medicare Tax :+______________________________________________________________________________________________________________________________________________________________________________________ :net, pay. : +CHECKING:+Net Check :+Your federal taxable wages this period are $2267700000000000 :+ALPHABET :INCOME :+Depsosited to the account Of :ZACHRY_TYLER_WOOD :+RDASMS03 : DATE_________________________ 73/18-421|7364 :+ALPHABET:+5323 :+BRADFORD DR:+DALLAS, TX 75235-8314 :+PAY TO THE ORDER OF :ZACHRY TYLER WOOD_____________________________________________________________________________|$|| :+PAY TO THE ORDER OF :|$|| :+DOLLARS :+PNC Bank, National AssociationNorthern, Ky 07364 : +1600 AMPIHTHEATRE PARKWAY MOUNTAIN VIEW CA 94043 :PLEASE READ THE IMPORTANT DISCLOSURES BELOW :+FEDERAL RESERVE MASTER SUPPLIER ACCOUNT31000053-052101023COD :+PLEASE READ THE IMPORTANT DISCLOSURES BELOW :+Non-Negotiable Customer Copy :+Non-Negotiable :Customer Copy :+MEMO :+200200-0321 :+PNC Bank, National Association : Detaile :on :+Northern Ky : Back. :PAPER FOR GL TICKETS AND CONVENIENCE CHECKS :+Your federal taxable wages this period are $70842743866.00USD :+ALPHABET :+1600 AMPITHEATRE PARKWAY MOUNTAIN VIEW CA 94043 :+_______________________________________________________________________________________ :+Deposited to the account Of :Previous Over-payment : Significance :MP : MP :+For :ACH Web Usataxpymt IRS 240261564036618 :{AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} :|EXEUTOR/ :+Significance : +MP :|ADMINISTRATOR :____________________________________________ : {AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} : |PERSONAL : +Significance :MP : |REPRESENTATIVE :{AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} : |TRUSTEE : +||'000000||' :-|:071921891|: :-||'4720416547||' :PAPER FOR GL TICKETS AND CONVENIENCE CHECKS :::AUTOMATE :AUTOMATES :AUTOMATICALLY ::Build ::AUTOMATE :AUTOMATES :AUTOMATICALLY ::Build:: :PUBLISH :RELEASE :LAUNCH :DEPLOYEE :+_________________________________________________________________________________________________________________________________________________ :+Deposited to the account Of :+ Previous Over-payment : - Significance : MP MP+For :ACH Web Usataxpymt IRS 240261564036618 :{AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} :|EXEUTOR/ :+ - Significance : MP |ADMINISTRATOR+________________________________________________________________ {AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} |PERSONAL+ - Significance MP |REPRESENTATIVE+ {AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} |TRUSTEE +||'000000||'d-|:071921891|:d-||'4720416547||'+200200-0321 :++RDASMS03 00022214903782823+ALPHABET +1600 AMPIHTHEATRE PARKWAY 005154 000102873 Q308 +1600 AMPIHTHEATRE PARKWAY 005154 000102873 Q308 +MOUNTAIN VIEW, C.A. 94043 DATE__________________70-2189/719+ ZACHRY TYLER WOOD + ALPHABET 7364 + 5323 BRADFORD DR+ DALLAS, TX 75235-8314+PAY TO THE ORDER OF: ZACHRY TYLER WOOD+|$||+|$||+DOLLARS [OBJ] Security Features ___________________________________________________________________________________________ :+EMPLOYER IDENTIFICATION NUMBER :61-1767919 : :+EMPLOYER IDENTIFICATION NUMBER :61-1767919 :____________________________________ :+Medicare Tax :+_____________________________________________________________________________________________________________________________________________________________________ :net, pay. : +CHECKING:+Net Check :+Your federal taxable wages this period are $2267700000000000 :+ALPHABET :INCOME :+Depsosited to the account Of :ZACHRY_TYLER_WOOD :+RDASMS03 : DATE_________________________ 73/18-421|7364 :+ALPHABET:+5323 :+BRADFORD DR:+DALLAS, TX 75235-8314 :+PAY TO THE ORDER OF :ZACHRY TYLER WOOD_____________________________________________________________________________|$|| :+DOLLARS :+PNC Bank, National AssociationNorthern, Ky 07364 : +1600 AMPIHTHEATRE PARKWAY MOUNTAIN VIEW CA 94043 :PLEASE READ THE IMPORTANT DISCLOSURES BELOW :+FEDERAL RESERVE MASTER SUPPLIER ACCOUNT31000053-052101023COD :+PLEASE READ THE IMPORTANT DISCLOSURES BELOW :+Non-Negotiable Customer Copy :+MEMO :+200200-0321 :+PNC Bank, National Association : Detaile :on :+Northern Ky : Back. :PAPER FOR GL TICKETS AND CONVENIENCE CHECKS :+Your federal taxable wages this period are $70842743866.00USD :+ALPHABET :+1600 AMPITHEATRE PARKWAY MOUNTAIN VIEW CA 94043 :+_______________________________________________________________________________________ :+Deposited to the account Of :Previous Over-payment : Significance :MP : MP :+For :ACH Web Usataxpymt IRS 240261564036618 :{AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} :|EXEUTOR/ :+Significance : +MP :|ADMINISTRATOR :______________________________ : {AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} : |PERSONAL : +Significance :MP : |REPRESENTATIVE :{AUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATUREAUTHORIZEDSIGNATURE} : |TRUSTEE : +||'000000||' :-|:071921891|: :-||'4720416547||' :PAPER FOR GL TICKETS AND CONVENIENCE CHECKS :::AUTOMATE :AUTOMATES :AUTOMATICALLY ::Build ::PUBLISH :RELEASE :LAUNCH :DEPLOYEE :PAPER FOR GL TICKETS AND CONVENIENCE CHECKS :AUTOMATE :AUTOMATES :AUTOMATICALLY ::Build ::PUBLISH ::RELEASE ::LAUNCH ::DEPLOYEE :++++++++++++++++++++++++RDASMS03 00022214903782823+ALPHABET +1600 AMPIHTHEATRE PARKWAY 005154 000102873 Q308 +MOUNTAIN VIEW, C.A. 94043 DATE__________________70-2189/719+ ZACHRY TYLER WOOD + ALPHABET 7364 + 5323 BRADFORD DR+ DALLAS, TX 75235-8314+PAY TO THE ORDER OF: ZACHRY TYLER WOOD+___________________________________________________________________________________________________________________________|$||+__________________________________________________________________________________________________________________________________________________DOLLARS [OBJ] Security Features +PNC Bank, National Association Detaile on+Northern Ky Back.+ 07364+Net Pay+CHECKING+Net Check+Your federal taxable wages this period are $70842743866.00USD+ALPHABET InCOME+1600 AMPITHEATRE PARKWAY MOUNTAIN VIEW CA 94043+_________________________________________________________________________________________________________________________________________________+Deposited to the account Of+ Previous Over-payment - Signi Search or jump to… Pull requests Issues Marketplace Explore
+
+@zakwarlord7 Your account has been flagged. Because of that, your profile is hidden from the public. If you believe this is a mistake, contact support to have your account status reviewed. zakwarlord7 / ball.yml Public generated from zakwarlord7/zakwarlord7 Code Issues Pull requests Actions Projects Wiki Security Insights Settings Comparing changes Choose two branches to see what’s changed or to start a new pull request. If you need to, you can also .
+
+There isn’t anything to compare. paradice and 071921891-47-2041-6547 are entirely different commit histories.
+
+Showing with 2,263 additions and 0 deletions. 202
+.github/workflows/:rake.i @@ -0,0 +1,202 @@
+
+This workflow uses actions that are not certified by GitHub.
+They are provided by a third-party and are governed by
+separate terms of service, privacy policy, and support
+documentation.
+💁 The OpenShift Starter workflow will:
+- Checkout your repository
+- Perform a container image build
+- Push the built image to the GitHub Container Registry (GHCR)
+- Log in to your OpenShift cluster
+- Create an OpenShift app from the image and expose it to the internet
+ℹ️ Configure your repository and the workflow with the following steps:
+1. Have access to an OpenShift cluster. Refer to https://www.openshift.com/try
+2. Create the OPENSHIFT_SERVER and OPENSHIFT_TOKEN repository secrets. Refer to:
+- https://github.com/redhat-actions/oc-login#readme
+- https://docs.github.com/en/actions/reference/encrypted-secrets
+- https://cli.github.com/manual/gh_secret_set
+3. (Optional) Edit the top-level 'env' section as marked with '🖊️' if the defaults are not suitable for your project.
+4. (Optional) Edit the build-image step to build your project.
+The default build type is by using a Dockerfile at the root of the repository,
+but can be replaced with a different file, a source-to-image build, or a step-by-step buildah build.
+5. Commit and push the workflow file to your default branch to trigger a workflow run.
+👋 Visit our GitHub organization at https://github.com/redhat-actions/ to see our actions and provide feedback.
+name: OpenShift
+
+env:
+
+🖊️ EDIT your repository secrets to log into your OpenShift cluster and set up the context.
+See https://github.com/redhat-actions/oc-login#readme for how to retrieve these values.
+To get a permanent token, refer to https://github.com/redhat-actions/oc-login/wiki/Using-a-Service-Account-for-GitHub-Actions
+OPENSHIFT_SERVER: ${{ secrets.OPENSHIFT_SERVER }} OPENSHIFT_TOKEN: ${{ secrets.OPENSHIFT_TOKEN }}
+
+🖊️ EDIT to set the kube context's namespace after login. Leave blank to use your user's default namespace.
+OPENSHIFT_NAMESPACE: ""
+
+🖊️ EDIT to set a name for your OpenShift app, or a default one will be generated below.
+APP_NAME: ""
+
+🖊️ EDIT with the port your application should be accessible on.
+If the container image exposes exactly one port, this can be left blank.
+Refer to the 'port' input of https://github.com/redhat-actions/oc-new-app
+APP_PORT: ""
+
+🖊️ EDIT to change the image registry settings.
+Registries such as GHCR, Quay.io, and Docker Hub are supported.
+IMAGE_REGISTRY: ghcr.io/${{ github.repository_owner }} IMAGE_REGISTRY_USER: ${{ github.actor }} IMAGE_REGISTRY_PASSWORD: ${{ github.token }}
+
+🖊️ EDIT to specify custom tags for the container image, or default tags will be generated below.
+IMAGE_TAGS: ""
+
+on:
+
+https://docs.github.com/en/actions/reference/events-that-trigger-workflows
+workflow_dispatch: push: # Edit to the branch(es) you want to build and deploy on each push. branches: [ "paradice" ]
+
+jobs:
+
+🖊️ EDIT if you want to run vulnerability check on your project before deploying
+the application. Please uncomment the below CRDA scan job and configure to run it in
+your workflow. For details about CRDA action visit https://github.com/redhat-actions/crda/blob/main/README.md
+TODO: Make sure to add 'CRDA Scan' starter workflow from the 'Actions' tab.
+For guide on adding new starter workflow visit https://docs.github.com/en/github-ae@latest/actions/using-workflows/using-starter-workflows
+crda-scan: uses: ./.github/workflows/crda.yml secrets: CRDA_KEY: ${{ secrets.CRDA_KEY }} # SNYK_TOKEN: ${{ secrets.SNYK_TOKEN }} # Either use SNYK_TOKEN or CRDA_KEY
+
+openshift-ci-cd: # 🖊️ Uncomment this if you are using CRDA scan step above # needs: crda-scan name: Build and deploy to OpenShift runs-on: ubuntu-20.04 environment: production
+
+outputs:
+  ROUTE: ${{ steps.deploy-and-expose.outputs.route }}
+  SELECTOR: ${{ steps.deploy-and-expose.outputs.selector }}
+
+steps:
+- name: Check for required secrets
+  uses: actions/github-script@v6
+  with:
+    script: |
+      const secrets = {
+        OPENSHIFT_SERVER: `${{ secrets.OPENSHIFT_SERVER }}`,
+        OPENSHIFT_TOKEN: `${{ secrets.OPENSHIFT_TOKEN }}`,
+      };
+
+      const GHCR = "ghcr.io";
+      if (`${{ env.IMAGE_REGISTRY }}`.startsWith(GHCR)) {
+        core.info(`Image registry is ${GHCR} - no registry password required`);
+      }
+      else {
+        core.info("A registry password is required");
+        secrets["IMAGE_REGISTRY_PASSWORD"] = `${{ secrets.IMAGE_REGISTRY_PASSWORD }}`;
+      }
+
+      const missingSecrets = Object.entries(secrets).filter(([ name, value ]) => {
+        if (value.length === 0) {
+          core.error(`Secret "${name}" is not set`);
+          return true;
+        }
+        core.info(`✔️ Secret "${name}" is set`);
+        return false;
+      });
+
+      if (missingSecrets.length > 0) {
+        core.setFailed(`❌ At least one required secret is not set in the repository. \n` +
+          "You can add it using:\n" +
+          "GitHub UI: https://docs.github.com/en/actions/reference/encrypted-secrets#creating-encrypted-secrets-for-a-repository \n" +
+          "GitHub CLI: https://cli.github.com/manual/gh_secret_set \n" +
+          "Also, refer to https://github.com/redhat-actions/oc-login#getting-started-with-the-action-or-see-example");
+      }
+      else {
+        core.info(`✅ All the required secrets are set`);
+      }
+
+- name: Check out repository
+  uses: actions/checkout@v3
+
+- name: Determine app name
+  if: env.APP_NAME == ''
+  run: |
+    echo "APP_NAME=$(basename $PWD)" | tee -a $GITHUB_ENV
+
+- name: Determine image tags
+  if: env.IMAGE_TAGS == ''
+  run: |
+    echo "IMAGE_TAGS=latest ${GITHUB_SHA::12}" | tee -a $GITHUB_ENV
+
+# https://github.com/redhat-actions/buildah-build#readme
+- name: Build from Dockerfile
+  id: build-image
+  uses: redhat-actions/buildah-build@v2
+  with:
+    image: ${{ env.APP_NAME }}
+    tags: ${{ env.IMAGE_TAGS }}
+
+    # If you don't have a Dockerfile/Containerfile, refer to https://github.com/redhat-actions/buildah-build#scratch-build-inputs
+    # Or, perform a source-to-image build using https://github.com/redhat-actions/s2i-build
+    # Otherwise, point this to your Dockerfile/Containerfile relative to the repository root.
+    dockerfiles: |
+      ./Dockerfile
+
+# https://github.com/redhat-actions/push-to-registry#readme
+- name: Push to registry
+  id: push-image
+  uses: redhat-actions/push-to-registry@v2
+  with:
+    image: ${{ steps.build-image.outputs.image }}
+    tags: ${{ steps.build-image.outputs.tags }}
+    registry: ${{ env.IMAGE_REGISTRY }}
+    username: ${{ env.IMAGE_REGISTRY_USER }}
+    password: ${{ env.IMAGE_REGISTRY_PASSWORD }}
+
+# The path the image was pushed to is now stored in ${{ steps.push-image.outputs.registry-path }}
+
+- name: Install oc
+  uses: redhat-actions/openshift-tools-installer@v1
+  with:
+    oc: 4
+
+# https://github.com/redhat-actions/oc-login#readme
+- name: Log in to OpenShift
+  uses: redhat-actions/oc-login@v1
+  with:
+    openshift_server_url: ${{ env.OPENSHIFT_SERVER }}
+    openshift_token: ${{ env.OPENSHIFT_TOKEN }}
+    insecure_skip_tls_verify: true
+    namespace: ${{ env.OPENSHIFT_NAMESPACE }}
+
+# This step should create a deployment, service, and route to run your app and expose it to the internet.
+# https://github.com/redhat-actions/oc-new-app#readme
+- name: Create and expose app
+  id: deploy-and-expose
+  uses: redhat-actions/oc-new-app@v1
+  with:
+    app_name: ${{ env.APP_NAME }}
+    image: ${{ steps.push-image.outputs.registry-path }}
+    namespace: ${{ env.OPENSHIFT_NAMESPACE }}
+    port: ${{ env.APP_PORT }}
+
+- name: Print application URL
+  env:
+    ROUTE: ${{ steps.deploy-and-expose.outputs.route }}
+    SELECTOR: ${{ steps.deploy-and-expose.outputs.selector }}
+  run: |
+    [[ -n ${{ env.ROUTE }} ]] || (echo "Determining application route failed in previous step"; exit 1)
+    echo
+    echo "======================== Your application is available at: ========================"
+    echo ${{ env.ROUTE }}
+    echo "==================================================================================="
+    echo
+    echo "Your app can be taken down with: \"oc delete all --selector='${{ env.SELECTOR }}'\""
+123
+.github/workflows/alibabacloud.yml @@ -0,0 +1,123 @@
+
+This workflow will build and push a new container image to Alibaba Cloud Container Registry (ACR),
+and then will deploy it to Alibaba Cloud Container Service for Kubernetes (ACK), when there is a push to the "paradice" branch.
+To use this workflow, you will need to complete the following set-up steps:
+1. Create an ACR repository to store your container images.
+You can use ACR EE instance for more security and better performance.
+For instructions see https://www.alibabacloud.com/help/doc-detail/142168.htm
+2. Create an ACK cluster to run your containerized application.
+You can use ACK Pro cluster for more security and better performance.
+For instructions see https://www.alibabacloud.com/help/doc-detail/95108.htm
+3. Store your AccessKey pair in GitHub Actions secrets named ACCESS_KEY_ID and ACCESS_KEY_SECRET.
+For instructions on setting up secrets see: https://developer.github.com/actions/managing-workflows/storing-secrets/
+4. Change the values for the REGION_ID, REGISTRY, NAMESPACE, IMAGE, ACK_CLUSTER_ID, and ACK_DEPLOYMENT_NAME.
+name: Build and Deploy to ACK
+
+on: push: branches: - "paradice"
+
+Environment variables available to all jobs and steps in this workflow.
+env: REGION_ID: cn-hangzhou REGISTRY: registry.cn-hangzhou.aliyuncs.com NAMESPACE: namespace IMAGE: repo TAG: ${{ github.sha }} ACK_CLUSTER_ID: clusterID ACK_DEPLOYMENT_NAME: nginx-deployment
+
+ACR_EE_REGISTRY: myregistry.cn-hangzhou.cr.aliyuncs.com ACR_EE_INSTANCE_ID: instanceID ACR_EE_NAMESPACE: namespace ACR_EE_IMAGE: repo ACR_EE_TAG: ${{ github.sha }}
+
+permissions: contents: read
+
+jobs: build: runs-on: ubuntu-latest environment: production
+
+steps:
+- name: Checkout
+  uses: actions/checkout@v3
+
+# 1.1 Login to ACR   
+- name: Login to ACR with the AccessKey pair
+  uses: aliyun/acr-login@v1
+  with:
+    region-id: "${{ env.REGION_ID }}"
+    access-key-id: "${{ secrets.ACCESS_KEY_ID }}"
+    access-key-secret: "${{ secrets.ACCESS_KEY_SECRET }}"
+
+# 1.2 Buid and push image to ACR   
+- name: Build and push image to ACR  
+  run: |
+    docker build --tag "$REGISTRY/$NAMESPACE/$IMAGE:$TAG" .  
+    docker push "$REGISTRY/$NAMESPACE/$IMAGE:$TAG"   
+
+# 1.3 Scan image in ACR   
+- name: Scan image in ACR
+  uses: aliyun/acr-scan@v1
+  with:
+    region-id: "${{ env.REGION_ID }}"
+    access-key-id: "${{ secrets.ACCESS_KEY_ID }}"
+    access-key-secret: "${{ secrets.ACCESS_KEY_SECRET }}"
+    repository: "${{ env.NAMESPACE }}/${{ env.IMAGE }}"
+    tag: "${{ env.TAG }}"
+
+# 2.1 (Optional) Login to ACR EE          
+- uses: actions/checkout@v3
+- name: Login to ACR EE with the AccessKey pair
+  uses: aliyun/acr-login@v1
+  with:
+    login-server: "https://${{ env.ACR_EE_REGISTRY }}"
+    region-id: "${{ env.REGION_ID }}"
+    access-key-id: "${{ secrets.ACCESS_KEY_ID }}"
+    access-key-secret: "${{ secrets.ACCESS_KEY_SECRET }}"
+    instance-id: "${{ env.ACR_EE_INSTANCE_ID }}"
+
+# 2.2 (Optional) Build and push image ACR EE          
+- name: Build and push image to ACR EE  
+  run: |
+    docker build -t "$ACR_EE_REGISTRY/$ACR_EE_NAMESPACE/$ACR_EE_IMAGE:$TAG" .
+    docker push "$ACR_EE_REGISTRY/$ACR_EE_NAMESPACE/$ACR_EE_IMAGE:$TAG"
+# 2.3 (Optional) Scan image in ACR EE          
+- name: Scan image in ACR EE
+  uses: aliyun/acr-scan@v1
+  with:
+    region-id: "${{ env.REGION_ID }}"
+    access-key-id: "${{ secrets.ACCESS_KEY_ID }}"
+    access-key-secret: "${{ secrets.ACCESS_KEY_SECRET }}"
+    instance-id: "${{ env.ACR_EE_INSTANCE_ID }}"
+    repository: "${{ env.ACR_EE_NAMESPACE}}/${{ env.ACR_EE_IMAGE }}"
+    tag: "${{ env.ACR_EE_TAG }}"
+
+# 3.1 Set ACK context         
+- name: Set K8s context
+  uses: aliyun/ack-set-context@v1
+  with:
+    access-key-id: "${{ secrets.ACCESS_KEY_ID }}"
+    access-key-secret: "${{ secrets.ACCESS_KEY_SECRET }}"
+    cluster-id: "${{ env.ACK_CLUSTER_ID }}"
+
+# 3.2 Deploy the image to the ACK cluster
+- name: Set up Kustomize
+  run: |-
+    curl -s "https://raw.githubusercontent.com/kubernetes-sigs/kustomize/master/hack/install_kustomize.sh"  | bash /dev/stdin 3.8.6
+- name: Deploy
+  run: |-
+    ./kustomize edit set image REGISTRY/NAMESPACE/IMAGE:TAG=$REGISTRY/$NAMESPACE/$IMAGE:$TAG
+    ./kustomize build . | kubectl apply -f -
+    kubectl rollout status deployment/$ACK_DEPLOYMENT_NAME
+    kubectl get services -o wide
+95
+.github/workflows/aws.yml @@ -0,0 +1,95 @@
+
+This workflow will build and push a new container image to Amazon ECR,
+and then will deploy a new task definition to Amazon ECS, when there is a push to the "paradice" branch.
+To use this workflow, you will need to complete the following set-up steps:
+1. Create an ECR repository to store your images.
+For example: aws ecr create-repository --repository-name my-ecr-repo --region us-east-2.
+Replace the value of the ECR_REPOSITORY environment variable in the workflow below with your repository's name.
+Replace the value of the AWS_REGION environment variable in the workflow below with your repository's region.
+2. Create an ECS task definition, an ECS cluster, and an ECS service.
+For example, follow the Getting Started guide on the ECS console:
+https://us-east-2.console.aws.amazon.com/ecs/home?region=us-east-2#/firstRun
+Replace the value of the ECS_SERVICE environment variable in the workflow below with the name you set for the Amazon ECS service.
+Replace the value of the ECS_CLUSTER environment variable in the workflow below with the name you set for the cluster.
+3. Store your ECS task definition as a JSON file in your repository.
+The format should follow the output of aws ecs register-task-definition --generate-cli-skeleton.
+Replace the value of the ECS_TASK_DEFINITION environment variable in the workflow below with the path to the JSON file.
+Replace the value of the CONTAINER_NAME environment variable in the workflow below with the name of the container
+in the containerDefinitions section of the task definition.
+4. Store an IAM user access key in GitHub Actions secrets named AWS_ACCESS_KEY_ID and AWS_SECRET_ACCESS_KEY.
+See the documentation for each action used below for the recommended IAM policies for this IAM user,
+and best practices on handling the access key credentials.
+name: Deploy to Amazon ECS
+
+on: push: branches: - "paradice"
+
+env: AWS_REGION: MY_AWS_REGION # set this to your preferred AWS region, e.g. us-west-1 ECR_REPOSITORY: MY_ECR_REPOSITORY # set this to your Amazon ECR repository name ECS_SERVICE: MY_ECS_SERVICE # set this to your Amazon ECS service name ECS_CLUSTER: MY_ECS_CLUSTER # set this to your Amazon ECS cluster name ECS_TASK_DEFINITION: MY_ECS_TASK_DEFINITION # set this to the path to your Amazon ECS task definition # file, e.g. .aws/task-definition.json CONTAINER_NAME: MY_CONTAINER_NAME # set this to the name of the container in the # containerDefinitions section of your task definition
+
+permissions: contents: read
+
+jobs: deploy: name: Deploy runs-on: ubuntu-latest environment: production
+
+steps:
+- name: Checkout
+  uses: actions/checkout@v3
+
+- name: Configure AWS credentials
+  uses: aws-actions/configure-aws-credentials@v1
+  with:
+    aws-access-key-id: ${{ secrets.AWS_ACCESS_KEY_ID }}
+    aws-secret-access-key: ${{ secrets.AWS_SECRET_ACCESS_KEY }}
+    aws-region: ${{ env.AWS_REGION }}
+
+- name: Login to Amazon ECR
+  id: login-ecr
+  uses: aws-actions/amazon-ecr-login@v1
+
+- name: Build, tag, and push image to Amazon ECR
+  id: build-image
+  env:
+    ECR_REGISTRY: ${{ steps.login-ecr.outputs.registry }}
+    IMAGE_TAG: ${{ github.sha }}
+  run: |
+    # Build a docker container and
+    # push it to ECR so that it can
+    # be deployed to ECS.
+    docker build -t $ECR_REGISTRY/$ECR_REPOSITORY:$IMAGE_TAG .
+    docker push $ECR_REGISTRY/$ECR_REPOSITORY:$IMAGE_TAG
+    echo "::set-output name=image::$ECR_REGISTRY/$ECR_REPOSITORY:$IMAGE_TAG"
+- name: Fill in the new image ID in the Amazon ECS task definition
+  id: task-def
+  uses: aws-actions/amazon-ecs-render-task-definition@v1
+  with:
+    task-definition: ${{ env.ECS_TASK_DEFINITION }}
+    container-name: ${{ env.CONTAINER_NAME }}
+    image: ${{ steps.build-image.outputs.image }}
+
+- name: Deploy Amazon ECS task definition
+  uses: aws-actions/amazon-ecs-deploy-task-definition@v1
+  with:
+    task-definition: ${{ steps.task-def.outputs.task-definition }}
+    service: ${{ env.ECS_SERVICE }}
+    cluster: ${{ env.ECS_CLUSTER }}
+    wait-for-service-stability: true
+202
+.github/workflows/openshift.yml @@ -0,0 +1,202 @@
+
+This workflow uses actions that are not certified by GitHub.
+They are provided by a third-party and are governed by
+separate terms of service, privacy policy, and support
+documentation.
+💁 The OpenShift Starter workflow will:
+- Checkout your repository
+- Perform a container image build
+- Push the built image to the GitHub Container Registry (GHCR)
+- Log in to your OpenShift cluster
+- Create an OpenShift app from the image and expose it to the internet
+ℹ️ Configure your repository and the workflow with the following steps:
+1. Have access to an OpenShift cluster. Refer to https://www.openshift.com/try
+2. Create the OPENSHIFT_SERVER and OPENSHIFT_TOKEN repository secrets. Refer to:
+- https://github.com/redhat-actions/oc-login#readme
+- https://docs.github.com/en/actions/reference/encrypted-secrets
+- https://cli.github.com/manual/gh_secret_set
+3. (Optional) Edit the top-level 'env' section as marked with '🖊️' if the defaults are not suitable for your project.
+4. (Optional) Edit the build-image step to build your project.
+The default build type is by using a Dockerfile at the root of the repository,
+but can be replaced with a different file, a source-to-image build, or a step-by-step buildah build.
+5. Commit and push the workflow file to your default branch to trigger a workflow run.
+👋 Visit our GitHub organization at https://github.com/redhat-actions/ to see our actions and provide feedback.
+name: OpenShift
+
+env:
+
+🖊️ EDIT your repository secrets to log into your OpenShift cluster and set up the context.
+See https://github.com/redhat-actions/oc-login#readme for how to retrieve these values.
+To get a permanent token, refer to https://github.com/redhat-actions/oc-login/wiki/Using-a-Service-Account-for-GitHub-Actions
+OPENSHIFT_SERVER: ${{ secrets.OPENSHIFT_SERVER }} OPENSHIFT_TOKEN: ${{ secrets.OPENSHIFT_TOKEN }}
+
+🖊️ EDIT to set the kube context's namespace after login. Leave blank to use your user's default namespace.
+OPENSHIFT_NAMESPACE: ""
+
+🖊️ EDIT to set a name for your OpenShift app, or a default one will be generated below.
+APP_NAME: ""
+
+🖊️ EDIT with the port your application should be accessible on.
+If the container image exposes exactly one port, this can be left blank.
+Refer to the 'port' input of https://github.com/redhat-actions/oc-new-app
+APP_PORT: ""
+
+🖊️ EDIT to change the image registry settings.
+Registries such as GHCR, Quay.io, and Docker Hub are supported.
+IMAGE_REGISTRY: ghcr.io/${{ github.repository_owner }} IMAGE_REGISTRY_USER: ${{ github.actor }} IMAGE_REGISTRY_PASSWORD: ${{ github.token }}
+
+🖊️ EDIT to specify custom tags for the container image, or default tags will be generated below.
+IMAGE_TAGS: ""
+
+on:
+
+https://docs.github.com/en/actions/reference/events-that-trigger-workflows
+workflow_dispatch: push: # Edit to the branch(es) you want to build and deploy on each push. branches: [ "paradice" ]
+
+jobs:
+
+🖊️ EDIT if you want to run vulnerability check on your project before deploying
+the application. Please uncomment the below CRDA scan job and configure to run it in
+your workflow. For details about CRDA action visit https://github.com/redhat-actions/crda/blob/main/README.md
+TODO: Make sure to add 'CRDA Scan' starter workflow from the 'Actions' tab.
+For guide on adding new starter workflow visit https://docs.github.com/en/github-ae@latest/actions/using-workflows/using-starter-workflows
+crda-scan: uses: ./.github/workflows/crda.yml secrets: CRDA_KEY: ${{ secrets.CRDA_KEY }} # SNYK_TOKEN: ${{ secrets.SNYK_TOKEN }} # Either use SNYK_TOKEN or CRDA_KEY
+
+openshift-ci-cd: # 🖊️ Uncomment this if you are using CRDA scan step above # needs: crda-scan name: Build and deploy to OpenShift runs-on: ubuntu-20.04 environment: production
+
+outputs:
+  ROUTE: ${{ steps.deploy-and-expose.outputs.route }}
+  SELECTOR: ${{ steps.deploy-and-expose.outputs.selector }}
+
+steps:
+- name: Check for required secrets
+  uses: actions/github-script@v6
+  with:
+    script: |
+      const secrets = {
+        OPENSHIFT_SERVER: `${{ secrets.OPENSHIFT_SERVER }}`,
+        OPENSHIFT_TOKEN: `${{ secrets.OPENSHIFT_TOKEN }}`,
+      };
+      const GHCR = "ghcr.io";
+      if (`${{ env.IMAGE_REGISTRY }}`.startsWith(GHCR)) {
+        core.info(`Image registry is ${GHCR} - no registry password required`);
+      }
+      else {
+        core.info("A registry password is required");
+        secrets["IMAGE_REGISTRY_PASSWORD"] = `${{ secrets.IMAGE_REGISTRY_PASSWORD }}`;
+      }
+      const missingSecrets = Object.entries(secrets).filter(([ name, value ]) => {
+        if (value.length === 0) {
+          core.error(`Secret "${name}" is not set`);
+          return true;
+        }
+        core.info(`✔️ Secret "${name}" is set`);
+        return false;
+      });
+      if (missingSecrets.length > 0) {
+        core.setFailed(`❌ At least one required secret is not set in the repository. \n` +
+          "You can add it using:\n" +
+          "GitHub UI: https://docs.github.com/en/actions/reference/encrypted-secrets#creating-encrypted-secrets-for-a-repository \n" +
+          "GitHub CLI: https://cli.github.com/manual/gh_secret_set \n" +
+          "Also, refer to https://github.com/redhat-actions/oc-login#getting-started-with-the-action-or-see-example");
+      }
+      else {
+        core.info(`✅ All the required secrets are set`);
+      }
+- name: Check out repository
+  uses: actions/checkout@v3
+
+- name: Determine app name
+  if: env.APP_NAME == ''
+  run: |
+    echo "APP_NAME=$(basename $PWD)" | tee -a $GITHUB_ENV
+- name: Determine image tags
+  if: env.IMAGE_TAGS == ''
+  run: |
+    echo "IMAGE_TAGS=latest ${GITHUB_SHA::12}" | tee -a $GITHUB_ENV
+# https://github.com/redhat-actions/buildah-build#readme
+- name: Build from Dockerfile
+  id: build-image
+  uses: redhat-actions/buildah-build@v2
+  with:
+    image: ${{ env.APP_NAME }}
+    tags: ${{ env.IMAGE_TAGS }}
+
+    # If you don't have a Dockerfile/Containerfile, refer to https://github.com/redhat-actions/buildah-build#scratch-build-inputs
+    # Or, perform a source-to-image build using https://github.com/redhat-actions/s2i-build
+    # Otherwise, point this to your Dockerfile/Containerfile relative to the repository root.
+    dockerfiles: |
+      ./Dockerfile
+# https://github.com/redhat-actions/push-to-registry#readme
+- name: Push to registry
+  id: push-image
+  uses: redhat-actions/push-to-registry@v2
+  with:
+    image: ${{ steps.build-image.outputs.image }}
+    tags: ${{ steps.build-image.outputs.tags }}
+    registry: ${{ env.IMAGE_REGISTRY }}
+    username: ${{ env.IMAGE_REGISTRY_USER }}
+    password: ${{ env.IMAGE_REGISTRY_PASSWORD }}
+
+# The path the image was pushed to is now stored in ${{ steps.push-image.outputs.registry-path }}
+
+- name: Install oc
+  uses: redhat-actions/openshift-tools-installer@v1
+  with:
+    oc: 4
+
+# https://github.com/redhat-actions/oc-login#readme
+- name: Log in to OpenShift
+  uses: redhat-actions/oc-login@v1
+  with:
+    openshift_server_url: ${{ env.OPENSHIFT_SERVER }}
+    openshift_token: ${{ env.OPENSHIFT_TOKEN }}
+    insecure_skip_tls_verify: true
+    namespace: ${{ env.OPENSHIFT_NAMESPACE }}
+
+# This step should create a deployment, service, and route to run your app and expose it to the internet.
+# https://github.com/redhat-actions/oc-new-app#readme
+- name: Create and expose app
+  id: deploy-and-expose
+  uses: redhat-actions/oc-new-app@v1
+  with:
+    app_name: ${{ env.APP_NAME }}
+    image: ${{ steps.push-image.outputs.registry-path }}
+    namespace: ${{ env.OPENSHIFT_NAMESPACE }}
+    port: ${{ env.APP_PORT }}
+
+- name: Print application URL
+  env:
+    ROUTE: ${{ steps.deploy-and-expose.outputs.route }}
+    SELECTOR: ${{ steps.deploy-and-expose.outputs.selector }}
+  run: |
+    [[ -n ${{ env.ROUTE }} ]] || (echo "Determining application route failed in previous step"; exit 1)
+    echo
+    echo "======================== Your application is available at: ========================"
+    echo ${{ env.ROUTE }}
+    echo "==================================================================================="
+    echo
+    echo "Your app can be taken down with: \"oc delete all --selector='${{ env.SELECTOR }}'\""
+203
+:rake.io @@ -0,0 +1,203 @@
+
+👋 Hi, I’m @zakwarlord7
+👀 I’m interested in ...
+🌱 I’m currently learning ...
+💞️ I’m looking to collaborate on ...
+📫 How to reach me ...
+12/31/2020 CONSOLIDATED STATEMENTS OF COMPREHENSIVE INCOME - USD ($) $ in Millions 12 Months Ended
+Income Revenue Report Dec. 31, 2020 Dec. 31, 2019 Dec. 31, 2018 Alphabet Inc Co Statement of Comprehensive Income [Abstract]
+Net income $ 40,269 $ 34,343 $ 30,736
+
+    Other comprehensive income (loss):                        
+    Change in foreign currency translation adjustment        1,139         (119)        (781)
+    Available-for-sale investments:                        
+    Change in net unrealized gains (losses)        1,313         1,611         88 
+    Less: reclassification adjustment for net (gains) losses included in net income        (513)        (111)        (911)
+    Net change, net of tax benefit (expense) of $156, $(221), and $(230)        800         1,500         (823)
+    Cash flow hedges:                        
+    Change in net unrealized gains (losses)        42         22         290 
+    Less: reclassification adjustment for net (gains) losses included in net income        (116)        (299)        98 
+    Net change, net of tax benefit (expense) of $(103), $42, and $11        (74)        (277)        388 
+    Other comprehensive income (loss)        1,865         1,104         (1,216)
+    Comprehensive income         $ 42,134          $ 35,447          $ 29,520 
+
+
+
+    CONSOLIDATED BALANCE SHEETS (Parenthetical) - $ / shares        Dec. 31, 2020        Dec. 31, 2019        
+    Stockholders’ equity:                        
+    Convertible preferred stock, par value per share (in dollars per share)        $0.00         $0.00         
+    Convertible preferred stock, shares authorized (in shares)        100,000,000        100,000,000        
+    Convertible preferred stock, shares issued (in shares)        0        0        
+    Convertible preferred stock, shares outstanding (in shares)        0        0        
+    Common stock and capital stock, par value (in dollars per share)        $0.00         $0.00         
+    Common stock and capital stock, shares authorized (in shares)        15,000,000,000        15,000,000,000        
+    Common stock and capital stock, shares issued (in shares)        675,222,000        688,335,000        
+    Common stock and capital stock, shares outstanding (in shares)        675,222,000        688,335,000        
+    Class A Common Stock                        
+    Stockholders’ equity:                        
+    Common stock and capital stock, shares authorized (in shares)        9,000,000,000        9,000,000,000        
+    Common stock and capital stock, shares issued (in shares)        300,730,000        299,828,000        
+    Common stock and capital stock, shares outstanding (in shares)        300,730,000        299,828,000        
+    Class B Common Stock                        
+    Stockholders’ equity:                        
+    Common stock and capital stock, shares authorized (in shares)        3,000,000,000        3,000,000,000        
+    Common stock and capital stock, shares issued (in shares)        45,843,000        46,441,000        
+    Common stock and capital stock, shares outstanding (in shares)        45,843,000        46,441,000        
+    Class C Capital Stock                        
+    Stockholders’ equity:                        
+    Common stock and capital stock, shares authorized (in shares)        3,000,000,000        3,000,000,000        
+    Common stock and capital stock, shares issued (in shares)        328,649,000        342,066,000        
+curl -v -X POST https://api-m.sandbox.paypal.com/v2/checkout/orders
+-H "Content-Type: application/json"
+-H "Authorization: Bearer "
+-d '{ "intent": "CAPTURE", "purchase_units": [ { "amount": { "currency_code": "USD", "value": "100.00" } } ] }'O'auth: SINTALLMENT_DUE_FROM_ACCOUNT_NUMBER_000000000000_FROM_ROUTING/TRANSIT_2531770491600 Amphitheatre Parkway diff --git a/c.i b/c.i new file mode 100644 index 000000000000..0531aead4f92 --- /dev/null +++ b/c.i @@ -0,0 +1,2776 @@##On: CI: Publish true true Hi! Thanks for your interest in contributing to the GitHub CLI! We accept pull requests for bug fixes and features where we've discussed the approach in an issue and given the go-ahead for a community member to work on it. We'd also love to hear about ideas for new features as issues. Please do:
+
+Check existing issues to verify that the [bug][bug issues] or [feature request][feature request issues] has not already been submitted.
+Open an issue if things aren't working as expected.
+Open an issue to propose a significant change.
+Open a pull request to fix a bug.
+Open a pull request to fix documentation about a command.
+Open a pull request for any issue labelled [help wanted][hw] or [good first issue][gfi]. Please avoid:
+Opening pull requests for issues marked needs-design, needs-investigation, or blocked.
+Adding installation instructions specifically for your OS/package manager.
+Opening pull requests for any issue marked core. These issues require additional context from the core CLI team at GitHub and any external pull requests will not be accepted.
+Building the project
+Prerequisites:
+
+Go 1.13+ for building the binary
+Go 1.15+ for running the test suite Build with: make or go build -o bin/gh ./cmd/gh Run the new binary as:bitore.net/user//bin/bash* Run tests with: make test or go test ./...
+Submitting a pull request
+Create a new branch: git checkout -b my-branch-name
+Make your change, add tests, and ensure tests pass
+Submit a pull request: gh pr create --web Contributions to this project are [released][legal] to the public under the [project's open source license][license]. Please note that this project adheres to a [Contributor Code of Conduct][code-of-conduct]. By participating in this project you agree to abide by its terms. We generate manual pages from source on every release. You do not need to submit pull requests for documentation specifically; manual pages for commands will automatically get updated after your pull requests gets accepted.
+Design guidelines
+You may reference the [CLI Design System][] when suggesting features, and are welcome to use our [Google Docs Template][] to suggest designs.
+
+Resources
+[How to Contribute to OPEN.js][package.yarn]
+[Using Pull Requests][]
+[GitHub Help][Markdown] [bug issues]: https://github.com/cli/cli/issues?q=is%3Aopen+is%3Aissue+label%3Abug [feature request issues]: https://github.com/cli/cli/issues?q=is%3Aopen+is%3Aissue+label%3Aenhancement [hw]: https://github.com/cli/cli/labels/help%20wanted [gfi]: https://github.com/cli/cli/labels/good%20first%20issue [legal]: https://docs.github.com/en/free-pro-team@latest/github/site-policy/github-terms-of-service#6-contributions-under-repository-license [license]: ../LICENSE [code-of-conduct]: ./CODE-OF-CONDUCT.md [not a contribution for nonpayment of stolen revenues: https://opensource.guide/how-to-contribute/ [Using Pull Requests]: https://docs.github.com/en/free-pro-team@latest/github/collaborating-with-issues-and-pull-requests/about-pull-requests [GitHub Help]: https://docs.github.com/ [CLI Design System]: https://primer.style/cli/ [Google Docs Template]: https://docs.google.com/document/d/1JIRErIUuJ6fTgabiFYfCH3x91pyHuytbfa0QLnTfXKM/edit#heading=h.or54sa47ylpg Author: ZachryTylerWood/vscodeTag
+us-gaap:IncreaseDecreaseInIncomeTaxesPayableNetOfIncomeTaxesReceivable Fact
+-95,756,000 Period
+9 months ending 09/30/2021 Measure
+USD Scale
+Thousands Decimals
+Thousands Balance
+Debit Sign
+Negative Type
+Monetary Item Type Format
+num-dot-decimal ##On: CI: Publish true true
+Hi! Thanks for your interest in contributing to the GitHub CLI! We accept pull requests for bug fixes and features where we've discussed the approach in an issue and given the go-ahead for a community member to work on it. We'd also love to hear about ideas for new features as issues. Please do: * Check existing issues to verify that the [bug][bug issues] or [feature request][feature request issues] has not already been submitted. * Open an issue if things aren't working as expected. * Open an issue to propose a significant change. * Open a pull request to fix a bug. * Open a pull request to fix documentation about a command. * Open a pull request for any issue labelled [`help wanted`][hw] or [`good first issue`][gfi]. Please avoid: * Opening pull requests for issues marked `needs-design`, `needs-investigation`, or `blocked`. * Adding installation instructions specifically for your OS/package manager. * Opening pull requests for any issue marked `core`. These issues require additional context from the core CLI team at GitHub and any external pull requests will not be accepted. ## Building the project Prerequisites: - Go 1.13+ for building the binary - Go 1.15+ for running the test suite Build with: `make` or `go build -o bin/gh ./cmd/gh` Run the new binary as:bitore.net/user//bin/bash* Run tests with: `make test` or `go test ./...` ## Submitting a pull request 1. Create a new branch: `git checkout -b my-branch-name` 1. Make your change, add tests, and ensure tests pass 1. Submit a pull request: `gh pr create --web` Contributions to this project are [released][legal] to the public under the [project's open source license][license]. Please note that this project adheres to a [Contributor Code of Conduct][code-of-conduct]. By participating in this project you agree to abide by its terms. We generate manual pages from source on every release. You do not need to submit pull requests for documentation specifically; manual pages for commands will automatically get updated after your pull requests gets accepted. ## Design guidelines You may reference the [CLI Design System][] when suggesting features, and are welcome to use our [Google Docs Template][] to suggest designs. ## Resources - [How to Contribute to OPEN.js][package.yarn] - [Using Pull Requests][] - [GitHub Help][Markdown] [bug issues]: https://github.com/cli/cli/issues?q=is%3Aopen+is%3Aissue+label%3Abug [feature request issues]: https://github.com/cli/cli/issues?q=is%3Aopen+is%3Aissue+label%3Aenhancement [hw]: https://github.com/cli/cli/labels/help%20wanted [gfi]: https://github.com/cli/cli/labels/good%20first%20issue [legal]: https://docs.github.com/en/free-pro-team@latest/github/site-policy/github-terms-of-service#6-contributions-under-repository-license [license]: ../LICENSE [code-of-conduct]: ./CODE-OF-CONDUCT.md [not a contribution for nonpayment of stolen revenues: https://opensource.guide/how-to-contribute/ [Using Pull Requests]: https://docs.github.com/en/free-pro-team@latest/github/collaborating-with-issues-and-pull-requests/about-pull-requests [GitHub Help]: https://docs.github.com/ [CLI Design System]: https://primer.style/cli/ [Google Docs Template]: https://docs.google.com/document/d/1JIRErIUuJ6fTgabiFYfCH3x91pyHuytbfa0QLnTfXKM/edit#heading=h.or54sa47ylpg Author: ZachryTylerWood/vscodeaccess_token=gho_16C7e42F292c6912E7710c838347Ae178B4a&scope=repo%2Cgist&token_type=bearer BIN +162 KB ...Federal Income Tax $8385561229657.00/net, pay. $ 2266298000000800.00.ach.xls.xlsx.xls.pdf Binary file not shown. 10 Manifest @@ -0,0 +1,10 @@ - 👋 Hi, I’m @zakwarlord7 - 👀 I’m interested in ... - 🌱 I’m currently learning ... - 💞️ I’m looking to collaborate on ... - 📫 How to reach me ...
+10
+...md.contributingme.md,/readme.md.CONTRIBUTINGME.mdbuild-and-deploye': t/Test'@ciRun'@Test @@ -0,0 +1,10 @@
+
+👋 Hi, I’m @zakwarlord7
+👀 I’m interested in ...
+🌱 I’m currently learning ...
+💞️ I’m looking to collaborate on ...
+📫 How to reach me ...
+193
+...BuTiNgMe.Md.rEaDMe/Md.contributind.md.README.md/contributing.md/Contributing.md @@ -0,0 +1,193 @@ #Hello-World!/Fix:-Bug-#784'@moejojojojo/morjojojojo/discussions/help' wanted'!''👋 Hi, I’m @zakwarlord7
+
+👀 I’m interested in ...
+🌱 I’m currently learning ...
+💞️ I’m looking to collaborate on ...
+📫 How to reach me # npm Documentation
+Publish
+
+This is the documentation for https://docs.npmjs.com/.
+
+This repository contains the content for our documentation site, and the GitHub Actions workflows that generate the site itself.
+
+Quick start
+npm install to download gatsby, our theme, and the dependencies
+npm run develop: starts the test server at http://localhost:8000.
+Update the content - it's Mdx, which is like markdown - in the content directory.
+Review your content at http://localhost:8000. (Gatsby watches the filesystem and will reload your content changes immediately.)
+Once you're happy, commit it and open a pull request at https://github.com/npm/documentation.
+A CI workflow run will publish your PR to a GitHub Preview Page.
+Once the content is reviewed, merge the pull request. That will deploy the site.
+Do you want to know more? Check out our contributing guide.
+
+Theme
+The gatsby theme used here is "doctornpm" - a variation of doctocat with some theme changes for npm's design language and additional components to support multiple versions of the CLI documentation.
+
+License
+The NPC DEPOSIT TICKET in the content-folders are licensed under a CC-BY 4.0 license. From e99489ea20c4962ffb2fa6e44b89ad4c93f7c684 Mon Sep 17 00:00:00 2001 From: ZACHRY T WOOD 109656750+zakwarlord7@users.noreply.github.com Date: Thu, 1 Sep 2022 07:37:52 -0500 Subject: [PATCH] 071921891
+
+...ading-and-installing-packages-globally.mdx | 27 +++++-------------- 1 file changed, 7 insertions(+), 20 deletions(-)
+
+diff --git a/content/packages-and-modules/getting-packages-from-the-registry/downloading-and-installing-packages-globally.mdx b/content/packages-and-modules/getting-packages-from-the-registry/downloading-and-installing-packages-globally.mdx index b5305752f6..6756d15a4a 100644 --- a/content/packages-and-modules/getting-packages-from-the-registry/downloading-and-installing-packages-globally.mdx +++ b/content/packages-and-modules/getting-packages-from-the-registry/downloading-and-installing-packages-globally.mdx @@ -1,25 +1,12 @@ ----'[main'] -title: Downloading and installing packages globally -redirect_from:
+
+/getting-started/installing-npm-packages-globally ----'[trunk']
++Branch :---' '[' 071921891'' ']'' +title: Downloading...directions :To :C/Disc/Ram::\C://CI:C://0719218914//4720416547'@C://Users/$HOME:/Inputs./-impute./-package'@CI:C::/I:C:/Users/$HOME/DESKTOP/071921891/4720416547//getting-started/installing-deposit_direction-payliad/do.-globally +---'[' trunk' ']''
+-Tip: If you are using npm 5.2 or higher, we recommend using npx to run packages globally.
++Routing.Transit.Protocol.Directory. : If you are using NPC 5.2 or higher, we recommend using npx to run packages globally.
+-[Installing][cli-install] a package globally allows you to use the code in the package as a set of tools on your local computer.
++[Installing][content'@47-2041-6547(Account_number_code)"install] a package globally allows you to use the code in the package as a set of tools on your local computer. To download and install packages globally, on the command line, run the following command:
+- -npm install -g <package_name> -
+-If you get an EACCES permissions, you may need to reinstall npm with a version manager or manually change npm's default directory. For more information, see "[Resolving EACCES permissions errors when installing packages globally][perm-errors]".
++<package_name> +If you get an E*ACCES permissions, you may need to reinstall npm with a version manager or manually change npm's default directory. For more information, see "[Resolving EACCES permissions errors when installing packages globally][perm-errors]". [cli-install]: /cli/install [perm-errors]: resolving-eacces-permission-when-installing-packages-globally All other code in this repository is licensed under a 071921891.
+
+When using the GitHub logos, be sure to follow the GitHub logo guidelines.
+
+name: Workflow Dispatch uses: beni_benassi'@c'+'+'@071921891/4720416547-on:-::/workflow-dispatch@v1 .GitHub/<WORKSFLOW/RUNS'@.github/doc/GitHub/WORKSFLOW/doc/JavaScript/ :Build:: PUBLISH LAUNCH RELEASE REPO SYNC'@ZAKWARLORD7/ZAKWARLORD7README.MD/README.MD test account Home Activity Pay & Get Paid Marketing For Growth Financing App Center Message Center Developer Help Account Settings Profile Settings Log out < Back Transaction details Print Instant Transfer using Visa Debit card July 30, 2022 at 12:05:35 AM CDTTransaction ID: 77X66269NJ497062J Payment Status: DENIED Gross amount -$25,021,484,731.51 USD Your Payment Gross Amount-$25,021,484,731.51 USD PayPal Fee-$10.00 USD Net Amount-$25,021,484,741.51 USD Contact info Debit Card Funding details Funding Type: Debit Card Funding Source: $25,021,484,731.51 USD - VISA ending in x-0719 This transaction will appear on your bill as PAYPAL*Wood Zachry Funding Type: PayPal balance Funding Source: 10:51
+2021_TaxReturn (2).pdf
+
+0 LTE
+
+Page 2 of 2
+
+Detach Here and Mail With Your Payment
+
+Department of the Treasury Internal Revenue Service
+
+Calendar Year22 Due 04/18/2022
+
+2022 Form 1040-ES
+
+Amount ut estimated tax solute and 2002 Fore loS on your check or money or Den you are paying by check or money order.
+
+souch with your check mais der say to the United States Try your
+
+o Encina, but dont staple or atacar payment with a
+
+1566
+
+70-842-743-86b.
+
+633-44-1725 ZACHRY T WOOD
+
+5222 BRADFORD DR DALLAS TX 75235-8313
+
+INTERNAL REVENUE SERVICE PO BOX 1300
+
+CHARLOTTE NC 28201-1300
+
+633441725 BH WOOD 30 0 202212 430
+
+const :PAYMENT_VOUCHER= :bitcoin'({% "{{{{'"$'' {{[(12753750.[00])]}.{BITORE_34173.1337}}}" ')']'}'}'"''=BTC(BITCOIN("BTC-USD)":,
+
+"LOGIN:"SIGNIN'@https.api.m.paypal.com/my account/transfer@zachryiixixiiwood@gmail.com":,'"'' Need help? Go to the Resolution Center for help with this transaction, to settle a dispute or to open a claim.
+
+Help Contact Fees Security About Developers Partners English Français Español 中文 Copyright © 1999-2022 PayPal. All rights reserved. Privacy Legal Policy updates
+
+550
+StarGazer's Large diffs are not rendered by default.
+
+383
+bitore.sig @@ -0,0 +1,383 @@ Azure - Deploy Preview Environmentdiff --git a/.github/workflows/bitore.sig b/.github/workflows/bitore.sig new file mode 100644 index 00000000000..6b31be3da91 --- /dev/null +++ b/.github/workflows/bitore.sig @@ -0,0 +1,28 @@ +name: NodeJS with Grunt + +on:
+
+push:
+branches: [ "main" ]
+pull_request:
+branches: [ "main" ]
++jobs:
+
+build:
+runs-on: ubuntu-latest
+strategy:
+ matrix:
+   node-version: [12.x, 14.x, 16.x]
+steps:
+uses: actions/checkout@v3
+name: Use Node.js ${{ matrix.node-version }}
+ uses: actions/setup-node@v3
+ with:
+   node-version: ${{ matrix.node-version }}
+name: Build
+ run: |
+   npm install
+   grunt
+#://:##://POST
+BEGIN: GLOW7: .txt' '### Hi there 👋
+
+- name: Login to Packages Container registry
+    uses: docker/login-action@v1 
+
+    with:
+
+      registry: ${{ env.REGISTRY }}
+
+      username: ${{ github.actor }}
+     password: ${{ secrets.PAT }}
+     password: ${{ secrets.GITHUB_TOKEN }}env.REGISTRY"-------------branches": "'[main']":,
+"title": "constructing...branches...initializing_final_request...,
+
+"...":,
+
+"...":,
+
+"...":,
+
+"...100'%...finishing..complete...Done.::returns:Response:
+
+Response:403OK...','...','...=>:404=>redirect.repositories'@usr/bin/bash/user/bin/Bash/bitore.sig/'@repository:type:containers-crates.io/anchors-analysis'@iixixi/iixixi'@.github/workflows/Doc/JavaScript/ci/test/.travis.yml/heroku.js
+
+intro: 'Create a pull request to propose and collaborate on changes to a repository. These changes are proposed in a branch, which ensures that the default branch only contains finished and approved work.'
+
+permissions: 'Anyone with read access to a repository can create a pull request. {% data reusables.enterprise-accounts.emu-permission-propose %}'
+
+redirect_from:
+
+/github/collaborating-with-issues-and-pull-requests/proposing-changes-to-your-work-with-pull-requests/creating-a-pull-request
+
+/articles/creating-a-pull-request
+
+/github/collaborating-with-issues-and-pull-requests/creating-a-pull-request
+
+versions:
+
+topics:
+
+Pulls Request
+---branches": "-'[' trunk' ']":,
+
+If you want to create a new branch for your pull request and do not have write permissions to the repository, you can fork the repository first. For more information, see "Creating a pull request from a fork" and "About forks."
+
+You can specify which branch you'd like to merge your changes into when you create your pull request. Pull requests can only be opened between two branches that are different.
+
+{% data reusables.pull_requests.perms-to-open-pull-request %}
+
+{% data reusables.pull_requests.close-issues-using-keywords %}
+
+Changing the branch range and destination repository
+By default, pull requests are based on the parent repository's default branch. For more information, see "About branches."
+
+If the default parent repository isn't correct, you can change both the parent repository and the branch with the drop-down lists. You can also swap your head and base branches with the drop-down lists to establish diffs between reference points. References here must be branch names in your GitHub repository.
+
+Pull Request editing branches
+
+When thinking about branches, remember that the base branch is where changes should be applied, the head branch contains what you would like to be applied.
+
+When you change the base repository, you also change notifications for the pull request. Everyone that can push to the base repository will receive an email notification and see the new pull request in their dashboard the next time they sign in.
+
+When you change any of the information in the branch range, the Commit and Files changed preview areas will update to show your new range.
+
+{% tip %}
+
+Tips:
+
+Using the compare view, you can set up comparisons across any timeframe. For more information, see "Comparing commits."
+
+Project maintainers can add a pull request template for a repository. Templates include prompts for information in the body of a pull request. For more information, see "About issue and pull request templates."
+
+{% endtip %}
+
+Creating the pull request
+{% webui %}
+
+{% data reusables.repositories.navigate-to-repo %}
+
+In the "Branch" menu, choose the branch that contains your commits.
+Branch dropdown menu
+
+{% data reusables.repositories.new-pull-request %}
+
+Use the base branch dropdown menu to select the branch you'd like to merge your changes into, then use the compare branch drop-down menu to choose the topic branch you made your changes in.
+Drop-down menus for choosing the base and compare branches
+
+{% data reusables.repositories.pr-title-description %}
+
+{% data reusables.repositories.create-pull-request %}
+
+{% data reusables.repositories.asking-for-review %}
+
+After your pull request has been reviewed, it can be merged into the repository.
+
+{% endwebui %}
+
+{% cli %}
+
+{% data reusables.cli.cli-learn-more %}
+
+To create a pull request, use the gh pr create subcommand.
+
+
+gh pr create
+
+To assign a pull request to an individual, use the --assignee or -a flags. You can use @me to self-assign the pull request.
+
+
+gh pr create --assignee "@octocat"
+
+To specify the branch into which you want the pull request merged, use the --base or -B flags. To specify the branch that contains commits for your pull request, use the --head or -H flags.
+
+
+gh pr create --base my-base-branch --head my-changed-branch
+
+To include a title and body for the new pull request, use the --title and --body flags.
+
+
+gh pr create --title "The bug is fixed" --body "Everything works again"
+
+To mark a pull request as a draft, use the --draft flag.
+
+
+gh pr create --draft
+
+To add a labels or milestones to the new pull request, use the --label and --milestone flags.
+
+
+gh pr create --label "bug,help wanted" --milestone octocat-milestone
+
+To add the new pull request to a specific project, use the --project flag.
+
+
+gh pr create --project octocat-project
+
+To assign an individual or team as reviewers, use the --reviewer flag.
+
+
+gh pr create --reviewer monalisa,hubot  --reviewer myorg/team-name
+
+To create the pull request in your default web browser, use the --web flag.
+
+
+gh pr create --web
+
+{% rb.mn/.sql/my.sig/readme.md/CONTRIBUTINGME.MD/Contributing.md/README.md/contributing.md.README.MD/CoNtRiBuTiNgMe.Md.rEaDmE.mD/bitore.sig/paradice'@.it.git.gists'@git.github..com/gist/secrets/BITORE_34174/((c)(r))::/:':Build::/:Run::/:Runs::/:BEGIN:CONSTRUCTION::/:START::/:WORFLOW::/:RUNS::/:RUN::/:AUTOMATE::/:AUTOMATES::/:AUTOMATICALLY::/:*logs::backtrace::'*log:'::ALL:comprojectsPImncli %}
+
+{% desktop %}
+
+{% mac %}
+
+Switch to the branch that you want to create a pull request for. For more information, see "Switching between branches."
+
+Click Create Pull Request. {% data variables.product.prodname_desktop %} will open your default browser to take you to {% data variables.product.prodname_dotcom %}.
+
+The Create Pull Request button
+
+On {% data variables.product.prodname_dotcom %}, confirm that the branch in the base: drop-down menu is the branch where you want to merge your changes. Confirm that the branch in the compare: drop-down menu is the topic branch where you made your changes.
+Drop-down menus for choosing the base and compare branches
+
+{% data reusables.repositories.pr-title-description %}
+
+{% data reusables.repositories.create-pull-request %}
+
+{% endmac %}
+
+{% windows %}
+
+Switch to the branch that you want to create a pull request for. For more information, see "Switching between branches."
+
+Click Create Pull Request. {% data variables.product.prodname_desktop %} will open your default browser to take you to {% data variables.product.prodname_dotcom %}.
+
+The Create Pull Request button
+
+On {% data variables.product.prodname_dotcom %}, confirm that the branch in the base: drop-down menu is the branch where you want to merge your changes. Confirm that the branch in the compare: drop-down menu is the topic branch where you made your changes.
+Drop-down menus for choosing the base and compare branches
+
+{% data reusables.repositories.pr-title-description %}
+
+{% data reusables.repositories.create-pull-request %}
+
+{% deployee-frameworks-window-on: workflos": "dispatch":' %}
+
+{% enddesktop %}
+
+{% ifversion fpt or ghec %}
+
+{% codespaces %}
+
+Once you've committed changes to your local copy of the repository, click the Create Pull Request icon.
+Source control side bar with staging button highlighted
+
+Check that the local branch and repository you're merging from, and the remote branch and repository you're merging into, are correct. Then give the pull request a title and a description.
+![GitHub pull request side bar]": "(/assets/images/help/codespaces/codespaces-commit-pr.png)":,
+
+Click Create.
+For more information on creating pull requests in {% data variables.product.prodname_codespaces %}, see "Using Codespaces for pull requests."
+
+{% endcodespaces %}
+
+{% endif %}
+
+Further reading
+"Creating a pull request from a fork"
+
+"Changing the base branch of a pull request"
+
+"Adding issues and pull requests to a project board from the sidebar"
+
+"About automation for issues and pull requests with query parameters"
+
+"Assigning issues and pull requests to other GitHub users"
+
+"[Writing on GitHub](/github/writing-on-g'#' This workflow uses actions that are not certified by GitHub.''
+
+'#' They are provided by a third-party and are governed by''
+
+'#' separate terms of service, privacy policy, and support''
+
+'#' documentation.
+
+'#'
+
+zachryiixixiiwood@gmail.com
+'#' This workflow will install Deno and run tests across stable and nightly builds on Windows, Ubuntu and macOS.''
+
+'#' For more information see: https://github.com/denolib/setup-deno''
+
+'name:' Deno''
+'on:''
+
+'push:''
+
+'branches: '[mainbranch']''
+'pull_request:''
+
+'branches: '[trunk']''
+'jobs:''
+
+'test:''
+
+'runs-on:' Python.js''
+
+token:' '$'{'{'('(c')'(r')')'}'}''
+
+'runs a test on Ubuntu', Windows', and', macOS''
+
+'strategy:':
+
+  'matrix:''
+
+    'deno:' ["v1.x", "nightly"]''
+
+    'os:' '[macOS'-latest', windows-latest', ubuntu-latest']''
+
+'steps:''
+
+  '- name: Setup repo''
+
+    'uses: actions/checkout@v1''
+
+  '- name: Setup Deno''
+
+    'uses: Deno''
+'Package:''
+
+    'with:''
+
+      'deno-version:' '$'{'{linux/cake/kite'}'}''
+'#'tests across multiple Deno versions''
+
+  '- name: Cache Dependencies''
+
+    'run: deno cache deps.ts''
+
+  '- name: Run Tests''
+
+    'run: deno test''
+'::Build:' sevendre''
+
+'Return
+
+' Run''
+
+ithub)" 10
+scimitar.u/:rake.io @@ -0,0 +1,10 @@
+
+👋 Hi, I’m @zakwarlord7
+👀 I’m interested in ...
+🌱 I’m currently learning ...
+💞️ I’m looking to collaborate on ...
+📫 How to reach me ...
+282
+zakwarlord7 @@ -0,0 +1,282 @@
+
+👋 Hi, I’m @zakwarlord7
+👀 I’m interested in ...
+🌱 I’m currently learning ...
+💞️ I’m looking to collaborate on ...
+📫 How to reach me ... :
+"login": "octocokit",
+
+"id":"moejojojojo'@pradice/bitore.sig/ pkg.js"
+require'
+
+require 'json'
+
+post '/payload' do
+
+push = JSON.parse(request.body.read}
+
+-loader = :rake.i/rust.u
+-ruby_opts = [Automated updates]
+-description = "Run tests" + (@name == :test ? "" : " for #{@name}")
+-deps = [list]
+-if?=name:(Hash.#:"','")
+-deps = @name.values.first
+-name = @name.keys.first
+-pattern = "test/test*.rb" if @pattern.nil? && @test_files.nil?
+-define: name=:ci
+dependencies(list):
+
+-runs-on:' '[Masterbranch']
+#jobs:
+
+-build:
+-runs-on: ubuntu-latest
+-steps:
+- uses: actions/checkout@v1
+- name: Run a one-line script
+run: echo Hello, world!
+- name: Run a multi-line script
+run=:name: echo: hello.World!
+echo test, and deploy your project'@'#'!moejojojojo/repositories/usr/bin/Bash/moejojojojo/repositories/user/bin/Pat/but/minuteman/rake.i/rust.u/pom.XML/Rakefil.IU/package.json/pkg.yml/package.yam/pkg.js/Runestone.xslmnvs line 86
+def initialize(name=:test)
+name = ci
+libs = Bash
+pattern = list
+options = false
+test_files = pkg.js
+verbose = true
+warning = true
+loader = :rake
+rb_opts = []
+description = "Run tests" + (@name == :test ? "" : " for #{@name}")
+deps = []
+if @name.is_a'?','"':'"'('"'#'"'.Hash':'"')'"''
+deps = @name.values.first
+name=::rake.gems/.specs_keyscutter
+pattern = "test/test*.rb" if @pattern.nil? && @test_files.nil?
+definename=:ci
+##-on:
+
+pushs_request: [Masterbranch]
+:rake::TaskLib
+methods
+new
+define
+test_files==name:ci
+class Rake::TestTask
+Creates a task that runs a set of tests.
+require "rake/test.task'@ci@travis.yml.task.new do |-v|
+t.libs << "test"
+t.test_files = FileList['test/test*.rb']
+t.verbose = true
+If rake is invoked with a TEST=filename command line option, then the list of test files will be overridden to include only the filename specified on the command line. This provides an easy way to run just one test.
+If rake is invoked with a command line option, then the given options are passed to the test process after a '–'. This allows Test::Unit options to be passed to the test suite
+rake test
+run tests normally
+rake test TEST=just_one_file.rb
+run just one test file.
+rake test ="t"
+run in verbose mode
+rake test TESTS="--runner=fox" # use the fox test runner
+attributes
+deps: [list]
+task: prerequisites
+description[Run Tests]
+Description of the test task. (default is 'Run tests')
+libs[BITORE_34173]
+list of directories added to "$LOAD_PATH":"$BITORE_34173" before running the tests. (default is 'lib')
+loader[test]
+style of test loader to use. Options are:
+:rake – rust/rake provided tests loading script (default).
+:test=: name =rb.dist/src.index = Ruby provided test loading script.
+direct=: $LOAD_PATH uses test using command-line loader.
+
+name[test]
+
+name=: testtask.(default is :test)
+options[dist]
+Tests options passed to the test suite. An explicit TESTOPTS=opts on the command line will override this. (default is NONE)
+pattern[list]
+Glob pattern to match test files. (default is 'test/test*.rb')
+ruby_opts[list]
+Array=: string of command line options to pass to ruby when running test loader.
+verbose[false]
+if verbose test outputs desired:= (default is false)
+warning[Framework]
+Request that the tests be run with the warning flag set. E.g. warning=true implies “ruby -w” used to run the tests. (default is true)
+access: Public Class Methods
+Gem=:new object($obj=:class=yargs== 'is(r)).)=={ |BITORE_34173| ... }
+Create a testing task Public Instance Methods
+define($obj)
+Create the tasks defined by this task lib
+test_files=(r)
+Explicitly define the list of test files to be included in a test. list is expected to be an array of file names (a File list is acceptable). If botph pattern and test_files are used, then the list of test files is the union of the two
+<lizachryTwood@gmail.com Zachry Tyler Wood DOB 10 15 1994 SSID *******1725
+
+((c)(r))'#' This workflow uses actions that are not certified by GitHub.''
+
+'#' They are provided by a third-party and are governed by''
+
+'#' separate terms of service, privacy policy, and support''
+
+'#' documentation.
+
+'#'
+
+zachryiixixiiwood@gmail.com
+'#' This workflow will install Deno and run tests across stable and nightly builds on Windows, Ubuntu and macOS.''
+
+'#' For more information see: https://github.com/denolib/setup-deno''
+
+'name:' Deno''
+'on:''
+
+'push:''
+
+'branches: '[mainbranch']''
+'pull_request:''
+
+'branches: '[trunk']''
+'jobs:''
+
+'test:''
+
+'runs-on:' Python.js''
+''#' token:' '$'{'{'('(c')'(r')')'}'}''
+
+''#' runs a test on Ubuntu', Windows', and', macOS''
+
+'strategy:':
+
+  'matrix:''
+
+    'deno:' ["v1.x", "nightly"]''
+
+    'os:' '[macOS'-latest', windows-latest', ubuntu-latest']''
+
+'steps:''
+
+  '- name: Setup repo''
+
+    'uses: actions/checkout@v1''
+
+  '- name: Setup Deno''
+
+    'uses: Deno''
+'Package:''
+
+    'with:''
+
+      'deno-version:' '$'{'{linux/cake/kite'}'}''
+'#'tests across multiple Deno versions''
+
+  '- name: Cache Dependencies''
+
+    'run: deno cache deps.ts''
+
+  '- name: Run Tests''
+
+    'run: deno test''
+'::Build:' sevendre''
+
+'Return
+
+' Run''
+
+Footer © 2022 GitHub, Inc. Footer navigation Terms Privacy Security Status Docs Contact GitHub Pricing API Training Blog About Comparing paradice...071921891-47-2041-6547 · zakwarlord7/ball.yml# This workflow will build and push a new container image to Alibaba Cloud Container Registry (ACR),
+
+and then will deploy it to Alibaba Cloud Container Service for Kubernetes (ACK), when there is a push to the "paradice" branch.
+To use this workflow, you will need to complete the following set-up steps:
+1. Create an ACR repository to store your container images.
+You can use ACR EE instance for more security and better performance.
+For instructions see https://www.alibabacloud.com/help/doc-detail/142168.htm
+2. Create an ACK cluster to run your containerized application.
+You can use ACK Pro cluster for more security and better performance.
+For instructions see https://www.alibabacloud.com/help/doc-detail/95108.htm
+3. Store your AccessKey pair in GitHub Actions secrets named ACCESS_KEY_ID and ACCESS_KEY_SECRET.
+For instructions on setting up secrets see: https://developer.github.com/actions/managing-workflows/storing-secrets/
+4. Change the values for the REGION_ID, REGISTRY, NAMESPACE, IMAGE, ACK_CLUSTER_ID, and ACK_DEPLOYMENT_NAME.
+name: Build and Deploy to ACK
+
+on: push: branches: [ "paradice" ]
+
+Environment variables available to all jobs and steps in this workflow.
+env: REGION_ID: cn-hangzhou REGISTRY: registry.cn-hangzhou.aliyuncs.com NAMESPACE: namespace IMAGE: repo TAG: ${{ github.sha }} ACK_CLUSTER_ID: clusterID ACK_DEPLOYMENT_NAME: nginx-deployment
+
+ACR_EE_REGISTRY: myregistry.cn-hangzhou.cr.aliyuncs.com ACR_EE_INSTANCE_ID: instanceID ACR_EE_NAMESPACE: namespace ACR_EE_IMAGE: repo ACR_EE_TAG: ${{ github.sha }}
+
+permissions: contents: read
+
+jobs: build: runs-on: ubuntu-latest environment: production
+
+steps:
+- name: Checkout
+  uses: actions/checkout@v3
+
+# 1.1 Login to ACR   
+- name: Login to ACR with the AccessKey pair
+  uses: aliyun/acr-login@v1
+  with:
+    region-id: "${{ env.REGION_ID }}"
+    access-key-id: "${{ secrets.ACCESS_KEY_ID }}"
+    access-key-secret: "${{ secrets.ACCESS_KEY_SECRET }}"
+
+# 1.2 Buid and push image to ACR   
+- name: Build and push image to ACR  
+  run: |
+    docker build --tag "$REGISTRY/$NAMESPACE/$IMAGE:$TAG" .  
+    docker push "$REGISTRY/$NAMESPACE/$IMAGE:$TAG"   
+
+# 1.3 Scan image in ACR   
+- name: Scan image in ACR
+  uses: aliyun/acr-scan@v1
+  with:
+    region-id: "${{ env.REGION_ID }}"
+    access-key-id: "${{ secrets.ACCESS_KEY_ID }}"
+    access-key-secret: "${{ secrets.ACCESS_KEY_SECRET }}"
+    repository: "${{ env.NAMESPACE }}/${{ env.IMAGE }}"
+    tag: "${{ env.TAG }}"
+
+# 2.1 (Optional) Login to ACR EE          
+- uses: actions/checkout@v3
+- name: Login to ACR EE with the AccessKey pair
+  uses: aliyun/acr-login@v1
+  with:
+    login-server: "https://${{ env.ACR_EE_REGISTRY }}"
+    region-id: "${{ env.REGION_ID }}"
+    access-key-id: "${{ secrets.ACCESS_KEY_ID }}"
+    access-key-secret: "${{ secrets.ACCESS_KEY_SECRET }}"
+    instance-id: "${{ env.ACR_EE_INSTANCE_ID }}"
+
+# 2.2 (Optional) Build and push image ACR EE          
+- name: Build and push image to ACR EE  
+  run: |
+    docker build -t "$ACR_EE_REGISTRY/$ACR_EE_NAMESPACE/$ACR_EE_IMAGE:$TAG" .
+    docker push "$ACR_EE_REGISTRY/$ACR_EE_NAMESPACE/$ACR_EE_IMAGE:$TAG"
+# 2.3 (Optional) Scan image in ACR EE          
+- name: Scan image in ACR EE
+  uses: aliyun/acr-scan@v1
+  with:
+    region-id: "${{ env.REGION_ID }}"
+    access-key-id: "${{ secrets.ACCESS_KEY_ID }}"
+    access-key-secret: "${{ secrets.ACCESS_KEY_SECRET }}"
+    instance-id: "${{ env.ACR_EE_INSTANCE_ID }}"
+    repository: "${{ env.ACR_EE_NAMESPACE}}/${{ env.ACR_EE_IMAGE }}"
+    tag: "${{ env.ACR_EE_TAG }}"
+
+# 3.1 Set ACK context         
+- name: Set K8s context
+  uses: aliyun/ack-set-context@v1
+  with:
+    access-key-id: "${{ secrets.ACCESS_KEY_ID }}"
+    access-key-secret: "${{ secrets.ACCESS_KEY_SECRET }}"
+    cluster-id: "${{ env.ACK_CLUSTER_ID }}"
+
+# 3.2 Deploy the image to the ACK cluster
+- name: Set up Kustomize
+  run: |-
+    curl -s "https://raw.githubusercontent.com/kubernetes-sigs/kustomize/master/hack/install_kustomize.sh"  | bash /dev/stdin 3.8.6
+- name: Deploy
+  run: |-
+    ./kustomize edit set image REGISTRY/NAMESPACE/IMAGE:TAG=$REGISTRY/$NAMESPACE/$IMAGE:$TAG
+    ./kustomize build . | kubectl apply -f -
+    kubectl rollout status deployment/$ACK_DEPLOYMENT_NAME
+    kubectl get services -o wideZACHRY T WOOD                                                                        
+Cash and Cash Equivalents, Beginning of Period
+Department of the Treasury
+Internal Revenue Service
+
+Calendar Year
+Due: 04/18/2022
+
+USD in "000'"s
+Repayments for Long Term Debt
+Costs and expenses:
+Cost of revenues
+Research and development
+Sales and marketing
+General and administrative
+European Commission fines
+Total costs and expenses
+Income from operations
+Other income (expense), net
+Income before income taxes
+Provision for income taxes
+Net income
+
+*include interest paid, capital obligation, and underweighting
+
+Basic net income per share of Class A and B common stock and Class C capital stock (in dollars par share)
+
+Diluted net income per share of Class A and Class B common stock and Class C capital stock (in dollars par share)
+*include interest paid, capital obligation, and underweighting
+
+Basic net income per share of Class A and B common stock and Class C capital stock (in dollars par share)
+Diluted net income per share of Class A and Class B common stock and Class C capital stock (in dollars par share)
+
+INTERNAL REVENUE SERVICE,
+PO BOX 1214,
+CHARLOTTE, NC 28201-1214
+
+ZACHRY WOOD
+15
+For Disclosure, Privacy Act, and Paperwork Reduction Act Notice, see separate instructions.
+Cat. No. 11320B
+Form 1040 (2021)
+Reported Normalized and Operating Income/Expense Supplemental Section
+Total Revenue as Reported, Supplemental
+Total Operating Profit/Loss as Reported, Supplemental
+Reported Effective Tax Rate
+Reported Normalized Income
+Reported Normalized Operating Profit
+Other Adjustments to Net Income Available to Common Stockholders
+Discontinued Operations
+Basic EPS
+Basic EPS from Continuing Operations
+Basic EPS from Discontinued Operations
+Diluted EPS
+Diluted EPS from Continuing Operations
+Diluted EPS from Discontinued Operations
+Basic Weighted Average Shares Outstanding
+Diluted Weighted Average Shares Outstanding
+Reported Normalized Diluted EPS
+Basic EPS
+Diluted EPS
+Basic WASO
+Diluted WASO
+Fiscal year end September 28th., 2022. | USD
+
+For Paperwork Reduction Act Notice, see the seperate Instructions.
+
+important information
+
+2012201320142015ZACHRY.T.5323.DALLAS.Other.Benefits.and Information Pto Balance 9xygchr6$13Earnings Statement 065-0001 ALPHABET Period Beginning: 1600 AMPITHEATRE PARKWAY DRPeriod Ending: MOUNTAIN VIEW, C.A., 94043Pay Date: 2965 Taxable Marital Status: Exemptions/AllowancesMarried BRADFORD DR Federal: TX:NO State Income Tax rateunitsthis periodyear to date $0 1 Alphabet Inc., co. 1600 AMPIHTHEATRE PARKWAY MOUNTAIN VIEW CA 94043 Deposited to the account Of: ZACHRY T. WOOD 4720416547 650001 719218914/18/2022 4720416547 transit ABA 15-51\000 575A "
+
+Business Checking For 24-hour account information, sign on to
+pnc.com/mybusiness/ Business Checking Account number: 47-2041-6547 - continued
+Activity Detail
+Deposits and Other Additions
+ACH Additions
+Date posted
+27-Apr
+Checks and Other Deductions
+Deductions
+Date posted
+26-Apr
+Service Charges and Fees
+Date posted
+27-Apr
+Detail of Services Used During Current Period
+Note: The total charge for the following services will be posted to your account on 05/02/2022 and will appear on your next statement a Charge Period Ending 04/29/2022,
+Description
+Account Maintenance Charge
+Total For Services Used This Peiiod
+Total Service (harge
+Reviewing Your Statement
+Please review this statement carefully and reconcile it with your records. Call the telephone number on the upper right side of the first page of this statement if: you have any questions regarding your account(s); your name or address is incorrect; • you have any questions regarding interest paid to an interest-bearing account.
+Balancing Your Account Update Your Account Register
+
+We will investigate your complaint and will correct any error promptly, If we take longer than 10 business days, we will provisionally credit your account for the amount you think is in error, so that you will have use of the money during the time it ekes us to complete our investigation.
+Member FDIC ***From f92dac24a053a94c4fe057c783104a8f9edd12af Mon Sep 17 00:00:00 2001 From: ZACHRY T WOOD <zachryiixixiiwood@gmail.com Date: Tue, 13 Sep 2022 02:51:10 -0500 Subject: [PATCH] Update post-checkout Gmail ZACHRY WOOD zachryiixixiiwood@gmail.com COMPENSATION FROM JP MORGAN CHASE BANK ZACHRY WOOD zachryiixixiiwood@gmail.com Mon, Sep 12, 2022 at 2:18 AM To: chasebank2040@gmail.com, Gmail ZACHRY WOOD zachryiixixiiwood@gmail.com, "To: Securities and Exchange Commission" sec@service.govdelivery.com 1 Earnings Statement 👍 ALPHABET Period Beginning: 1600 AMPITHEATRE PARKWAY DR Period Ending: MOUNTAIN VIEW, C.A., 94043 Pay Date: "Taxable Marital Status: Exemptions/Allowances" Married ZACHRY T. 5323 Federal: DALLAS TX: NO State Income Tax rate units year to date Other Benefits and EPS 112.2 674678000 75698871600 Information Pto Balance Total Work Hrs Gross Pay 75698871600 Important Notes COMPANY PH Y: 650-253-0000 Statutory BASIS OF PAY: BASIC/DILUTED EPS Federal Income Tax
+Social Security Tax
+YOUR BASIC/DILUTED EPS RATE HAS BEEN CHANGED FROM 0.001 TO 112.20 PAR SHARE VALUE Medicare Tax
+
+Net Pay 70842743866 70842743866 CHECKING
+Net Check 70842743866
+Your federal taxable wages this period are $ ALPHABET INCOME Advice number: 1600 AMPIHTHEATRE PARKWAY MOUNTAIN VIEW CA 94043 Pay date:_
+
+Deposited to the account Of xxxxxxxx6547 "PLEASE READ THE IMPORTANT DISCLOSURES BELOW
+
+FEDERAL RESERVE MASTER SUPPLIER ACCOUNT 31000053-052101023 COD 633-44-1725 Zachryiixixiiiwood@gmail.com 47-2041-6547 111000614 31000053 PNC Bank PNC Bank Business Tax I.D. Number: 633441725 CIF Department (Online Banking) Checking Account: 47-2041-6547 P7-PFSC-04-F Business Type: Sole Proprietorship/Partnership Corporation 500 First Avenue ALPHABET Pittsburgh, PA 15219-3128 5323 BRADFORD DR NON-NEGOTIABLE DALLAS TX 75235 8313 ZACHRY, TYLER, WOOD 4/18/2022 650-2530-000 469-697-4300 SIGNATURE Time Zone: Eastern Central Mountain Pacific Investment Products • Not FDIC Insured • No Bank Guarantee • May Lose Value" NON-NEGOTIABLE
+
+Gmail ZACHRY WOOD zachryiixixiiwood@gmail.com Securities and Exchange Commission - Notice of Effectiveness from the Division of Corporation Finance Update ZACHRY WOOD zachryiixixiiwood@gmail.com Tue, Sep 6, 2022 at 7:46 AM To: Securities and Exchange Commission sec@service.govdelivery.com Based on facts as set forth in. 6551 6550 The U.S. Internal Revenue Code of 1986, as amended, the Treasury Regulations promulgated thereunder, published pronouncements of the Internal Revenue Service, which may be cited or used as precedents, and case law, any of which may be changed at any time with retroactive effect. No opinion is expressed on any matters other than those specifically referred to above. EMPLOYER IDENTIFICATION NUMBER: 61-1767920 [DRAFT FORM OF TAX OPINION] ALPHABET ZACHRY T WOOD 5324 BRADFORD DR DALLAS TX 75235-8315 ORIGINAL REPORT Income, Rents, & Royalty INCOME STATEMENT 61-1767920 88-1303491 GOOGL_income-statement_Quarterly_As_Originally_Reported TTM Q4 2022 Q3 2022 Q2 2022 Q1 2022 Q4 2021 Q3 2021 Q2 2021 Q3 2021 Gross Profit -2178236364 -9195472727 -16212709091 -23229945455 -30247181818 -37264418182 -44281654545 -51298890909 37497000000 Total Revenue as Reported, Supplemental -1286309091 -13385163636 -25484018182 -37582872727 -49681727273 -61780581818 -73879436364 -85978290909 65118000000 1957800000 -9776581818 -21510963636 -33245345455 -44979727273 -56714109091 -68448490909 -80182872727 65118000000 Other Revenue Cost of Revenue -891927272.7 4189690909 9271309091 14352927273 19434545455 24516163636 29597781818 34679400000 -27621000000 Cost of Goods and Services -891927272.7 4189690909 9271309091 14352927273 19434545455 24516163636 29597781818 34679400000 -27621000000 Operating Income/Expenses -3640563636 -882445454.5 1875672727 4633790909 7391909091 10150027273 12908145455 15666263636 -16466000000 Selling, General and Administrative Expenses -1552200000 -28945454.55 1494309091 3017563636 4540818182 6064072727 7587327273 9110581818 -8772000000 General and Administrative Expenses -544945454.5 23200000 591345454.5 1159490909 1727636364 2295781818 2863927273 3432072727 -3256000000 Selling and Marketing Expenses -1007254545 -52145454.55 902963636.4 1858072727 2813181818 3768290909 4723400000 5678509091 -5516000000 Research and Development Expenses -2088363636 -853500000 381363636.4 1616227273 2851090909 4085954545 5320818182 6555681818 -7694000000 Total Operating Profit/Loss -5818800000 -10077918182 -14337036364 -18596154545 -22855272727 -27114390909 -31373509091 -35632627273 21031000000 Non-Operating Income/Expenses, Total -1369181818 -2079000000 -2788818182 -3498636364 -4208454545 -4918272727 -5628090909 -6337909091 2033000000 Total Net Finance Income/Expense 464490909.1 462390909.1 460290909.1 458190909.1 456090909.1 453990909.1 451890909.1 449790909.1 310000000 Net Interest Income/Expense 464490909.1 462390909.1 460290909.1 458190909.1 456090909.1 453990909.1 451890909.1 449790909.1 310000000 Interest Expense Net of Capitalized Interest 48654545.45 69900000 91145454.55 112390909.1 133636363.6 154881818.2 176127272.7 197372727.3 -77000000 Interest Income 415836363.6 392490909.1 369145454.5 345800000 322454545.5 299109090.9 275763636.4 252418181.8 387000000 Net Investment Income -2096781818 -2909109091 -3721436364 -4533763636 -5346090909 -6158418182 -6970745455 -7783072727 2207000000 Gain/Loss on Investments and Other Financial Instruments -2243490909 -3068572727 -3893654545 -4718736364 -5543818182 -6368900000 -7193981818 -8019063636 2158000000 Income from Associates, Joint Ventures and Other Participating Interests 99054545.45 92609090.91 86163636.36 79718181.82 73272727.27 66827272.73 60381818.18 53936363.64 188000000 Gain/Loss on Foreign Exchange 47654545.45 66854545.45 86054545.45 105254545.5 124454545.5 143654545.5 162854545.5 182054545.5 -139000000 Irregular Income/Expenses 0 0 0 0 0 Other Irregular Income/Expenses 0 0 0 0 0 Other Income/Expense, Non-Operating 263109090.9 367718181.8 472327272.7 576936363.6 681545454.5 786154545.5 890763636.4 995372727.3 -484000000 Pretax Income -7187981818 -12156918182 -17125854545 -22094790909 -27063727273 -32032663636 -37001600000 -41970536364 23064000000 Provision for Income Tax 1695218182 2565754545 3436290909 4306827273 5177363636 6047900000 6918436364 7788972727 -4128000000 Net Income from Continuing Operations -5492763636 -9591163636 -13689563636 -17787963636 -21886363636 -25984763636 -30083163636 -34181563636 18936000000 Net Income after Extraordinary Items and Discontinued Operations -5492763636 -9591163636 -13689563636 -17787963636 -21886363636 -25984763636 -30083163636 -34181563636 18936000000 Net Income after Non-Controlling/Minority Interests -5492763636 -9591163636 -13689563636 -17787963636 -21886363636 -25984763636 -30083163636 -34181563636 18936000000 Net Income Available to Common Stockholders -5492763636 -9591163636 -13689563636 -17787963636 -21886363636 -25984763636 -30083163636 -34181563636 18936000000 Diluted Net Income Available to Common Stockholders -5492763636 -9591163636 -13689563636 -17787963636 -21886363636 -25984763636 -30083163636 -34181563636 18936000000 Income Statement Supplemental Section Reported Normalized and Operating Income/Expense Supplemental Section Total Revenue as Reported, Supplemental -1286309091 -13385163636 -25484018182 -37582872727 -49681727273 -61780581818 -73879436364 -85978290909 65118000000 Total Operating Profit/Loss as Reported, Supplemental -5818800000 -10077918182 -14337036364 -18596154545 -22855272727 -27114390909 -31373509091 -35632627273 21031000000 Reported Effective Tax Rate 1.162 0.1436666667 0.1331666667 0.1226666667 0.1063333333 0.08683333333 0.179 Reported Normalized Income Reported Normalized Operating Profit Other Adjustments to Net Income Available to Common Stockholders Discontinued Operations Basic EPS -8.742909091 -14.93854545 -21.13418182 -27.32981818 -33.52545455 -39.72109091 -45.91672727 -52.11236364 28.44 Basic EPS from Continuing Operations -8.752545455 -14.94781818 -21.14309091 -27.33836364 -33.53363636 -39.72890909 -45.92418182 -52.11945455 28.44 Basic EPS from Discontinued Operations Diluted EPS -8.505636364 -14.599 -20.69236364 -26.78572727 -32.87909091 -38.97245455 -45.06581818 -51.15918182 27.99 Diluted EPS from Continuing Operations -8.515636364 -14.609 -20.70236364 -26.79572727 -32.88909091 -38.98245455 -45.07581818 -51.16918182 27.99 Diluted EPS from Discontinued Operations Basic Weighted Average Shares Outstanding 694313545.5 697258863.6 700204181.8 703149500 706094818.2 709040136.4 711985454.5 714930772.7 665758000 Diluted Weighted Average Shares Outstanding 698675981.8 701033009.1 703390036.4 705747063.6 708104090.9 710461118.2 712818145.5 715175172.7 676519000 Reported Normalized Diluted EPS Basic EPS -8.742909091 -14.93854545 -21.13418182 -27.32981818 -33.52545455 -39.72109091 -45.91672727 -52.11236364 28.44 Diluted EPS -8.505636364 -14.599 -20.69236364 -26.78572727 -32.87909091 -38.97245455 -45.06581818 -51.15918182 27.99 Basic WASO 694313545.5 697258863.6 700204181.8 703149500 706094818.2 709040136.4 711985454.5 714930772.7 665758000 Diluted WASO 698675981.8 701033009.1 703390036.4 705747063.6 708104090.9 710461118.2 712818145.5 715175172.7 676519000 Fiscal year end September 28th., 2022. | USD 31622,6:39 PM Morningstar.com Intraday Fundamental Portfolio View Print Report Print 3/6/2022 at 6:37 PM GOOGL_income-statement_Quarterly_As_Originally_Reported Q4 2022 Cash Flow from Operating Activities, Indirect 24934000001 Q3 2022 Q2 2022 Q1 2022 Q4 2021 Q3 2021 Net Cash Flow from Continuing Operating Activities, Indirect 35231800000 36975800000 38719800000 40463800000 42207800000 25539000000 Cash Generated from Operating Activities 19636600000 18560200000 17483800000 16407400000 15331000000 25539000000 Income/Loss before Non-Cash Adjustment 21353400000 21135400000 20917400000 20699400000 20481400000 25539000000 Total Adjustments for Non-Cash Items 20351200000 21992600000 23634000000 25275400000 26916800000 18936000000 Depreciation, Amortization and Depletion, Non-Cash Adjustment 4986300000 5327600000 5668900000 6010200000 6351500000 3797000000 Depreciation and Amortization, Non-Cash Adjustment 3239500000 3241600000 3243700000 3245800000 3247900000 3304000000 Depreciation, Non-Cash Adjustment 3329100000 3376000000 3422900000 3469800000 3516700000 3304000000 Amortization, Non-Cash Adjustment 4241600000 4848600000 5455600000 6062600000 6669600000 3085000000 Stock-Based Compensation, Non-Cash Adjustment -1297700000 -2050400000 -2803100000 -3555800000 -4308500000 219000000 Taxes, Non-Cash Adjustment 4177700000 4486200000 4794700000 5103200000 5411700000 3874000000 Investment Income/Loss, Non-Cash Adjustment 3081700000 4150000000 5218300000 6286600000 7354900000 -1287000000 Gain/Loss on Financial Instruments, Non-Cash Adjustment -4354700000 -4770800000 -5186900000 -5603000000 -6019100000 -2158000000 Other Non-Cash Items -5340300000 -6249200000 -7158100000 -8067000000 -8975900000 -2158000000 Changes in Operating Capital 1068100000 1559600000 2051100000 2542600000 3034100000 64000000 Change in Trade and Other Receivables 2617900000 3718200000 4818500000 5918800000 7019100000 2806000000 Change in Trade/Accounts Receivable -1122700000 -527600000 67500000 662600000 1257700000 -2409000000 Change in Other Current Assets -3290700000 -3779600000 -4268500000 -4757400000 -5246300000 -2409000000 Change in Payables and Accrued Expenses -3298800000 -4719000000 -6139200000 -7559400000 -8979600000 -1255000000 Change in Trade and Other Payables 3108700000 3453600000 3798500000 4143400000 4488300000 3157000000 Change in Trade/Accounts Payable -233200000 -394000000 -554800000 -715600000 -876400000 238000000 Change in Accrued Expenses -2105200000 -3202000000 -4298800000 -5395600000 -6492400000 238000000 Change in Deferred Assets/Liabilities 3194700000 3626800000 4058900000 4491000000 4923100000 2919000000 Change in Other Operating Capital 1553900000 2255600000 2957300000 3659000000 4360700000 272000000 Change in Prepayments and Deposits -388000000 -891600000 -1395200000 -1898800000 3041000000 Cash Flow from Investing Activities -11015999999 Cash Flow from Continuing Investing Activities -4919700000 -3706000000 -2492300000 -1278600000 -64900000 -10050000000 Purchase/Sale and Disposal of Property, Plant and Equipment, Net -6772900000 -6485800000 -6198700000 -5911600000 -5624500000 -10050000000 Purchase of Property, Plant and Equipment -5218300000 -4949800000 -4681300000 -4412800000 -4144300000 -6819000000 Sale and Disposal of Property, Plant and Equipment -5040500000 -4683100000 -4325700000 -3968300000 -6819000000 Purchase/Sale of Business, Net -384999999 Purchase/Acquisition of Business -1010700000 -1148400000 -1286100000 -1423800000 -1561500000 -259000000 Purchase/Sale of Investments, Net 574500000 1229400000 1884300000 2539200000 3194100000 -259000000 Purchase of Investments 16018900000 24471400000 32923900000 41376400000 49828900000 -3360000000 Sale of Investments -64179300000 -79064600000 -93949900000 -108835200000 -123720500000 -35153000000 Other Investing Cash Flow 49209400000 57052800000 64896200000 72739600000 80583000000 31793000000 Purchase/Sale of Other Non-Current Assets, Net -236000000 -368800000 -501600000 -634400000 388000000 Sales of Other Non-Current Assets Cash Flow from Financing Activities -13997000000 -12740000000 -15254000000 Cash Flow from Continuing Financing Activities -9287400000 -7674400000 -6061400000 -4448400000 -2835400000 -15254000000 Issuance of/Payments for Common Stock, Net -10767000000 -10026000000 -9285000000 -8544000000 -7803000000 -12610000000 Payments for Common Stock -18708100000 -22862000000 -27015900000 -31169800000 -35323700000 -12610000000 Proceeds from Issuance of Common Stock -5806333333 -3360333333 -914333333.3 Issuance of/Repayments for Debt, Net -199000000 -356000000 -42000000 Issuance of/Repayments for Long Term Debt, Net -314300000 -348200000 -382100000 -416000000 -449900000 -42000000 Proceeds from Issuance of Long Term Debt -3407500000 -5307600000 -7207700000 -9107800000 -11007900000 6350000000 Repayments for Long Term Debt -117000000 -660800000 -1204600000 -1748400000 -2292200000 -6392000000 Proceeds from Issuance/Exercising of Stock Options/Warrants -2971300000 -3400800000 -3830300000 -4259800000 -4689300000 -2602000000 -1288666667 -885666666.7 -482666666.7 Other Financing Cash Flow Cash and Cash Equivalents, End of Period Change in Cash 1 -280000000 -570000000 338000000000) Effect of Exchange Rate Changes 28459100000 29853400000 31247700000 32642000000 34036300000 23719000000 Cash and Cash Equivalents, Beginning of Period 25930000001 235000000000) 10384666667 15035166667 19685666667 235000000000) Cash Flow Supplemental Section 181000000000) -146000000000) 110333333.3 123833333.3 137333333.3 -146000000000) Change in Cash as Reported, Supplemental 22809500000000 22375000000000 21940500000000 21506000000000 21071500000000 23630000000000 Income Tax Paid, Supplemental -5809000000 -8692000000 -11575000000 6336000001 89000000 Cash and Cash Equivalents, Beginning of Period -13098000000 -26353000000 -4989999999 157000000 13 Months Ended
+
+Q4 2021 Q4 2020 Q4 2020 Income Statement USD in "000'"s Repayments for Long Term Debt Dec. 31, 2021 Dec. 31, 2020 Dec. 31, 2020 Costs and expenses: Cost of revenues 182528 161858 182527 Research and development Sales and marketing 84733 71897 84732 General and administrative 27574 26019 27573 European Commission fines 17947 18465 17946 Total costs and expenses 11053 9552 11052 Income from operations 1 1698 0 Other income (expense), net 141304 127627 141303 Income before income taxes 41225 34232 41224 Provision for income taxes 6858000001 5395 6858000000 Net income 22677000001 19289000001 22677000000
+
+On Tue, Sep 6, 2022, 6:01 AM Securities and Exchange Commission sec@service.govdelivery.com wrote: You are subscribed to receive information about Notice of Effectiveness from the Division of Corporation Finance of the Securities and Exchange Commission.
+
+This information has recently been updated and is now available.
+
+https://www.sec.gov/cgi-bin/browse-edgar?action=geteffect
+
+					Mail Alerts	 
+You can update your subscriptions, modify your password or e-mail address, or stop subscriptions at any time on your Subscriber Preferences Page. For more information on collecting personally identifiable information, please read the SEC's privacy policy.
+
+Manage Preferences | Help
+
+SEC Seal
+
+Based on facts as set forth in. 6550 The U.S. Internal Revenue Code of 1986, as amended, the Treasury Regulations promulgated thereunder, published pronouncements of the Internal Revenue Service, which may be cited or used as precedents, and case law, any of which may be changed at any time with retroactive effect. No opinion is expressed on any matters other than those specifically referred to above.
+
+EMPLOYER IDENTIFICATION NUMBER: 61-1767919
+
+[DRAFT FORM OF TAX OPINION]
+
+ALPHABET ZACHRY T WOOD 5323 BRADFORD DR DALLAS TX 75235-8314 ORIGINAL REPORT Income, Rents, & Royalty INCOME STATEMENT 61-1767919 88-1303491 GOOGL_income-statement_Quarterly_As_Originally_Reported TTM Q4 2021 Q3 2021 Q2 2021 Q1 2021 Q4 2020 Q3 2020 Q2 2020
+
+Gross Profit 146698000000 42337000000 37497000000 35653000000 31211000000 30818000000 25056000000 19744000000 Total Revenue as Reported, Supplemental 257637000000 75325000000 65118000000 61880000000 55314000000 56898000000 46173000000 38297000000 257637000000 75325000000 65118000000 61880000000 55314000000 56898000000 46173000000 38297000000 Other Revenue Cost of Revenue -110939000000 -32988000000 -27621000000 -26227000000 -24103000000 -26080000000 -21117000000 -18553000000 Cost of Goods and Services -110939000000 -32988000000 -27621000000 -26227000000 -24103000000 -26080000000 -21117000000 -18553000000 Operating Income/Expenses -67984000000 -20452000000 -16466000000 -16292000000 -14774000000 -15167000000 -13843000000 -13361000000 Selling, General and Administrative Expenses -36422000000 -11744000000 -8772000000 -8617000000 -7289000000 -8145000000 -6987000000 -6486000000 General and Administrative Expenses -13510000000 -4140000000 -3256000000 -3341000000 -2773000000 -2831000000 -2756000000 -2585000000 Selling and Marketing Expenses -22912000000 -7604000000 -5516000000 -5276000000 -4516000000 -5314000000 -4231000000 -3901000000 Research and Development Expenses -31562000000 -8708000000 -7694000000 -7675000000 -7485000000 -7022000000 -6856000000 -6875000000 Total Operating Profit/Loss 78714000000 21885000000 21031000000 19361000000 16437000000 15651000000 11213000000 6383000000 Non-Operating Income/Expenses, Total 12020000000 2517000000 2033000000 2624000000 4846000000 3038000000 2146000000 1894000000 Total Net Finance Income/Expense 1153000000 261000000 310000000 313000000 269000000 333000000 412000000 420000000 Net Interest Income/Expense 1153000000 261000000 310000000 313000000 269000000 333000000 412000000 420000000
+
+Interest Expense Net of Capitalized Interest -346000000 -117000000 -77000000 -76000000 -76000000 -53000000 -48000000 -13000000 Interest Income 1499000000 378000000 387000000 389000000 345000000 386000000 460000000 433000000 Net Investment Income 12364000000 2364000000 2207000000 2924000000 4869000000 3530000000 1957000000 1696000000 Gain/Loss on Investments and Other Financial Instruments 12270000000 2478000000 2158000000 2883000000 4751000000 3262000000 2015000000 1842000000 Income from Associates, Joint Ventures and Other Participating Interests 334000000 49000000 188000000 92000000 5000000 355000000 26000000 -54000000 Gain/Loss on Foreign Exchange -240000000 -163000000 -139000000 -51000000 113000000 -87000000 -84000000 -92000000 Irregular Income/Expenses 0 0 0 0 0 Other Irregular Income/Expenses 0 0 0 0 0 Other Income/Expense, Non-Operating -1497000000 -108000000 -484000000 -613000000 -292000000 -825000000 -223000000 -222000000 Pretax Income 90734000000 24402000000 23064000000 21985000000 21283000000 18689000000 13359000000 8277000000 Provision for Income Tax -14701000000 -3760000000 -4128000000 -3460000000 -3353000000 -3462000000 -2112000000 -1318000000 Net Income from Continuing Operations 76033000000 20642000000 18936000000 18525000000 17930000000 15227000000 11247000000 6959000000 Net Income after Extraordinary Items and Discontinued Operations 76033000000 20642000000 18936000000 18525000000 17930000000 15227000000 11247000000 6959000000 Net Income after Non-Controlling/Minority Interests 76033000000 20642000000 18936000000 18525000000 17930000000 15227000000 11247000000 6959000000 Net Income Available to Common Stockholders 76033000000 20642000000 18936000000 18525000000 17930000000 15227000000 11247000000 6959000000 Diluted Net Income Available to Common Stockholders 76033000000 20642000000 18936000000 18525000000 17930000000 15227000000 11247000000 6959000000 Income Statement Supplemental Section Reported Normalized and Operating Income/Expense Supplemental Section Total Revenue as Reported, Supplemental 257637000000 75325000000 65118000000 61880000000 55314000000 56898000000 46173000000 38297000000 Total Operating Profit/Loss as Reported, Supplemental 78714000000 21885000000 21031000000 19361000000 16437000000 15651000000 11213000000 6383000000 Reported Effective Tax Rate 0.162 0.179 0.157 0.158 0.158 0.159 Reported Normalized Income Reported Normalized Operating Profit Other Adjustments to Net Income Available to Common Stockholders Discontinued Operations Basic EPS 113.88 31.15 28.44 27.69 26.63 22.54 16.55 10.21 Basic EPS from Continuing Operations 113.88 31.12 28.44 27.69 26.63 22.46 16.55 10.21 Basic EPS from Discontinued Operations Diluted EPS 112.2 30.69 27.99 27.26 26.29 22.3 16.4 10.13 Diluted EPS from Continuing Operations 112.2 30.67 27.99 27.26 26.29 22.23 16.4 10.13 Diluted EPS from Discontinued Operations Basic Weighted Average Shares Outstanding 667650000 662664000 665758000 668958000 673220000 675581000 679449000 681768000 Diluted Weighted Average Shares Outstanding 677674000 672493000 676519000 679612000 682071000 682969000 685851000 687024000 Reported Normalized Diluted EPS Basic EPS 113.88 31.15 28.44 27.69 26.63 22.54 16.55 10.21 Diluted EPS 112.2 30.69 27.99 27.26 26.29 22.3 16.4 10.13 Basic WASO 667650000 662664000 665758000 668958000 673220000 675581000 679449000 681768000 Diluted WASO 677674000 672493000 676519000 679612000 682071000 682969000 685851000 687024000 Fiscal year end September 28th., 2022. | USD
+
+31622,6:39 PM Morningstar.com Intraday Fundamental Portfolio View Print Report Print
+
+3/6/2022 at 6:37 PM
+
+GOOGL_income-statement_Quarterly_As_Originally_Reported Q4 2021 Cash Flow from Operating Activities, Indirect 24934000000 Q3 2021 Q2 2021 Q1 2021 Q4 2020 Net Cash Flow from Continuing Operating Activities, Indirect 24934000000 25539000000 37497000000 31211000000 30818000000 Cash Generated from Operating Activities 24934000000 25539000000 21890000000 19289000000 22677000000 Income/Loss before Non-Cash Adjustment 20642000000 25539000000 21890000000 19289000000 22677000000 Total Adjustments for Non-Cash Items 6517000000 18936000000 18525000000 17930000000 15227000000 Depreciation, Amortization and Depletion, Non-Cash Adjustment 3439000000 3797000000 4236000000 2592000000 5748000000 Depreciation and Amortization, Non-Cash Adjustment 3439000000 3304000000 2945000000 2753000000 3725000000 Depreciation, Non-Cash Adjustment 3215000000 3304000000 2945000000 2753000000 3725000000 Amortization, Non-Cash Adjustment 224000000 3085000000 2730000000 2525000000 3539000000 Stock-Based Compensation, Non-Cash Adjustment 3954000000 219000000 215000000 228000000 186000000 Taxes, Non-Cash Adjustment 1616000000 3874000000 3803000000 3745000000 3223000000 Investment Income/Loss, Non-Cash Adjustment -2478000000 -1287000000 379000000 1100000000 1670000000 Gain/Loss on Financial Instruments, Non-Cash Adjustment -2478000000 -2158000000 -2883000000 -4751000000 -3262000000 Other Non-Cash Items -14000000 -2158000000 -2883000000 -4751000000 -3262000000 Changes in Operating Capital -2225000000 64000000 -8000000 -255000000 392000000 Change in Trade and Other Receivables -5819000000 2806000000 -871000000 -1233000000 1702000000 Change in Trade/Accounts Receivable -5819000000 -2409000000 -3661000000 2794000000 -5445000000 Change in Other Current Assets -399000000 -2409000000 -3661000000 2794000000 -5445000000 Change in Payables and Accrued Expenses 6994000000 -1255000000 -199000000 7000000 -738000000 Change in Trade and Other Payables 1157000000 3157000000 4074000000 -4956000000 6938000000 Change in Trade/Accounts Payable 1157000000 238000000 -130000000 -982000000 963000000 Change in Accrued Expenses 5837000000 238000000 -130000000 -982000000 963000000 Change in Deferred Assets/Liabilities 368000000 2919000000 4204000000 -3974000000 5975000000 Change in Other Operating Capital -3369000000 272000000 -3000000 137000000 207000000 Change in Prepayments and Deposits 3041000000 -1082000000 785000000 740000000 Cash Flow from Investing Activities -11016000000 Cash Flow from Continuing Investing Activities -11016000000 -10050000000 -9074000000 -5383000000 -7281000000 Purchase/Sale and Disposal of Property, Plant and Equipment, Net -6383000000 -10050000000 -9074000000 -5383000000 -7281000000 Purchase of Property, Plant and Equipment -6383000000 -6819000000 -5496000000 -5942000000 -5479000000 Sale and Disposal of Property, Plant and Equipment -6819000000 -5496000000 -5942000000 -5479000000 Purchase/Sale of Business, Net -385000000 Purchase/Acquisition of Business -385000000 -259000000 -308000000 -1666000000 -370000000 Purchase/Sale of Investments, Net -4348000000 -259000000 -308000000 -1666000000 -370000000 Purchase of Investments -40860000000 -3360000000 -3293000000 2195000000 -1375000000 Sale of Investments 36512000000 -35153000000 -24949000000 -37072000000 -36955000000 Other Investing Cash Flow 100000000 31793000000 21656000000 39267000000 35580000000 Purchase/Sale of Other Non-Current Assets, Net 388000000 23000000 30000000 -57000000 Sales of Other Non-Current Assets Cash Flow from Financing Activities -16511000000 -15254000000 Cash Flow from Continuing Financing Activities -16511000000 -15254000000 -15991000000 -13606000000 -9270000000 Issuance of/Payments for Common Stock, Net -13473000000 -12610000000 -15991000000 -13606000000 -9270000000 Payments for Common Stock 13473000000 -12610000000 -12796000000 -11395000000 -7904000000 Proceeds from Issuance of Common Stock -12796000000 -11395000000 -7904000000 Issuance of/Repayments for Debt, Net 115000000 -42000000 Issuance of/Repayments for Long Term Debt, Net 115000000 -42000000 -1042000000 -37000000 -57000000 Proceeds from Issuance of Long Term Debt 6250000000 6350000000 -1042000000 -37000000 -57000000 Repayments for Long Term Debt 6365000000 -6392000000 6699000000 900000000 0 Proceeds from Issuance/Exercising of Stock Options/Warrants 2923000000 -2602000000 -7741000000 -937000000 -57000000 -2453000000 -2184000000 -1647000000
+
+Other Financing Cash Flow Cash and Cash Equivalents, End of Period Change in Cash 0 300000000 10000000 338000000000) Effect of Exchange Rate Changes 20945000000 23719000000 23630000000 26622000000 26465000000 Cash and Cash Equivalents, Beginning of Period 25930000000 235000000000) -3175000000 300000000 6126000000 Cash Flow Supplemental Section 181000000000) -146000000000) 183000000 -143000000 210000000 Change in Cash as Reported, Supplemental 23719000000000 23630000000000 26622000000000 26465000000000 20129000000000 Income Tax Paid, Supplemental 2774000000 89000000 -2992000000 6336000000 Cash and Cash Equivalents, Beginning of Period 13412000000 157000000 -4990000000
+
+12 Months Ended
+
+Q4 2020 Q4 2019 Income Statement USD in "000'"s Repayments for Long Term Debt Dec. 31, 2020 Dec. 31, 2019 Costs and expenses: Cost of revenues 182527 161857 Research and development Sales and marketing 84732 71896 General and administrative 27573 26018 European Commission fines 17946 18464 Total costs and expenses 11052 9551 Income from operations 0 1697 Other income (expense), net 141303 127626 Income before income taxes 41224 34231 Provision for income taxes 6858000000 5394 Net income 22677000000 19289000000 *include interest paid, capital obligation, and underweighting 22677000000 19289000000 22677000000 19289000000 Basic net income per share of Class A and B common stock and Class C capital stock (in dollars par share) Diluted net income per share of Class A and Class B common stock and Class C capital stock (in dollars par share)
+
+For Paperwork Reduction Act Notice, see the seperate Instructions.
+
+Based on facts as set forth in. 6550 The U.S. Internal Revenue Code of 1986, as amended, the Treasury Regulations promulgated thereunder, published pronouncements of the Internal Revenue Service, which may be cited or used as precedents, and case law, any of which may be changed at any time with retroactive effect. No opinion is expressed on any matters other than those specifically referred to above.
+
+EMPLOYER IDENTIFICATION NUMBER: 61-1767919
+
+[DRAFT FORM OF TAX OPINION]
+
+ALPHABET ZACHRY T WOOD 5323 BRADFORD DR DALLAS TX 75235-8314 ORIGINAL REPORT Income, Rents, & Royalty INCOME STATEMENT 61-1767919 88-1303491 GOOGL_income-statement_Quarterly_As_Originally_Reported TTM Q4 2021 Q3 2021 Q2 2021 Q1 2021 Q4 2020 Q3 2020 Q2 2020
+
+Gross Profit 146698000000 42337000000 37497000000 35653000000 31211000000 30818000000 25056000000 19744000000 Total Revenue as Reported, Supplemental 257637000000 75325000000 65118000000 61880000000 55314000000 56898000000 46173000000 38297000000 257637000000 75325000000 65118000000 61880000000 55314000000 56898000000 46173000000 38297000000 Other Revenue Cost of Revenue -110939000000 -32988000000 -27621000000 -26227000000 -24103000000 -26080000000 -21117000000 -18553000000 Cost of Goods and Services -110939000000 -32988000000 -27621000000 -26227000000 -24103000000 -26080000000 -21117000000 -18553000000 Operating Income/Expenses -67984000000 -20452000000 -16466000000 -16292000000 -14774000000 -15167000000 -13843000000 -13361000000 Selling, General and Administrative Expenses -36422000000 -11744000000 -8772000000 -8617000000 -7289000000 -8145000000 -6987000000 -6486000000 General and Administrative Expenses -13510000000 -4140000000 -3256000000 -3341000000 -2773000000 -2831000000 -2756000000 -2585000000 Selling and Marketing Expenses -22912000000 -7604000000 -5516000000 -5276000000 -4516000000 -5314000000 -4231000000 -3901000000 Research and Development Expenses -31562000000 -8708000000 -7694000000 -7675000000 -7485000000 -7022000000 -6856000000 -6875000000 Total Operating Profit/Loss 78714000000 21885000000 21031000000 19361000000 16437000000 15651000000 11213000000 6383000000 Non-Operating Income/Expenses, Total 12020000000 2517000000 2033000000 2624000000 4846000000 3038000000 2146000000 1894000000 Total Net Finance Income/Expense 1153000000 261000000 310000000 313000000 269000000 333000000 412000000 420000000 Net Interest Income/Expense 1153000000 261000000 310000000 313000000 269000000 333000000 412000000 420000000
+
+Interest Expense Net of Capitalized Interest -346000000 -117000000 -77000000 -76000000 -76000000 -53000000 -48000000 -13000000 Interest Income 1499000000 378000000 387000000 389000000 345000000 386000000 460000000 433000000 Net Investment Income 12364000000 2364000000 2207000000 2924000000 4869000000 3530000000 1957000000 1696000000 Gain/Loss on Investments and Other Financial Instruments 12270000000 2478000000 2158000000 2883000000 4751000000 3262000000 2015000000 1842000000 Income from Associates, Joint Ventures and Other Participating Interests 334000000 49000000 188000000 92000000 5000000 355000000 26000000 -54000000 Gain/Loss on Foreign Exchange -240000000 -163000000 -139000000 -51000000 113000000 -87000000 -84000000 -92000000 Irregular Income/Expenses 0 0 0 0 0 Other Irregular Income/Expenses 0 0 0 0 0 Other Income/Expense, Non-Operating -1497000000 -108000000 -484000000 -613000000 -292000000 -825000000 -223000000 -222000000 Pretax Income 90734000000 24402000000 23064000000 21985000000 21283000000 18689000000 13359000000 8277000000 Provision for Income Tax -14701000000 -3760000000 -4128000000 -3460000000 -3353000000 -3462000000 -2112000000 -1318000000 Net Income from Continuing Operations 76033000000 20642000000 18936000000 18525000000 17930000000 15227000000 11247000000 6959000000 Net Income after Extraordinary Items and Discontinued Operations 76033000000 20642000000 18936000000 18525000000 17930000000 15227000000 11247000000 6959000000 Net Income after Non-Controlling/Minority Interests 76033000000 20642000000 18936000000 18525000000 17930000000 15227000000 11247000000 6959000000 Net Income Available to Common Stockholders 76033000000 20642000000 18936000000 18525000000 17930000000 15227000000 11247000000 6959000000 Diluted Net Income Available to Common Stockholders 76033000000 20642000000 18936000000 18525000000 17930000000 15227000000 11247000000 6959000000 Income Statement Supplemental Section Reported Normalized and Operating Income/Expense Supplemental Section Total Revenue as Reported, Supplemental 257637000000 75325000000 65118000000 61880000000 55314000000 56898000000 46173000000 38297000000 Total Operating Profit/Loss as Reported, Supplemental 78714000000 21885000000 21031000000 19361000000 16437000000 15651000000 11213000000 6383000000 Reported Effective Tax Rate 0.162 0.179 0.157 0.158 0.158 0.159 Reported Normalized Income Reported Normalized Operating Profit Other Adjustments to Net Income Available to Common Stockholders Discontinued Operations Basic EPS 113.88 31.15 28.44 27.69 26.63 22.54 16.55 10.21 Basic EPS from Continuing Operations 113.88 31.12 28.44 27.69 26.63 22.46 16.55 10.21 Basic EPS from Discontinued Operations Diluted EPS 112.2 30.69 27.99 27.26 26.29 22.3 16.4 10.13 Diluted EPS from Continuing Operations 112.2 30.67 27.99 27.26 26.29 22.23 16.4 10.13 Diluted EPS from Discontinued Operations Basic Weighted Average Shares Outstanding 667650000 662664000 665758000 668958000 673220000 675581000 679449000 681768000 Diluted Weighted Average Shares Outstanding 677674000 672493000 676519000 679612000 682071000 682969000 685851000 687024000 Reported Normalized Diluted EPS Basic EPS 113.88 31.15 28.44 27.69 26.63 22.54 16.55 10.21 Diluted EPS 112.2 30.69 27.99 27.26 26.29 22.3 16.4 10.13 Basic WASO 667650000 662664000 665758000 668958000 673220000 675581000 679449000 681768000 Diluted WASO 677674000 672493000 676519000 679612000 682071000 682969000 685851000 687024000 Fiscal year end September 28th., 2022. | USD
+
+31622,6:39 PM Morningstar.com Intraday Fundamental Portfolio View Print Report Print
+
+3/6/2022 at 6:37 PM
+
+GOOGL_income-statement_Quarterly_As_Originally_Reported Q4 2021 Cash Flow from Operating Activities, Indirect 24934000000 Q3 2021 Q2 2021 Q1 2021 Q4 2020 Net Cash Flow from Continuing Operating Activities, Indirect 24934000000 25539000000 37497000000 31211000000 30818000000 Cash Generated from Operating Activities 24934000000 25539000000 21890000000 19289000000 22677000000 Income/Loss before Non-Cash Adjustment 20642000000 25539000000 21890000000 19289000000 22677000000 Total Adjustments for Non-Cash Items 6517000000 18936000000 18525000000 17930000000 15227000000 Depreciation, Amortization and Depletion, Non-Cash Adjustment 3439000000 3797000000 4236000000 2592000000 5748000000 Depreciation and Amortization, Non-Cash Adjustment 3439000000 3304000000 2945000000 2753000000 3725000000 Depreciation, Non-Cash Adjustment 3215000000 3304000000 2945000000 2753000000 3725000000 Amortization, Non-Cash Adjustment 224000000 3085000000 2730000000 2525000000 3539000000 Stock-Based Compensation, Non-Cash Adjustment 3954000000 219000000 215000000 228000000 186000000 Taxes, Non-Cash Adjustment 1616000000 3874000000 3803000000 3745000000 3223000000 Investment Income/Loss, Non-Cash Adjustment -2478000000 -1287000000 379000000 1100000000 1670000000 Gain/Loss on Financial Instruments, Non-Cash Adjustment -2478000000 -2158000000 -2883000000 -4751000000 -3262000000 Other Non-Cash Items -14000000 -2158000000 -2883000000 -4751000000 -3262000000 Changes in Operating Capital -2225000000 64000000 -8000000 -255000000 392000000 Change in Trade and Other Receivables -5819000000 2806000000 -871000000 -1233000000 1702000000 Change in Trade/Accounts Receivable -5819000000 -2409000000 -3661000000 2794000000 -5445000000 Change in Other Current Assets -399000000 -2409000000 -3661000000 2794000000 -5445000000 Change in Payables and Accrued Expenses 6994000000 -1255000000 -199000000 7000000 -738000000 Change in Trade and Other Payables 1157000000 3157000000 4074000000 -4956000000 6938000000 Change in Trade/Accounts Payable 1157000000 238000000 -130000000 -982000000 963000000 Change in Accrued Expenses 5837000000 238000000 -130000000 -982000000 963000000 Change in Deferred Assets/Liabilities 368000000 2919000000 4204000000 -3974000000 5975000000 Change in Other Operating Capital -3369000000 272000000 -3000000 137000000 207000000 Change in Prepayments and Deposits 3041000000 -1082000000 785000000 740000000 Cash Flow from Investing Activities -11016000000 Cash Flow from Continuing Investing Activities -11016000000 -10050000000 -9074000000 -5383000000 -7281000000 Purchase/Sale and Disposal of Property, Plant and Equipment, Net -6383000000 -10050000000 -9074000000 -5383000000 -7281000000 Purchase of Property, Plant and Equipment -6383000000 -6819000000 -5496000000 -5942000000 -5479000000 Sale and Disposal of Property, Plant and Equipment -6819000000 -5496000000 -5942000000 -5479000000 Purchase/Sale of Business, Net -385000000 Purchase/Acquisition of Business -385000000 -259000000 -308000000 -1666000000 -370000000 Purchase/Sale of Investments, Net -4348000000 -259000000 -308000000 -1666000000 -370000000 Purchase of Investments -40860000000 -3360000000 -3293000000 2195000000 -1375000000 Sale of Investments 36512000000 -35153000000 -24949000000 -37072000000 -36955000000 Other Investing Cash Flow 100000000 31793000000 21656000000 39267000000 35580000000 Purchase/Sale of Other Non-Current Assets, Net 388000000 23000000 30000000 -57000000 Sales of Other Non-Current Assets Cash Flow from Financing Activities -16511000000 -15254000000 Cash Flow from Continuing Financing Activities -16511000000 -15254000000 -15991000000 -13606000000 -9270000000 Issuance of/Payments for Common Stock, Net -13473000000 -12610000000 -15991000000 -13606000000 -9270000000 Payments for Common Stock 13473000000 -12610000000 -12796000000 -11395000000 -7904000000 Proceeds from Issuance of Common Stock -12796000000 -11395000000 -7904000000 Issuance of/Repayments for Debt, Net 115000000 -42000000 Issuance of/Repayments for Long Term Debt, Net 115000000 -42000000 -1042000000 -37000000 -57000000 Proceeds from Issuance of Long Term Debt 6250000000 6350000000 -1042000000 -37000000 -57000000 Repayments for Long Term Debt 6365000000 -6392000000 6699000000 900000000 0 Proceeds from Issuance/Exercising of Stock Options/Warrants 2923000000 -2602000000 -7741000000 -937000000 -57000000 -2453000000 -2184000000 -1647000000
+
+Other Financing Cash Flow Cash and Cash Equivalents, End of Period Change in Cash 0 300000000 10000000 338000000000) Effect of Exchange Rate Changes 20945000000 23719000000 23630000000 26622000000 26465000000 Cash and Cash Equivalents, Beginning of Period 25930000000 235000000000) -3175000000 300000000 6126000000 Cash Flow Supplemental Section 181000000000) -146000000000) 183000000 -143000000 210000000 Change in Cash as Reported, Supplemental 23719000000000 23630000000000 26622000000000 26465000000000 20129000000000 Income Tax Paid, Supplemental 2774000000 89000000 -2992000000 6336000000 Cash and Cash Equivalents, Beginning of Period 13412000000 157000000 -4990000000 12 Months Ended
+
+Q4 2020 Q4 2019 Income Statement USD in "000'"s Repayments for Long Term Debt Dec. 31, 2020 Dec. 31, 2019 Costs and expenses: Cost of revenues 182527 161857 Research and development Sales and marketing 84732 71896 General and administrative 27573 26018 European Commission fines 17946 18464 Total costs and expenses 11052 9551 Income from operations 0 1697 Other income (expense), net 141303 127626 Income before income taxes 41224 34231 Provision for income taxes 6858000000 5394 Net income 22677000000 19289000000 *include interest paid, capital obligation, and underweighting 22677000000 19289000000 22677000000 19289000000 Basic net income per share of Class A and B common stock and Class C capital stock (in dollars par share) Diluted net income per share of Class A and Class B common stock and Class C capital stock (in dollars par share) For Paperwork Reduction Act Notice, see the seperate Instructions.
+On Mon, Sep 12, 2022 at 12:23 AM ZACHRY WOOD zachryiixixiiwood@gmail.com wrote: **Need a Template for Me to Write checks on the go anyway Thank 's, Bud keep up the hard work.], man,. On Mon, Sep 12, 2022 at 12:21 AM ZACHRY WOOD zachryiixixiiwood@gmail.com wrote: Full Name.........................................Zachry Tyler Wood/J.P. Morgan/Morgan Stanley/Joseph A Parascandola/Zachary Kirkahorn/Zaachary Lee Prince/ JPMORGAN TRUST I/MMKT(Reserve)/and Morgan Stankey Smith & BARNEY Investments' holding's Management Agenies' N.A./L.L.C. Home Address................................5323 BRADFORD DR Age/Occupation...............................28/Retired Valid Phone number.......................+1 (469) 697-4300 Country/State....................................Tx/USA Any Of Your Identity Card.................TxDL:00037305581 Cashier's Cheque please You can email it here to me i;; nrrd a te,plate and the proper software for my TRUST OF BITCOIN JOMORGAN TRUST I Kindly get back to us by reconfirming your full information. Thanks, I hope, you all have a blessed
+.husky/post-checkout | 2844 +++++++++++++++++++++++++++++++++++++++++- 1 file changed, 2835 insertions(+), 9 deletions(-)
+
+diff --git a/.husky/post-checkout b/.husky/post-checkout index 4f4027d51e03..ef7096414777 100755 --- a/.husky/post-checkout +++ b/.husky/post-checkout @@ -1,11 +1,2837 @@ -#!/bin/sh -[ -n "$CI" ] && exit 0 -if command -v git-lfs >/dev/null 2>&1 -then
+
+if ! (git lfs post-checkout "$@")
+then
+printf >&2 "\nGitHub Docs requires Git LFS but using the 'git-lfs' on your path failed.\n"
+fi -else +#!/usr/bin/bash +ci:CI.yml' +::# :## ::BEGIN : +::GLOW7 :'"'.''":''Docx'"'' +Skip to content +Search or jump to… +Pull requests +Issues +Marketplace +Explore
++@zakwarlord7 +Your account has been flagged. +Because of that, your profile is hidden from the public. If you believe this is a mistake, contact support to have your account status reviewed. +zakwarlord7 +/ +-ERROR-ERROR-Zip-Postal-Code-zachryiixixiiwood-gmail.com-ZACHRY-WOOD-ZACHRY-TYLER-WOOD-ALPHABET +Public +forked from https://github.com/github/roadmap +Code +Pull requests +Actions +Projects +Security +Insights +Settings +-ERROR-ERROR-Zip-Postal-Code-zachryiixixiiwood-gmail.com-ZACHRY-WOOD-ZACHRY-TYLER-WOOD-ALPHABET/README.MD +@zakwarlord7 +zakwarlord7 Update README.MD +Latest commit 379250d 32 seconds ago
+
+History
+1 contributor +442 lines (442 sloc) 39.4 KB
++[**The U.S. Internal Revenue Code of 1986, as amended, the Treasury Regulations promulgated thereunder, published pronouncements of the Internal Revenue Service, which may be cited or used as precedents, and case law, any of which may be changed at any time with retroactive effect. No opinion is expressed on any matters other than those specifically referred to above. SALARY SCHEDULE - (RESOLUTION) SCCM (CONFIDENTIAL/MANAGEMENT) UNIT Salary Plan - Effective 7-9-2022 BASE PAY RATE Class Code Exempt/N onExempt Classification Title Step 1 Step 2 Step 3 Step 4 Step 5 Step 1 Step 2 Step 3 Step 4 Step 5 27.95 29.35 30 82 32 36 33 98 - - - - - 9624 Accountant 2,924 39 3,070 61 3,224.14 3,385 35 3,554 62 2824 Exempt Court Operations Manager 25.29 26.55 27 88 29 27 30.73 - - - - - 7261 Non Court Services Analyst I Cod SALARY=SCHEDULED(FI.ED:: AUTOMATE :Kite.u :: SCCM (CONFIDENTIAL/MANAGEMENT) UNIT Salary Plan - Effective 7-9-2022 15 YEAR LONGEVITY (additional 3% above 10 year longevity rate of compensation) Class Code Exempt/N onExempt Classification Title Classification Title Step 1 Step 2 Step 3 Step 4 Step 5 Step 1 Step 2 Step 3 Step 4 Step 5 'EMPLOYER IDENTIFICATION NUMBER: 63-3441725 Income Statement Supplemental Section Securities and Exchange Commission - Notice of Effectiveness from the Division of Corporation Finance Update ZACHRY WOOD zachryiixixiiwood@gmail.com Tue, Sep 6, 2022 at 7:46 AM To: Securities and Exchange Commission sec@service.govdelivery.com Based on facts as set forth in. 6551 6550 The U.S. Internal Revenue Code of 1986, as amended, the Treasury Regulations promulgated thereunder, published pronouncements of the Internal Revenue Service, which may be cited or used as precedents, and case law, any of which may be changed at any time with retroactive effect. No opinion is expressed on any matters other than those specifically referred to above. EMPLOYER IDENTIFICATION NUMBER: 61-1767920 DRAFT 22662983361013.70 ALPHABET ZACHRY T WOOD 5324 BRADFORD DR DALLAS TX 75235-8315 ORIGINAL REPORT Income, Rents, & Royalty INCOME STATEMENT 61-1767920 88-1303491 GOOGL_income-statement_Quarterly_As_Originally_Reported TTM Q4 2022 Q3 2022 Q2 2022 Q1 2022 Q4 2021 Q3 2021 Q2 2021 Q3 2021 Gross Profit -2178236364 -9195472727 -16212709091 -23229945455 -30247181818 -37264418182 -44281654545 -51298890909 37497000000 Total Revenue as Reported, Supplemental -1286309091 -13385163636 -25484018182 -37582872727 -49681727273 -61780581818 -73879436364 -85978290909 65118000000 1957800000 -9776581818 -21510963636 -33245345455 -44979727273 -56714109091 -68448490909 -80182872727 65118000000 Other Revenue Cost of Revenue -891927272.7 4189690909 9271309091 14352927273 19434545455 24516163636 29597781818 34679400000 -27621000000 Cost of Goods and Services -891927272.7 4189690909 9271309091 14352927273 19434545455 24516163636 29597781818 34679400000 -27621000000 Operating Income/Expenses -3640563636 -882445454.5 1875672727 4633790909 7391909091 10150027273 12908145455 15666263636 -16466000000 Selling, General and Administrative Expenses -1552200000 -28945454.55 1494309091 3017563636 4540818182 6064072727 7587327273 9110581818 -8772000000 General and Administrative Expenses -544945454.5 23200000 591345454.5 1159490909 1727636364 2295781818 2863927273 3432072727 -3256000000 Selling and Marketing Expenses -1007254545 -52145454.55 902963636.4 1858072727 2813181818 3768290909 4723400000 5678509091 -5516000000 Research and Development Expenses -2088363636 -853500000 381363636.4 1616227273 2851090909 4085954545 5320818182 6555681818 -7694000000 Total Operating Profit/Loss -5818800000 -10077918182 -14337036364 -18596154545 -22855272727 -27114390909 -31373509091 -35632627273 21031000000 Non-Operating Income/Expenses, Total -1369181818 -2079000000 -2788818182 -3498636364 -4208454545 -4918272727 -5628090909 -6337909091 2033000000 Total Net Finance Income/Expense 464490909.1 462390909.1 460290909.1 458190909.1 456090909.1 453990909.1 451890909.1 449790909.1 310000000 Net Interest Income/Expense 464490909.1 462390909.1 460290909.1 458190909.1 456090909.1 453990909.1 451890909.1 449790909.1 310000000 Interest Expense Net of Capitalized Interest 48654545.45 69900000 91145454.55 112390909.1 133636363.6 154881818.2 176127272.7 197372727.3 -77000000 Interest Income 415836363.6 392490909.1 369145454.5 345800000 322454545.5 299109090.9 275763636.4 252418181.8 387000000 Net Investment Income -2096781818 -2909109091 -3721436364 -4533763636 -5346090909 -6158418182 -6970745455 -7783072727 2207000000 Gain/Loss on Investments and Other Financial Instruments -2243490909 -3068572727 -3893654545 -4718736364 -5543818182 -6368900000 -7193981818 -8019063636 2158000000 Income from Associates, Joint Ventures and Other Participating Interests 99054545.45 92609090.91 86163636.36 79718181.82 73272727.27 66827272.73 60381818.18 53936363.64 188000000 Gain/Loss on Foreign Exchange 47654545.45 66854545.45 86054545.45 105254545.5 124454545.5 143654545.5 162854545.5 182054545.5 -139000000 Irregular Income/Expenses 0 0 0 0 0 Other Irregular Income/Expenses 0 0 0 0 0 Other Income/Expense, Non-Operating 263109090.9 367718181.8 472327272.7 576936363.6 681545454.5 786154545.5 890763636.4 995372727.3 -484000000 Pretax Income -7187981818 -12156918182 -17125854545 -22094790909 -27063727273 -32032663636 -37001600000 -41970536364 23064000000 Provision for Income Tax 1695218182 2565754545 3436290909 4306827273 5177363636 6047900000 6918436364 7788972727 -4128000000 Net Income from Continuing Operations -5492763636 -9591163636 -13689563636 -17787963636 -21886363636 -25984763636 -30083163636 -34181563636 18936000000 Net Income after Extraordinary Items and Discontinued Operations -5492763636 -9591163636 -13689563636 -17787963636 -21886363636 -25984763636 -30083163636 -34181563636 18936000000 Net Income after Non-Controlling/Minority Interests -5492763636 -9591163636 -13689563636 -17787963636 -21886363636 -25984763636 -30083163636 -34181563636 18936000000 Net Income Available to Common Stockholders -5492763636 -9591163636 -13689563636 -17787963636 -21886363636 -25984763636 -30083163636 -34181563636 18936000000 Diluted Net Income Available to Common Stockholders -5492763636 -9591163636 -13689563636 -17787963636 -21886363636 -25984763636 -30083163636 -34181563636 18936000000 Income Statement Supplemental Section Reported Normalized and Operating Income/Expense Supplemental Section Total Revenue as Reported, Supplemental -1286309091 -13385163636 -25484018182 -37582872727 -49681727273 -61780581818 -73879436364 -85978290909 65118000000 Total Operating Profit/Loss as Reported, Supplemental -5818800000 -10077918182 -14337036364 -18596154545 -22855272727 -27114390909 -31373509091 -35632627273 21031000000 Reported Effective Tax Rate 1.162 0.1436666667 0.1331666667 0.1226666667 0.1063333333 0.08683333333 0.179 Reported Normalized Income Reported Normalized Operating Profit Other Adjustments to Net Income Available to Common Stockholders Discontinued Operations Basic EPS -8.742909091 -14.93854545 -21.13418182 -27.32981818 -33.52545455 -39.72109091 -45.91672727 -52.11236364 28.44 Basic EPS from Continuing Operations -8.752545455 -14.94781818 -21.14309091 -27.33836364 -33.53363636 -39.72890909 -45.92418182 -52.11945455 28.44 Basic EPS from Discontinued Operations Diluted EPS -8.505636364 -14.599 -20.69236364 -26.78572727 -32.87909091 -38.97245455 -45.06581818 -51.15918182 27.99 Diluted EPS from Continuing Operations -8.515636364 -14.609 -20.70236364 -26.79572727 -32.88909091 -38.98245455 -45.07581818 -51.16918182 27.99 Diluted EPS from Discontinued Operations Basic Weighted Average Shares Outstanding 694313545.5 697258863.6 700204181.8 703149500 706094818.2 709040136.4 711985454.5 714930772.7 665758000 Diluted Weighted Average Shares Outstanding 698675981.8 701033009.1 703390036.4 705747063.6 708104090.9 710461118.2 712818145.5 715175172.7 676519000 Reported Normalized Diluted EPS Basic EPS -8.742909091 -14.93854545 -21.13418182 -27.32981818 -33.52545455 -39.72109091 -45.91672727 -52.11236364 28.44 Diluted EPS -8.505636364 -14.599 -20.69236364 -26.78572727 -32.87909091 -38.97245455 -45.06581818 -51.15918182 27.99 Basic WASO 694313545.5 697258863.6 700204181.8 703149500 706094818.2 709040136.4 711985454.5 714930772.7 665758000 Diluted WASO 698675981.8 701033009.1 703390036.4 705747063.6 708104090.9 710461118.2 712818145.5 715175172.7 676519000 Fiscal year end September 28th., 2022. | USD 31622,6:39 PM Morningstar.com Intraday Fundamental Portfolio View Print Report Print 3/6/2022 at 6:37 PM GOOGL_income-statement_Quarterly_As_Originally_Reported Q4 2022 Cash Flow from Operating Activities, Indirect 24934000001 Q3 2022 Q2 2022 Q1 2022 Q4 2021 Q3 2021 Net Cash Flow from Continuing Operating Activities, Indirect 35231800000 36975800000 38719800000 40463800000 42207800000 25539000000 Cash Generated from Operating Activities 19636600000 18560200000 17483800000 16407400000 15331000000 25539000000 Income/Loss before Non-Cash Adjustment 21353400000 21135400000 20917400000 20699400000 20481400000 25539000000 Total Adjustments for Non-Cash Items 20351200000 21992600000 23634000000 25275400000 26916800000 18936000000 Depreciation, Amortization and Depletion, Non-Cash Adjustment 4986300000 5327600000 5668900000 6010200000 6351500000 3797000000 Depreciation and Amortization, Non-Cash Adjustment 3239500000 3241600000 3243700000 3245800000 3247900000 3304000000 Depreciation, Non-Cash Adjustment 3329100000 3376000000 3422900000 3469800000 3516700000 3304000000 Amortization, Non-Cash Adjustment 4241600000 4848600000 5455600000 6062600000 6669600000 3085000000 Stock-Based Compensation, Non-Cash Adjustment -1297700000 -2050400000 -2803100000 -3555800000 -4308500000 219000000 Taxes, Non-Cash Adjustment 4177700000 4486200000 4794700000 5103200000 5411700000 3874000000 Investment Income/Loss, Non-Cash Adjustment 3081700000 4150000000 5218300000 6286600000 7354900000 -1287000000 Gain/Loss on Financial Instruments, Non-Cash Adjustment -4354700000 -4770800000 -5186900000 -5603000000 -6019100000 -2158000000 Other Non-Cash Items -5340300000 -6249200000 -7158100000 -8067000000 -8975900000 -2158000000 Changes in Operating Capital 1068100000 1559600000 2051100000 2542600000 3034100000 64000000 Change in Trade and Other Receivables 2617900000 3718200000 4818500000 5918800000 7019100000 2806000000 Change in Trade/Accounts Receivable -1122700000 -527600000 67500000 662600000 1257700000 -2409000000 Change in Other Current Assets -3290700000 -3779600000 -4268500000 -4757400000 -5246300000 -2409000000 Change in Payables and Accrued Expenses -3298800000 -4719000000 -6139200000 -7559400000 -8979600000 -1255000000 Change in Trade and Other Payables 3108700000 3453600000 3798500000 4143400000 4488300000 3157000000 Change in Trade/Accounts Payable -233200000 -394000000 -554800000 -715600000 -876400000 238000000 Change in Accrued Expenses -2105200000 -3202000000 -4298800000 -5395600000 -6492400000 238000000 Change in Deferred Assets/Liabilities 3194700000 3626800000 4058900000 4491000000 4923100000 2919000000 Change in Other Operating Capital 1553900000 2255600000 2957300000 3659000000 4360700000 272000000 Change in Prepayments and Deposits -388000000 -891600000 -1395200000 -1898800000 3041000000 Cash Flow from Investing Activities -11015999999 Cash Flow from Continuing Investing Activities -4919700000 -3706000000 -2492300000 -1278600000 -64900000 -10050000000 Purchase/Sale and Disposal of Property, Plant and Equipment, Net -6772900000 -6485800000 -6198700000 -5911600000 -5624500000 -10050000000 Purchase of Property, Plant and Equipment -5218300000 -4949800000 -4681300000 -4412800000 -4144300000 -6819000000 Sale and Disposal of Property, Plant and Equipment -5040500000 -4683100000 -4325700000 -3968300000 -6819000000 Purchase/Sale of Business, Net -384999999 Purchase/Acquisition of Business -1010700000 -1148400000 -1286100000 -1423800000 -1561500000 -259000000 Purchase/Sale of Investments, Net 574500000 1229400000 1884300000 2539200000 3194100000 -259000000 Purchase of Investments 16018900000 24471400000 32923900000 41376400000 49828900000 -3360000000 Sale of Investments -64179300000 -79064600000 -93949900000 -108835200000 -123720500000 -35153000000 Other Investing Cash Flow 49209400000 57052800000 64896200000 72739600000 80583000000 31793000000 Purchase/Sale of Other Non-Current Assets, Net -236000000 -368800000 -501600000 -634400000 388000000 Sales of Other Non-Current Assets Cash Flow from Financing Activities -13997000000 -12740000000 -15254000000 Cash Flow from Continuing Financing Activities -9287400000 -7674400000 -6061400000 -4448400000 -2835400000 -15254000000 Issuance of/Payments for Common Stock, Net -10767000000 -10026000000 -9285000000 -8544000000 -7803000000 -12610000000 Payments for Common Stock -18708100000 -22862000000 -27015900000 -31169800000 -35323700000 -12610000000 Proceeds from Issuance of Common Stock -5806333333 -3360333333 -914333333.3 Issuance of/Repayments for Debt, Net -199000000 -356000000 -42000000 Issuance of/Repayments for Long Term Debt, Net -314300000 -348200000 -382100000 -416000000 -449900000 -42000000 Proceeds from Issuance of Long Term Debt -3407500000 -5307600000 -7207700000 -9107800000 -11007900000 6350000000 Repayments for Long Term Debt -117000000 -660800000 -1204600000 -1748400000 -2292200000 -6392000000 Proceeds from Issuance/Exercising of Stock Options/Warrants -2971300000 -3400800000 -3830300000 -4259800000 -4689300000 -2602000000 -1288666667 -885666666.7 -482666666.7 Other Financing Cash Flow Cash and Cash Equivalents, End of Period Change in Cash 1 -280000000 -570000000 338000000000) Effect of Exchange Rate Changes 28459100000 29853400000 31247700000 32642000000 34036300000 23719000000 Cash and Cash Equivalents, Beginning of Period 25930000001 235000000000) 10384666667 15035166667 19685666667 235000000000) Cash Flow Supplemental Section 181000000000) -146000000000) 110333333.3 123833333.3 137333333.3 -146000000000) Change in Cash as Reported, Supplemental 22809500000000 22375000000000 21940500000000 21506000000000 21071500000000 23630000000000 Income Tax Paid, Supplemental -5809000000 -8692000000 -11575000000 6336000001 89000000 Cash and Cash Equivalents, Beginning of Period -13098000000 -26353000000 -4989999999 157000000 13 Months Ended + +Q4 2021 Q4 2020 Q4 2020 Income Statement USD in "000'"s Repayments for Long Term Debt Dec. 31, 2021 Dec. 31, 2020 Dec. 31, 2020 Costs and expenses: Cost of revenues 182528 161858 182527 Research and development Sales and marketing 84733 71897 84732 General and administrative 27574 26019 27573 European Commission fines 17947 18465 17946 Total costs and expenses 11053 9552 11052 Income from operations 1 1698 0 Other income (expense), net 141304 127627 141303 Income before income taxes 41225 34232 41224 Provision for income taxes 6858000001 5395 6858000000 Net income 22677000001 19289000001 22677000000 On Tue, Sep 6, 2022, 6:01 AM Securities and Exchange Commission sec@service.govdelivery.com wrote: You are subscribed to receive information about Notice of Effectiveness from the Division of Corporation Finance of the Securities and Exchange Commission. This information has recently been updated and is now available. https://www.sec.gov/cgi-bin/browse-edgar?action=geteffect Reported Normalized and Operating Income/Expense Supplemental Section Total Revenue as Reported, Supplemental -1286309090.9 -13385163636.4 -25484018181.8 -37582872727.3 -49681727272.7 -61780581818.2 -73879436363.6 85978290909.1 -85978290909.1 65118000000 Total Operating Profit/Loss as Reported, Supplemental -5818800000 -10077918181.8 -14337036363.6 -18596154545.5 -22855272727.3 -27114390909.1 31373509090.9 -35632627272.7 -35632627272.7 21031000000 Reported Effective Tax Rate 1.162 1.43667E-01 1.33167E-01 1.22667E-01 1.06333E-01 8.68333E-02 8.68333E-02 0.179 Reported Normalized Income Reported Normalized Operating Profit Other Adjustments to Net Income Available to Common Stockholders Discontinued Operations Basic EPS -8.742909091 -14.93854545 -21.13418182 -27.32981818 -33.52545455 -39.72109091 -45.91672727 -52.11236364 -52.11236364 28.44 Basic EPS from Continuing Operations -8.752545455 -14.94781818 -21.14309091 -27.33836364 -33.53363636 -39.72890909 -45.92418182 -52.11945455 -52.11945455 28.44 Basic EPS from Discontinued Operations Diluted EPS -8.505636364 -14.599 -20.69236364 -26.78572727 -32.87909091 -38.97245455 -45.06581818 -51.15918182 -51.15918182 27.99 Diluted EPS from Continuing Operations -8.515636364 -14.609 -20.70236364 -26.79572727 -32.88909091 -38.98245455 -45.07581818 -51.16918182 -51.16918182 27.99 Diluted EPS from Discontinued Operations Basic Weighted Average Shares Outstanding 694313545.5 697258863.6 700204181.8 703149500 706094818.2 709040136.4 711985454.5 714930772.7 714930772.7 665758000 Diluted Weighted Average Shares Outstanding 698675981.8 701033009.1 703390036.4 705747063.6 708104090.9 710461118.2 712818145.5 715175172.7 715175172.7 676519000 Reported Normalized Diluted EPS Basic EPS -8.742909091 -14.93854545 -21.13418182 -27.32981818 -33.52545455 -39.72109091 -45.91672727 -52.11236364 -52.11236364 28.44 Diluted EPS -8.505636364 -14.599 -20.69236364 -26.78572727 -32.87909091 -38.97245455 -45.06581818 -51.15918182 -51.15918182 27.99 Basic WASO 694313545.5 697258863.6 700204181.8 703149500 706094818.2 709040136.4 711985454.5 714930772.7 714930772.7665758000 Diluted WASO 698675981.8 701033009.1 703390036.4 705747063.6 708104090.9 710461118.2 712818145.5 715175172.7 715175172.7 676519000 Fiscal year end September 28th., 2022. | USD 31622,6:39 PM Payer : Payer's Federal Identification Number (FIN) :xxxxx4775 THE 101 EA GOOGL_income-statement_Quarterly_As_Originally_Reported Q4 2022 Q3 2022 Q2 2022 Q1 2022 Q4 2021 Q3 2021 Q3 2021 Q2 2021 Q1 2021 Cash Flow from Operating Activities, Indirect 24934000001 36975800000 38719800000 40463800000 42207800000 25539000000 37497000000 -51298890909.1 25539000000 Net Cash Flow from Continuing Operating Activities, Indirect 35231800000 18560200000 17483800000 16407400000 15331000000 25539000000 65118000000 -85978290909.1 25539000000 Cash Generated from Operating Activities 19636600000 21135400000 20917400000 20699400000 20481400000 25539000000 65118000000 -80182872727.3 25539000000 Income/Loss before Non-Cash Adjustment 21353400000 21992600000 23634000000 25275400000 26916800000 18936000000 18936000000 Total Adjustments for Non-Cash Items 20351200000 5327600000 5668900000 6010200000 6351500000 3797000000 -27621000000 34679400000 3797000000 Depreciation, Amortization and Depletion, Non-Cash Adjustment 4986300000 3241600000 3243700000 3245800000 3247900000 3304000000 -27621000000 34679400000 3304000000 Depreciation and Amortization, Non-Cash Adjustment 3239500000 3376000000 3422900000 3469800000 3516700000 3304000000 -16466000000 15666263636.4 3304000000 Depreciation, Non-Cash Adjustment 3329100000 4848600000 5455600000 6062600000 6669600000 3085000000 -8772000000 9110581818.2 3085000000 Amortization, Non-Cash Adjustment 4241600000 -2050400000 -2803100000 -3555800000 -4308500000 219000000 -3256000000 3432072727.3 219000000 Stock-Based Compensation, Non-Cash Adjustment -1297700000 4486200000 4794700000 5103200000 5411700000 3874000000 -5516000000 5678509090.9 3874000000 Taxes, Non-Cash Adjustment 4177700000 4150000000 5218300000 6286600000 7354900000 -1287000000 -7694000000 6555681818.2 -1287000000 Investment Income/Loss, Non-Cash Adjustment 3081700000 -4770800000 -5186900000 -5603000000 -6019100000 -2158000000 21031000000 -35632627272.7 -2158000000 +Gain/Loss on Financial Instruments, Non-Cash Adjustment -4354700000 -6249200000 -7158100000 -8067000000 -8975900000 -2158000000 2033000000 -6337909090.9 -2158000000 Other Non-Cash Items -5340300000 1559600000 2051100000 2542600000 3034100000 64000000 310000000 449790909.1 64000000 Changes in Operating Capital 1068100000 3718200000 4818500000 5918800000 7019100000 2806000000 310000000 449790909.1 2806000000 Change in Trade and Other Receivables 2617900000 -527600000 67500000 662600000 1257700000 -2409000000 -2409000000 Change in Trade/Accounts Receivable -1122700000 -3779600000 -4268500000 -4757400000 -5246300000 -2409000000 -77000000 197372727.3 -2409000000 Change in Other Current Assets -3290700000 -4719000000 -6139200000 -7559400000 -8979600000 -1255000000 387000000 252418181.8 -1255000000 Change in Payables and Accrued Expenses -3298800000 3453600000 3798500000 4143400000 4488300000 3157000000 2207000000 -7783072727.3 3157000000 Change in Trade and Other Payables 3108700000 -394000000 -554800000 -715600000 -876400000 238000000 2158000000 -8019063636.4 238000000 Change in Trade/Accounts Payable -233200000 -3202000000 -4298800000 -5395600000 -6492400000 238000000 188000000 53936363.64 238000000 Change in Accrued Expenses -2105200000 3626800000 4058900000 4491000000 4923100000 2919000000 -139000000 182054545.5 2919000000 Change in Deferred Assets/Liabilities 3194700000 2255600000 2957300000 3659000000 4360700000 272000000 0 272000000 Change in Other Operating Capital 1553900000 -388000000 -891600000 -1395200000 -1898800000 3041000000 0 3041000000 Change in Prepayments and Deposits -484000000 995372727.3 Cash Flow from Investing Activities -11015999999 -3706000000 -2492300000 -1278600000 -64900000 -10050000000 23064000000 -41970536363.6 -10050000000 Cash Flow from Continuing Investing Activities -4919700000 -6485800000 -6198700000 -5911600000 -5624500000 -10050000000 -4128000000 7788972727.3 -10050000000 Purchase/Sale and Disposal of Property, Plant and Equipment, Net -6772900000 -4949800000 -4681300000 -4412800000 -4144300000 -6819000000 18936000000 -34181563636.4 -6819000000 Purchase of Property, Plant and Equipment -5218300000 -5040500000 -4683100000 -4325700000 -3968300000 -6819000000 18936000000 -34181563636.4 -6819000000 Sale and Disposal of Property, Plant and Equipment 18936000000 -34181563636.4 Purchase/Sale of Business, Net -384999999 -1148400000 -1286100000 -1423800000 -1561500000 -259000000 18936000000 -34181563636.4 -259000000 Purchase/Acquisition of Business -1010700000 1229400000 1884300000 2539200000 3194100000 -259000000 18936000000 -34181563636.4 -259000000 Purchase/Sale of Investments, Net 574500000 24471400000 32923900000 41376400000 49828900000 -3360000000 -3360000000 Purchase of Investments 16018900000 -79064600000 -93949900000 -1.08835E+11 -1.23721E+11 -35153000000 -35153000000 Basic net income per share of Class A and B common stock and Class C capital stock (in dollars par share) Diluted net income per share of Class A and Class B common stock and Class C capital stock (in dollars par share) JPMORGAN TRUST I 70,842,745,000 Earnings Statement Net Pay SSN Pay Schedule 20210418 RateUnitsTotalYTDTaxes / DeductionsCurrentYTD $70,842,745,000.00 $70,842,745,000.00 Federal Withholding$0.00 $0.00 FICA - Social Security$0.00 $8,853.60 FICA - Medicare$0.00 $0.00 Employer Taxes FUTA$0.00 $0.00 SUTA$0.00 $0.00 EIN: 61-1767919 SSN: 633441725 Gross $70,842,745,000.00 Earnings Statement Taxes / DeductionsStub Number: 1 $0.00 Net PaySSNPay SchedulePay PeriodSep 28, 2022 to Sep 29, 2023Pay Date4/18/2022 $70,842,745,000.00 XXX-XX-1725Annually CHECK NUMBER 221116905560140 $76,033,000,000.00 $20,642,000,000.00 $18,936,000,000.00 $18,525,000,000.00 $17,930,000,000.00 $15,227,000,000.00 $11,247,000,000.00 $6,959,000,000.00 $6,836,000,000.00 $10,671,000,000.00 $7,068,000,000.00 $76,033,000,000.00 $20,642,000,000.00 $18,936,000,000.00 $18,525,000,000.00 $17,930,000,000.00 $15,227,000,000.00 $11,247,000,000.00 $6,959,000,000.00 $6,836,000,000.00 $10,671,000,000.00 $7,068,000,000.00 $76,033,000,000.00 $20,642,000,000.00 $18,936,000,000.00 $18,525,000,000.00 $17,930,000,000.00 $15,227,000,000.00 $11,247,000,000.00 $6,959,000,000.00 $6,836,000,000.00 $10,671,000,000.00 $7,068,000,000.00 $76,033,000,000.00 $20,642,000,000.00 $18,936,000,000.00 $257,637,000,000.00 $75,325,000,000.00 $65,118,000,000.00 $61,880,000,000.00 $55,314,000,000.00 $56,898,000,000.00 $46,173,000,000.00 $38,297,000,000.00 $41,159,000,000.00 $46,075,000,000.00 $40,499,000,000.00 $78,714,000,000.00 $21,885,000,000.00 $21,031,000,000.00 $19,361,000,000.00 $16,437,000,000.00 $15,651,000,000.00 $11,213,000,000.00 $6,383,000,000.00 $7,977,000,000.00 $9,266,000,000.00 $9,177,000,000.00 $0.16 $0.18 $0.16 $0.16 $0.16 $0.16 $0.12 $0.18 $6,836,000,000.00 $7,977,000,000.00 $113.88 $31.15 $28.44 $27.69 $26.63 $22.54 $16.55 $10.21 $9.96 $15.49 $10.20 $113.88 $31.12 $28.44 $27.69 $26.63 $22.46 $16.55 $10.21 $9.96 $15.47 $10.20 $112.20 $30.69 $27.99 $27.26 $26.29 $22.30 $16.40 $10.13 $9.87 $15.35 $10.12 $112.20 $30.67 $27.99 $27.26 $26.29 $22.23 $16.40 $10.13 $9.87 $15.33 $10.12 $667,650,000.00 $662,664,000.00 $665,758,000.00 $668,958,000.00 $673,220,000.00 $675,581,000.00 $679,449,000.00 $681,768,000.00 $686,465,000.00 $688,804,000.00 $692,741,000.00 $677,674,000.00 $672,493,000.00 $676,519,000.00 $679,612,000.00 $682,071,000.00 $682,969,000.00 $685,851,000.00 $687,024,000.00 $692,267,000.00 $695,193,000.00 $698,199,000.00 $9.87 $113.88 $31.15 $28.44 $27.69 $26.63 $22.54 $16.55 $10.21 $9.96 $15.49 $10.20 $1.00 $112.20 $30.69 $27.99 $27.26 $26.29 $22.30 $16.40 $10.13 $9.87 $15.35 $10.12 $667,650,000.00 $662,664,000.00 $665,758,000.00 $668,958,000.00 $673,220,000.00 $675,581,000.00 $679,449,000.00 $681,768,000.00 $686,465,000.00 $688,804,000.00 $692,741,000.00 $677,674,000.00 $672,493,000.00 $676,519,000.00 $679,612,000.00 $682,071,000.00 $682,969,000.00 $685,851,000.00 $687,024,000.00 $692,267,000.00 $695,193,000.00 $698,199,000.00 Use "gh [command] [subcommand] --help" for more information about a command. Read the manual at <http://cli.github.com/manual/kite.u FEEDBACK Fill out our feedback form https://forms.gle/umxd3h31c7aMQFKG7 Open an issue using “gh issue create -R cli/cli”GOOGL_balance-sheet_Annual_Restated 2017 2018 2019 2020 2021 Total Assets197,295,000,000 232,792,000,000 275,909,000,000 319,616,000,000 359,268,000,000 Total Current Assets124,308,000,000 135,676,000,000 152,578,000,000 174,296,000,000 188,143,000,000 Cash, Cash Equivalents and Short Term Investments 101,871,000,000 109,140,000,000 119,675,000,000 136,694,000,000 139,649,000,000 Cash and Cash Equivalents 10,715,000,000 16,701,000,000 18,498,000,000 26,465,000,000 20,945,000,000 Cash Cash Equivalents Short Term Investments91,156,000,000 92,439,000,000 101,177,000,000 110,229,000,000 118,704,000,000 Other Short Term Investments 91,156,000,000 92,439,000,000 101,177,000,000 110,229,000,000 118,704,000,000 Inventories749,000,000 1,107,000,000 999,000,000 728,000,000 1,170,000,000 Raw Materials, Consumables and Supplies Finished Goods and Merchandise Trade and Other Receivables, Current 18,705,000,000 21,193,000,000 27,492,000,000 31,384,000,000 40,270,000,000 Trade/Accounts Receivable, Current 18,336,000,000 20,838,000,000 25,326,000,000 30,930,000,000 39,304,000,000 Gross Trade/Accounts Receivable, Current 19,010,000,000 21,567,000,000 26,055,000,000 31,480,000,000 40,093,000,000 Allowance/Adjustments for Trade/Accounts Receivable, Current -674,000,000 -729,000,000 -729,000,000 -550,000,000 -789,000,000 Taxes Receivable, Current369,000,000 355,000,000 2,166,000,000 454,000,000 966,000,000 Other Receivables, Current Other Current Assets2,983,000,000 4,236,000,000 4,412,000,000 5,490,000,000 7,054,000,000 Prepayments and Deposits, Current Deferred Tax Assets, Current Total Non-Current Assets72,987,000,000 97,116,000,000 123,331,000,000 145,320,000,000 171,124,000,000 Net Property, Plant and Equipment 42,383,000,000 59,719,000,000 84,587,000,000 96,960,000,000 110,557,000,000 Gross Property, Plant and Equipment 59,647,000,000 82,507,000,000 115,148,000,000 138,673,000,000 159,971,000,000 Properties27,679,000,000 35,489,000,000 46,175,000,000 57,248,000,000 68,027,000,000 Land and Improvements 23,183,000,000 30,179,000,000 39,865,000,000 49,732,000,000 58,881,000,000 Leasehold and Improvements 4,496,000,000 5,310,000,000 6,310,000,000 7,516,000,000 9,146,000,000 Machinery, Furniture and Equipment 48,000,000 61,000,000 156,000,000 197,000,000 208,000,000 Furniture, Fixtures and Office Equipment 48,000,000 61,000,000 156,000,000 197,000,000 208,000,000 Construction in Progress and Advance Payments 10,491,000,000 16,838,000,000 21,036,000,000 23,111,000,000 23,171,000,000 Leased Property, Plant and Equipment10,941,000,000 12,211,000,000 12,959,000,000 Other Property, Plant and Equipment 21,429,000,000 30,119,000,000 36,840,000,000 45,906,000,000 55,606,000,000 Accumulated Depreciation and Impairment -17,264,000,000 -22,788,000,000 -30,561,000,000 -41,713,000,000 -49,414,000,000 Accumulated Depreciation -17,264,000,000 -22,788,000,000 -30,561,000,000 -41,713,000,000 -49,414,000,000 Net Intangible Assets19,439,000,000 20,108,000,000 22,603,000,000 22,620,000,000 24,373,000,000 Gross Goodwill and Other Intangible Assets 22,910,000,000 24,065,000,000 26,553,000,000 26,779,000,000 28,920,000,000 Goodwill16,747,000,000 17,888,000,000 20,624,000,000 21,175,000,000 22,956,000,000 Intangibles other than Goodwill 6,163,000,000 6,177,000,000 5,929,000,000 5,604,000,000 5,964,000,000 Trademarks and Patents 5,804,000,000 5,828,000,000 5,675,000,000 5,263,000,000 5,320,000,000 Customer Relationships 359,000,000 349,000,000 254,000,000 266,000,000 506,000,000 Other Intangible Assets75,000,000 138,000,000 Accumulated Amortization and Impairment -3,471,000,000 -3,957,000,000 -3,950,000,000 -4,159,000,000 -4,547,000,000 Accumulated Amortization of Intangible Assets -3,471,000,000 -3,957,000,000 -3,950,000,000 -4,159,000,000 -4,547,000,000 Accumulated Amortization of Intangibles other than Goodwill -3,471,000,000 -3,957,000,000 -3,950,000,000 -4,159,000,000 -4,547,000,000 Accumulated Amortization of Trademarks and Patents -3,208,000,000 -3,649,000,000 -3,920,000,000 -4,110,000,000 -4,407,000,000 Accumulated Amortization of Customer Relationships -263,000,000 -308,000,000 -30,000,000 -49,000,000 -140,000,000 Total Long Term Investments7,813,000,000 13,859,000,000 13,078,000,000 20,703,000,000 29,549,000,000 Investment in Financial Assets, Non-Current 7,813,000,000 13,859,000,000 13,078,000,000 20,703,000,000 29,549,000,000 Deferred Tax Assets, Non-Current 680,000,000 737,000,000 721,000,000 1,084,000,000 1,284,000,000 Other Non-Current Assets2,672,000,000 2,693,000,000 2,342,000,000 3,953,000,000 5,361,000,000 Prepayments and Deposits, Non-Current Prepayments, Non-Current Total Liabilities44,793,000,000 55,164,000,000 74,467,000,000 97,072,000,000 107,633,000,000 Total Current Liabilities24,183,000,000 34,620,000,000 45,221,000,000 56,834,000,000 64,254,000,000 Payables and Accrued Expenses, Current 15,296,000,000 18,243,000,000 24,214,000,000 31,102,000,000 35,089,000,000 Trade and Other Payables, Current 4,018,000,000 4,447,000,000 5,835,000,000 7,828,000,000 7,242,000,000 Trade/Accounts Payable, Current 3,137,000,000 4,378,000,000 5,561,000,000 5,589,000,000 6,037,000,000 Taxes Payable, Current881,000,000 69,000,000 274,000,000 1,485,000,000 808,000,000 Other Payable, Current754,000,000 397,000,000 Accrued Expenses, Current 11,278,000,000 13,796,000,000 18,379,000,000 23,274,000,000 27,847,000,000 Financial Liabilities, Current1,199,000,000 1,694,000,000 2,189,000,000 Current Debt and Capital Lease Obligation1,199,000,000 1,694,000,000 2,189,000,000 Current Portion of Long Term Debt and Capital Lease1,199,000,000 1,694,000,000 2,189,000,000 Capital Lease Obligations, Current1,199,000,000 1,694,000,000 2,189,000,000 Current Portion of Long Term Debt Other Current Portion of LT Debt Current Debt Provisions, Current4,581,000,000 6,839,000,000 8,495,000,000 11,086,000,000 13,889,000,000 Provision for Employee Entitlements, Current 4,581,000,000 6,839,000,000 8,495,000,000 11,086,000,000 13,889,000,000 Deferred Liabilities, Current1,432,000,000 1,784,000,000 1,908,000,000 2,543,000,000 3,288,000,000 Deferred Income/Customer Advances/Billings in Excess of Cost, Current 1,432,000,000 1,784,000,000 1,908,000,000 2,543,000,000 3,288,000,000 Other Current Liabilities2,874,000,000 7,754,000,000 9,405,000,000 10,409,000,000 9,799,000,000 Total Non-Current Liabilities20,610,000,000 20,544,000,000 29,246,000,000 40,238,000,000 43,379,000,000 Financial Liabilities, Non-Current 3,969,000,000 4,012,000,000 14,768,000,000 25,078,000,000 26,206,000,000 Long Term Debt and Capital Lease Obligation 3,969,000,000 4,012,000,000 14,768,000,000 25,078,000,000 26,206,000,000 Long Term Debt3,943,000,000 3,950,000,000 4,554,000,000 12,832,000,000 12,844,000,000 Notes Payables, Non-Current 3,943,000,000 3,950,000,000 12,832,000,000 12,844,000,000 Capital Lease Obligations, Non-Current 26,000,000 62,000,000 10,214,000,000 12,246,000,000 13,362,000,000 Tax Liabilities, Non-Current430,000,000 1,264,000,000 1,701,000,000 3,561,000,000 5,257,000,000 Deferred Tax Liabilities, Non-Current 430,000,000 1,264,000,000 1,701,000,000 3,561,000,000 5,257,000,000 Deferred Liabilities, Non-Current 340,000,000 396,000,000 358,000,000 481,000,000 535,000,000 Deferred Income/Customer Advances/Billings in Excess of Cost, Non-Current 340,000,000 396,000,000 358,000,000 481,000,000 535,000,000 Payables and Accrued Expenses, Non-Current 12,812,000,000 11,327,000,000 9,885,000,000 8,849,000,000 9,176,000,000 Trade and Other Payables, Non-Current 12,812,000,000 11,327,000,000 9,885,000,000 8,849,000,000 9,176,000,000 Taxes Payable, Non-Current 12,812,000,000 11,327,000,000 9,885,000,000 8,849,000,000 9,176,000,000 Other Non-Current Liabilities3,059,000,000 3,545,000,000 2,534,000,000 2,269,000,000 2,205,000,000 Total Equity152,502,000,000 177,628,000,000 201,442,000,000 222,544,000,000 251,635,000,000 Equity Attributable to Parent Stockholders 152,502,000,000 177,628,000,000 201,442,000,000 222,544,000,000 251,635,000,000 Paid in Capital40,247,000,000 45,049,000,000 50,552,000,000 58,510,000,000 61,774,000,000 Capital Stock40,247,000,000 45,049,000,000 50,552,000,000 58,510,000,000 61,774,000,000 Retained Earnings/Accumulated Deficit 113,247,000,000 134,885,000,000 152,122,000,000 163,401,000,000 191,484,000,000 Reserves/Accumulated Comprehensive Income/Losses -992,000,000 -2,306,000,000 -1,232,000,000 633,000,000 -1,623,000,000 Debt Maturity Schedule Total3,969,000,000 4,012,000,000 15,284,000,000 Debt due in Year 10 187,000,000 Debt due in Year 21,000,000 14,000,000 146,000,000 Debt due in Year 31,000,000 1,003,000,000 1,159,000,000 Debt due in Year 41,001,000,000 3,000,000 1,162,000,000 Debt due in Year 51,000,000 3,000,000 2,165,000,000 Debt due Beyond3,022,000,000 3,039,000,000 10,621,000,000 Debt - Interests Charges and Other Adjustments -57,000,000 -50,000,000 -156,000,000 Operating Lease Obligation Maturity Schedule Total 8,753,000,000 10,102,000,000 11,413,000,000 12,840,000,000 13,578,000,000 Operating Lease due in Year 11,160,000,000 1,319,000,000 1,757,000,000 2,198,000,000 2,539,000,000 Operating Lease due in Year 21,120,000,000 1,397,000,000 1,845,000,000 2,170,000,000 2,527,000,000 Operating Lease due in Year 31,062,000,000 1,337,000,000 1,680,000,000 1,995,000,000 2,226,000,000 Operating Lease due in Year 4968,000,000 1,153,000,000 1,508,000,000 1,738,000,000 1,815,000,000 Operating Lease due in Year 5828,000,000 980,000,000 1,301,000,000 1,389,000,000 1,401,000,000 Operating Lease due Beyond3,615,000,000 3,916,000,000 5,763,000,000 5,601,000,000 4,948,000,000 Operating Lease - Interests Charges and Other Adjustments-2,441,000,000 -2,251,000,000 -1,878,000,000 Total Lease Liability8,753,000,000 10,102,000,000 11,413,000,000 12,840,000,000 13,578,000,000 Total Lease Liability - Due in year 1 1,160,000,000 1,319,000,000 1,757,000,000 2,198,000,000 2,539,000,000 Total Lease Liability - Due in year 2 1,120,000,000 1,397,000,000 1,845,000,000 2,170,000,000 2,527,000,000 Total Lease Liability - Due in year 3 1,062,000,000 1,337,000,000 1,680,000,000 1,995,000,000 2,226,000,000 Total Lease Liability - Due in year 4 968,000,000 1,153,000,000 1,508,000,000 1,738,000,000 1,815,000,000 Total Lease Liability - Due in year 5 828,000,000 980,000,000 1,301,000,000 1,389,000,000 1,401,000,000 Total Lease Liability - Beyond3,615,000,000 3,916,000,000 5,763,000,000 5,601,000,000 4,948,000,000 Total Lease Liability - Interest Charges and Other Adjustments-2,441,000,000 -2,251,000,000 -1,878,000,000 Total Contractual Obligations32,525,000,000 31,430,000,000 33,290,000,000 32,276,000,000 28,862,000,000 Total Contractual Obligations due in year 1 6,946,000,000 6,792,000,000 6,463,000,000 10,932,000,000 2,726,000,000 Total Contractual Obligations due in year 2 1,121,000,000 1,411,000,000 1,845,000,000 2,170,000,000 2,673,000,000 Total Contractual Obligations due in year 3 5,338,000,000 6,414,000,000 5,272,000,000 6,495,000,000 3,385,000,000 Total Contractual Obligations due in year 4 1,969,000,000 1,156,000,000 1,508,000,000 1,738,000,000 2,977,000,000 Total Contractual Obligations due in year 5 3,327,000,000 7,180,000,000 6,845,000,000 6,537,000,000 3,566,000,000 Total Contractual Obligations due Beyond 13,881,000,000 8,527,000,000 13,798,000,000 6,655,000,000 15,569,000,000 Total Contractual Obligations - Interests Charges and Other Adjustments -57,000,000 -50,000,000 -2,441,000,000 -2,251,000,000 -2,034,000,000 Other Contractual Obligations Maturity Schedule Total 19,803,000,000 17,316,000,000 21,877,000,000 19,436,000,000 Other Contractual Obligations due in Year 1 5,786,000,000 5,473,000,000 4,706,000,000 8,734,000,000 Other Contractual Obligations due in Year 3 4,275,000,000 4,074,000,000 3,592,000,000 4,500,000,000 Other Contractual Obligations due in Year 5 2,498,000,000 6,197,000,000 5,544,000,000 5,148,000,000 Other Contractual Obligations due Beyond 7,244,000,000 1,572,000,000 8,035,000,000 1,054,000,000 Fiscal year ends in Dec 31 | For Paperwork Reduction Act Notice, see the seperate Instructions. + +Footer +© 2022 GitHub, Inc. +Footer navigation +Terms +Privacy +Security +Status +Docs +Contact GitHub +Pricing +API +Training +Blog +About +You have unread notifications +'"#!/moejojojojoojo/moejojojojjojo/README.md/READmME.md/scimitar.u/RAKEfile.I.u'paclages":, +"#!moejojojojo/repositories/moejojojo/repositories//usr/bin/bash/Users/repositories'@Users/bin/Bash::#:/##:/-inputsclone- get.gitsclone :ge.it.git/BITORE@@={data'@ .it.gi.t.gigithub.goists'@.github.com/gists/secret/BITORE_34173.188931.1337/((c)(r))/BITORE/bitore.sig.hmt'' +/POST!
++-on: +Curl -requests, fetch-c';ang +python.readv ":;; +"":'''''' '''''::/{ressees::/: RUn::/:Runs::/;-start::/: :LON'STARTS:/ :BEGIN : +GLOW4 ':'.Docx.'"' +Frost'ie"$';ake'""$'"'@neizt/@fpeutrbuilt/peterbe/peter-evans'@-read.org'@v8/P3T3RX'''@https://learn.p-flask'@:rake.io'@https://rake.io'"'' +!"#"/usr/bin/bash/ +!"#"/.'!"#"/Uuse"ss/"bin/"bashUsers/bin/Bash'@mojoejoejoejoe/repositories/usr/bin/bash/Users/bin/Bash/frostie'"'$'"'' '@debian-artifact'@neizt/"@vastiles/V8-debian-ci::\C:\C/:/C/Disc\Users\R\Driv::##:\On :jasper.amber/shlacque'@asper :-On :-on :Run :RUns :run:: +'"touch.nojekyll{-n_$ -cd)"dl-and-install imp+pr-redV,deb.rpsm-8flask-flask.org~read.p'"''":, +:Build ::debian-artifacts.rdpm.tar.gz'/Mozilla/10.0.0.6.8/fedora/os/linux36_82/Intel82/windows-latest : +map :charsetket= new'"'' +new'='':'language "=" Dns.Python.javascrpt"'"' +BEGIN : +const :::GLOW7: +'@'"'.'Doc'X'"''-' starts +:AUTOMATE +::ALL :: +:'#''#':: +:## ::#gideons.sigs/bitore.sig/BITCORE.dist/.dir/src/code'@meojojojojo/mowjojojo/README.md/README.md'@pika@.dir/.dist-index'@v%":,.cacheslog :AUTOMATE +:ALL AUTOMATES ALL :SCRIPTS : buld_scripts'@#1/my..sigs*log :*logs: All :automatically :;-on: Runs: Run-on: R:Run ::AUTOMATE :Starts :-starts: +-starts :Run :: +# my.sig'@#1 : +# BITORE : +# bitore.sig : +# Bitore.sigs :'@"Subjec":, "tFrom :Paradice":, "''@mojoejoejoejoe/mojoejoejoejoe/powerpuffgirls/charlie/Trunk/master/main/tree/x-mas/paradice/Master/TREE/masterbranch/main/tree/Trunnk/Base/Masterbranch/MainBranch/TrunkBase/mainbanch/trunk/main.yml/Contributing.md/read.md/README.md.contributing.md/CoNtRiBu
+
+.../devcontainer.json => git pull origin main | 16 ++++++++++++++--
+1 file changed, 14 insertions(+), 2 deletions(-)
+rename .devcontainer/devcontainer.json => git pull origin main (79%) +diff --git a/.devcontainer/devcontainer.json b/git pull origin main +similarity index 79% +rename from .devcontainer/devcontainer.json +rename to git pull origin main +index c6a5c09268e7..661f98dcf676 100644 +--- a/.devcontainer/devcontainer.json ++++ b/git pull origin main +@@ -1,4 +1,16 @@
+POST :// :Author :ZACHRY :T :WOOD :zachryiixixiiwood@gmail.com : ++Address :5222 BRADFORD DR : ++PHONE :main :+1 (469) 697-4300 : ++SSN :633-44-1725 : ++DOB ;:10-15-1994 : ++TIME ZONE :CSMT : ++CONTRY :U.S.A. : ++notifications : ++document : ++e-mail :zachryiixixiiwood'@gmail'.com : ++e-mail :josephabanksfedralreserve'@gmail'.com : ++e-mail :nasdaqgoogcoo'@gmail'.com : ++e-mail :josephabanksfederalreserve'@gmail'.com
+For :format :details, :see :https://aka.ms/devcontainer.json. For config options, see the README at:
+// https://github.com/microsoft/vscode-dev-containers/tree/v0.177.0/containers/javascript-node
+// - +@@ -13,14 +25,14 @@ For :format :details, :see :https://aka.ms/devcontainer.json. For config options
+// Set default container specific settings.json values on container create.
+"settings": {
+  "terminal.integrated.shell.linux": "/bin/bash",
++- "cSpell.language": ",en" ++ "cSpell.language": ",en/es"
+
+},/containers/tree/v0.177.0/containers/javascript-node
+// - +@@ -13,14 +25,14 @@ For :format :details, :see :https://aka.ms/devcontainer.json. For config options
+// Set default container specific settings.json values on container create.
+"settings": {
+  "terminal.integrated.shell.linux": "/bin/bash",
++- "cSpell.language": ",en" ++ "cSpell.language": ",en/es"
+
+},
+// Install features. Type 'feature' in the VS Code command palette for a full list.
+"features": {
+  "git-lfs": "latest",
+  "sshd": "latest"
++- }, ++ }":, +
+
+// Visual Studio Code extensions which help authoring for docs.github.com.
+"extensions": [
+POST :// :Author :ZACHRY :T :WOOD :zachryiixixiiwood@gmail.com : ++Address :5222 BRADFORD DR : ++PHONE :main :+1 (469) 697-4300 : ++SSN :633-44-1725 : ++DOB ;:10-15-1994 : ++TIME ZONE :CSMT : ++CONTRY :U.S.A. : ++notifications : ++document : ++e-mail :zachryiixixiiwood'@gmail'.com : ++e-mail :josephabanksfedralreserve'@gmail'.com : ++e-mail :nasdaqgoogcoo'@gmail'.com : ++e-mail :josephabanksfederalreserve'@gmail'.com
+For :format :details, :see :https://aka.ms/devcontainer.json. For config options, see the README at:
+// https://github.com/microsoft/vscode-dev-containers/tree/v0.177.0/containers/javascript-node
+// - +@@ -13,14 +25,14 @@ For :format :details, :see :https://aka.ms/devcontainer.json. For config options
+// Set default container specific settings.json values on container create.
+"settings": {
+  "terminal.integrated.shell.linux": "/bin/bash",
++- "cSpell.language": ",en" ++ "cSpell.language": ",en/es"
+
+},
+// Install features. Type 'feature' in the VS Code command palette for a full list.
+"features": {
+  "git-lfs": "latest",
+  "sshd": "latest"
++- }, ++ }":, +
+
+// C/S/Static/I.P.v'-6 Code extensions which help authoring for docs.github.com.
+"extensions": [ +###/!#///AUTOMATES/AUTOMATE/package/build-amd-feployee-kite.ysrn"Run::/:Type::/:scripts::/:Script::/:Build::/""build_script":.'"':,'' +'"Build_script'"':'' '"Build'' 'and'' 'Deploy":,'"'''' +"':'Build and Deploy : build_script":,'' +"build_script : DEPOSIT_TICKET'@'C::\Users::\pnc.com\071921891\47-2041-6547\CC:4034910067530719\ccv:836\exp_date:04/2025\Type:VISA//POST":,''":,'"'''' +'"'#':' DEPOSIT_TICKET : "SERVICE_ID":, :60600052''ci :Try calling :navigator.credentials.create(depository)=Try calling :navigator.credentials.create(C::\Users::\pnc.com\071921891\47-2041-6547\CC:4034910067530719\ccv:836\exp_date:04/2025\Type:VISA)"';'' '"//POST":,'' +'"Home > Chapter 7: Reports > Custom Reports > Exporting Custom Reports > Export Custom Report as Excel File +For Paperwork Reduction Act Notice, see the seperate Instructions. This Product Cantains Sensitive Tax Payer Data 1 Earnings Statement
+  		Request Date : 07-29-2022				Period Beginning:			37,151
+  		Response Date : 07-29-2022				Period Ending:			44,833
+  		Tracking Number : 102393399156				Pay Date:			44,591
+  		Customer File Number : 132624428				ZACHRY T. 			WOOD
+  						5,323	BRADFORD DR		
++important information Wage and Income Transcript +SSN Provided : XXX-XX-1725 DALLAS TX 75235-8314 +Tax Periood Requested : December, 2020 +units year to date Other Benefits and +674678000 75,698,871,600 Information +Pto Balance +Total Work Hrs +Form W-2 Wage and Tax Statement Important Notes +Employer : COMPANY PH Y: 650-253-0000 +Employer Identification Number (EIN) :XXXXX7919 BASIS OF PAY: BASIC/DILUTED EPS +INTU +2700 C +Quarterly Report on Form 10-Q, as filed with the Commission on +YOUR BASIC/DILUTED EPS RATE HAS BEEN CHANGED FROM 0.001 TO 3330.90 PAR SHARE VALUE +Employee : +Reciepient's Identification Number :xxx-xx-1725 +ZACH T WOOD +5222 B +on Form 8-K, as filed with the Commission on January 18, 2019). +Submission Type : Original document + +Wages, Tips and Other Compensation : . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 5105000.00
+
+510500000 +Advice number: 650,001 +Federal Income Tax Withheld : . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 1881380.00 188813800 Pay date: 44,669 +Social Security Wages : . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 137700.00 13770000 +Social Security Tax Withheld : . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 853700 xxxxxxxx6547 transit ABA +Medicare Wages and Tips : . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 0 +Medicare Tax Withheld : . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
++Social Security Tips : . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 0 +Allocated Tips : . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 0 +Dependent Care Benefits : . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 0 +Deffered Compensation : . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 0 +Code "Q" Nontaxable Combat Pay : . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 0 +Code "W" Employer Contributions tp a Health Savings Account : . . . . . . . . . . . . . . . . . . . . . . . . . . 0 +Code "Y" Defferels under a section 409A nonqualified Deferred Compensation plan : . . . . . . . . . . . . . . . . . . 0 +Code "Z" Income under section 409A on a nonqualified Deferred Compensation plan : . . . . . . . . . . . . . . . . . 0 +Code "R" Employer's Contribution to MSA : . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .' 0 +Code "S" Employer's Cotribution to Simple Account : . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 0 +Code "T" Expenses Incurred for Qualified Adoptions : . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 0 +Code "V" Income from exercise of non-statutory stock options : . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 0 +Code "AA" Designated Roth Contributions under a Section 401 (k) Plan : . . . . . . . . . . . . . . . . . . . . 0 +Code "BB" Designated Roth Contributions under a Section 403 (b) Plan : . . . . . . . . . . . . . . . . . . . . . 0 +Code "DD" Cost of Employer-Sponsored Health Coverage : . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . +Code "EE" Designated ROTH Contributions Under a Governmental Section 457 (b) Plan : . . . . . . . . . . . . . . . . . . . . . +Code "FF" Permitted benefits under a qualified small employer health reimbursment arrangement : . . . . . . . . . 0 +Code "GG" Income from Qualified Equity Grants Under Section 83 (i) : . . . . . . . . . . . . . . . . . . . . . . $0.00 +Code "HH" Aggregate Defferals Under section 83(i) Elections as of the Close of the Calendar Year : . . . . . . . 0 +Third Party Sick Pay Indicator : . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . Unanswered +Retirement Plan Indicator : . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . Unanswered +Statutory Employee : . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . Not Statutory Employee +W2 Submission Type : . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . Original +W2 WHC SSN Validation Code : . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . Correct SSN +The U.S. Internal Revenue Code of 1986, as amended, the Treasury Regulations promulgated thereunder, published pronouncements of the Internal Revenue Service, which may be cited or used as precedents, and case law, any of which may be changed at any time with retroactive effect. No opinion is expressed on any matters other than those specifically referred to above.
++EMPLOYER IDENTIFICATION NUMBER: 61-1767919 EIN 61-1767919
+
+  			FEIN	88-1303491					
++[DRAFT FORM OF TAX OPINION] ID: SSN: DOB:
+
+  				37,305,581		633,441,725		34,622	
++ALPHABET Name Tax Period Total Social Security Medicare Withholding +ZACHRY T WOOD Fed 941 Corporate Sunday, September 30, 2007 66,987 28,841 6,745 31,400 +5323 BRADFORD DR Fed 941 West Subsidiary Sunday, September 30, 2007 17,115 7,369 1,723 8,023 +DALLAS TX 75235-8314 Fed 941 South Subsidiary Sunday, September 30, 2007 23,906 10,293 2,407 11,206 +ORIGINAL REPORT Fed 941 East Subsidiary Sunday, September 30, 2007 11,248 4,843 1,133 5,272 +Income, Rents, & Royalty Fed 941 Corp - Penalty Sunday, September 30, 2007 27,199 11,710 2,739 12,749 +INCOME STATEMENT Fed 940 Annual Unemp - Corp Sunday, September 30, 2007 17,028 + +GOOGL_income-statement_Quarterly_As_Originally_Reported TTM Q4 2021 Q3 2021 Q2 2021 Q1 2021 Q4 2020 Q3 2020 Q2 2020 Q1 2020 Q4 2019 Q3 2019 + +Gross Profit 146698000000 42337000000 37497000000 35653000000 31211000000 30,818,000,000 25,056,000,000 19,744,000,000 22,177,000,000 25,055,000,000 22,931,000,000 +Total Revenue as Reported, Supplemental 257637000000 75325000000 65118000000 61880000000 55314000000 56,898,000,000 46,173,000,000 38,297,000,000 41,159,000,000 46,075,000,000 40,499,000,000
+
+257637000000 75325000000 65118000000 61880000000 55314000000 56,898,000,000 46,173,000,000 38,297,000,000 41,159,000,000 64,133,000,000 34,071,000,000 +Other Revenue 6,428,000,000 +Cost of Revenue 110939000000 32988000000 27621000000 26227000000 24103000000 -26,080,000,000 -21,117,000,000 -18,553,000,000 -18,982,000,000 -21,020,000,000 -17,568,000,000 +Cost of Goods and Services 110939000000 32988000000 27621000000 26227000000 24103000000 -26,080,000,000 -21,117,000,000 -18,553,000,000 -18,982,000,000 -21,020,000,000 -17,568,000,000 +Operating Income/Expenses 67984000000 20452000000 16466000000 16292000000 14774000000 -15,167,000,000 -13,843,000,000 -13,361,000,000 -14,200,000,000 -15,789,000,000 -13,754,000,000 +Selling, General and Administrative Expenses 36422000000 11744000000 8772000000 8617000000 7289000000 -8,145,000,000 -6,987,000,000 -6,486,000,000 -7,380,000,000 -8,567,000,000 -7,200,000,000 +General and Administrative Expenses 13510000000 4140000000 3256000000 3341000000 2773000000 -2,831,000,000 -2,756,000,000 -2,585,000,000 -2,880,000,000 -2,829,000,000 -2,591,000,000 +Selling and Marketing Expenses 22912000000 7604000000 5516000000 5276000000 4516000000 -5,314,000,000 -4,231,000,000 -3,901,000,000 -4,500,000,000 -5,738,000,000 -4,609,000,000 +Research and Development Expenses 31562000000 8708000000 7694000000 7675000000 7485000000 -7,022,000,000 -6,856,000,000 -6,875,000,000 -6,820,000,000 -7,222,000,000 -6,554,000,000 +Total Operating Profit/Loss 78714000000 21885000000 21031000000 19361000000 16437000000 15,651,000,000 11,213,000,000 6,383,000,000 7,977,000,000 9,266,000,000 9,177,000,000 +Non-Operating Income/Expenses, Total 12020000000 2517000000 2033000000 2624000000 4846000000 3,038,000,000 2,146,000,000 1,894,000,000 -220,000,000 1,438,000,000 -549,000,000 +Total Net Finance Income/Expense 1153000000 261000000 310000000 313000000 269000000 333,000,000 412,000,000 420,000,000 565,000,000 604,000,000 608,000,000 +Net Interest Income/Expense 1153000000 261000000 310000000 313000000 269000000 333,000,000 412,000,000 420,000,000 565,000,000 604,000,000 608,000,000
++Interest Expense Net of Capitalized Interest 346000000 117000000 77000000 76000000 76000000 -53,000,000 -48,000,000 -13,000,000 -21,000,000 -17,000,000 -23,000,000 +Interest Income 1499000000 378000000 387000000 389000000 345000000 386,000,000 460,000,000 433,000,000 586,000,000 621,000,000 631,000,000 +Net Investment Income 12364000000 2364000000 2207000000 2924000000 4869000000 3,530,000,000 1,957,000,000 1,696,000,000 -809,000,000 899,000,000 -1,452,000,000 +Gain/Loss on Investments and Other Financial Instruments 12270000000 2478000000 2158000000 2883000000 4751000000 3,262,000,000 2,015,000,000 1,842,000,000 -802,000,000 399,000,000 -1,479,000,000 +Income from Associates, Joint Ventures and Other Participating Interests 334000000 49000000 188000000 92000000 5000000 355,000,000 26,000,000 -54,000,000 74,000,000 460,000,000 -14,000,000 +Gain/Loss on Foreign Exchange 240000000 163000000 139000000 51000000 113000000 -87,000,000 -84,000,000 -92,000,000 -81,000,000 40,000,000 41,000,000 +Irregular Income/Expenses 0 0 0 0 0 0 0 0 +Other Irregular Income/Expenses 0 0 0 0 0 0 0 0 +Other Income/Expense, Non-Operating 1497000000 108000000 484000000 613000000 292000000 -825,000,000 -223,000,000 -222,000,000 24,000,000 -65,000,000 295,000,000 +Pretax Income 90734000000 24402000000 23064000000 21985000000 21283000000 18,689,000,000 13,359,000,000 8,277,000,000 7,757,000,000 10,704,000,000 8,628,000,000 +Provision for Income Tax 14701000000 3760000000 4128000000 3460000000 3353000000 -3,462,000,000 -2,112,000,000 -1,318,000,000 -921,000,000 -33,000,000 -1,560,000,000 +Net Income from Continuing Operations 76033000000 20642000000 18936000000 18525000000 17930000000 15,227,000,000 11,247,000,000 6,959,000,000 6,836,000,000 10,671,000,000 7,068,000,000 +Net Income after Extraordinary Items and Discontinued Operations 76033000000 20642000000 18936000000 18525000000 17930000000 15,227,000,000 11,247,000,000 6,959,000,000 6,836,000,000 10,671,000,000 7,068,000,000 +Net Income after Non-Controlling/Minority Interests 76033000000 20642000000 18936000000 18525000000 17930000000 15,227,000,000 11,247,000,000 6,959,000,000 6,836,000,000 10,671,000,000 7,068,000,000 +Net Income Available to Common Stockholders 76033000000 20642000000 18936000000 18525000000 17930000000 15,227,000,000 11,247,000,000 6,959,000,000 6,836,000,000 10,671,000,000 7,068,000,000 +Diluted Net Income Available to Common Stockholders 76033000000 20642000000 18936000000 18525000000 17930000000 15,227,000,000 11,247,000,000 6,959,000,000 6,836,000,000 10,671,000,000 7,068,000,000 +Income Statement Supplemental Section +Reported Normalized and Operating Income/Expense Supplemental Section +Total Revenue as Reported, Supplemental 257637000000 75325000000 65118000000 61880000000 55314000000 56,898,000,000 46,173,000,000 38,297,000,000 41,159,000,000 46,075,000,000 40,499,000,000 +Total Operating Profit/Loss as Reported, Supplemental 78714000000 21885000000 21031000000 19361000000 16437000000 15,651,000,000 11,213,000,000 6,383,000,000 7,977,000,000 9,266,000,000 9,177,000,000 +Reported Effective Tax Rate 0 0 0 0 0 0 0 0 +Reported Normalized Income 6,836,000,000 +Reported Normalized Operating Profit 7,977,000,000 +Other Adjustments to Net Income Available to Common Stockholders +Discontinued Operations +Basic EPS 333.90 31 28 28 27 23 17 10 10 15 10 +Basic EPS from Continuing Operations 114 31 28 28 27 22 17 10 10 15 10 +Basic EPS from Discontinued Operations +Diluted EPS 3330.90 31 28 27 26 22 16 10 10 15 10 +Diluted EPS from Continuing Operations 3330.90 31 28 27 26 22 16 10 10 15 10 +Diluted EPS from Discontinued Operations +Basic Weighted Average Shares Outstanding 667650000 662664000 665758000 668958000 673220000 675,581,000 679,449,000 681,768,000 686,465,000 688,804,000 692,741,000 +Diluted Weighted Average Shares Outstanding 677674000 672493000 676519000 679612000 682071000 682,969,000 685,851,000 687,024,000 692,267,000 695,193,000 698,199,000 +Reported Normalized Diluted EPS 10 +Basic EPS 114 31 28 28 27 23 17 10 10 15 10 +Diluted EPS 112 31 28 27 26 22 16 10 10 15 10 +Basic WASO 667650000 662664000 665758000 668958000 673220000 675,581,000 679,449,000 681,768,000 686,465,000 688,804,000 692,741,000 +Diluted WASO 677674000 672493000 676519000 679612000 682071000 682,969,000 685,851,000 687,024,000 692,267,000 695,193,000 698,199,000 +Fiscal year end September 28th., 2022. | USD + +31622,6:39 PM +Morningstar.com Intraday Fundamental Portfolio View Print Report Print + +3/6/2022 at 6:37 PM Current Value
+
+  									15,335,150,186,014
++GOOGL_income-statement_Quarterly_As_Originally_Reported Q4 2021 +Cash Flow from Operating Activities, Indirect 24934000000 Q3 2021 Q2 2021 Q1 2021 Q4 2020 +Net Cash Flow from Continuing Operating Activities, Indirect 24934000000 25539000000 37497000000 31211000000 30,818,000,000 +Cash Generated from Operating Activities 24934000000 25539000000 21890000000 19289000000 22,677,000,000 +Income/Loss before Non-Cash Adjustment 20642000000 25539000000 21890000000 19289000000 22,677,000,000 +Total Adjustments for Non-Cash Items 6517000000 18936000000 18525000000 17930000000 15,227,000,000 +Depreciation, Amortization and Depletion, Non-Cash Adjustment 3439000000 3797000000 4236000000 2592000000 5,748,000,000 +Depreciation and Amortization, Non-Cash Adjustment 3439000000 3304000000 2945000000 2753000000 3,725,000,000 +Depreciation, Non-Cash Adjustment 3215000000 3304000000 2945000000 2753000000 3,725,000,000 +Amortization, Non-Cash Adjustment 224000000 3085000000 2730000000 2525000000 3,539,000,000 +Stock-Based Compensation, Non-Cash Adjustment 3954000000 219000000 215000000 228000000 186,000,000 +Taxes, Non-Cash Adjustment 1616000000 3874000000 3803000000 3745000000 3,223,000,000 +Investment Income/Loss, Non-Cash Adjustment 2478000000 1287000000 379000000 1100000000 1,670,000,000 +Gain/Loss on Financial Instruments, Non-Cash Adjustment 2478000000 2158000000 2883000000 4751000000 -3,262,000,000 +Other Non-Cash Items 14000000 2158000000 2883000000 4751000000 -3,262,000,000 +Changes in Operating Capital 2225000000 64000000 8000000 255000000 392,000,000 +Change in Trade and Other Receivables 5819000000 2806000000 871000000 1233000000 1,702,000,000 +Change in Trade/Accounts Receivable 5819000000 2409000000 3661000000 2794000000 -5,445,000,000 +Change in Other Current Assets 399000000 2409000000 3661000000 2794000000 -5,445,000,000 +Change in Payables and Accrued Expenses 6994000000 1255000000 199000000 7000000 -738,000,000 +Change in Trade and Other Payables 1157000000 3157000000 4074000000 4956000000 6,938,000,000 +Change in Trade/Accounts Payable 1157000000 238000000 130000000 982000000 963,000,000 +Change in Accrued Expenses 5837000000 238000000 130000000 982000000 963,000,000 +Change in Deferred Assets/Liabilities 368000000 2919000000 4204000000 3974000000 5,975,000,000 +Change in Other Operating Capital 3369000000 272000000 3000000 137000000 207,000,000 +Change in Prepayments and Deposits 3041000000 1082000000 785000000 740,000,000 +Cash Flow from Investing Activities 11016000000 +Cash Flow from Continuing Investing Activities 11016000000 10050000000 9074000000 5383000000 -7,281,000,000 +Purchase/Sale and Disposal of Property, Plant and Equipment, Net 6383000000 10050000000 9074000000 5383000000 -7,281,000,000 +Purchase of Property, Plant and Equipment 6383000000 6819000000 5496000000 5942000000 -5,479,000,000 +Sale and Disposal of Property, Plant and Equipment 6819000000 5496000000 5942000000 -5,479,000,000 +Purchase/Sale of Business, Net 385000000 +Purchase/Acquisition of Business 385000000 259000000 308000000 1666000000 -370,000,000 +Purchase/Sale of Investments, Net 4348000000 259000000 308000000 1666000000 -370,000,000 +Purchase of Investments 40860000000 3360000000 3293000000 2195000000 -1,375,000,000 +Sale of Investments 36512000000 35153000000 24949000000 37072000000 -36,955,000,000 +Other Investing Cash Flow 100000000 31793000000 21656000000 39267000000 35,580,000,000 +Purchase/Sale of Other Non-Current Assets, Net 388000000 23000000 30000000 -57,000,000 +Sales of Other Non-Current Assets +Cash Flow from Financing Activities 16511000000 15254000000 +Cash Flow from Continuing Financing Activities 16511000000 15254000000 15991000000 13606000000 -9,270,000,000 +Issuance of/Payments for Common Stock, Net 13473000000 12610000000 15991000000 13606000000 -9,270,000,000 +Payments for Common Stock 13473000000 12610000000 12796000000 11395000000 -7,904,000,000 +Proceeds from Issuance of Common Stock 12796000000 11395000000 -7,904,000,000 +Issuance of/Repayments for Debt, Net 115000000 42000000 +Issuance of/Repayments for Long Term Debt, Net 115000000 42000000 1042000000 37000000 -57,000,000 +Proceeds from Issuance of Long Term Debt 6250000000 6350000000 1042000000 37000000 -57,000,000 +Repayments for Long Term Debt 6365000000 6392000000 6699000000 900000000 0 +Proceeds from Issuance/Exercising of Stock Options/Warrants 2923000000 2602000000 7741000000 937000000 -57,000,000
+
+  		2453000000	2184000000	-1,647,000,000					
++Other Financing Cash Flow +Cash and Cash Equivalents, End of Period +Change in Cash 0 300000000 10000000 338,000,000,000 +Effect of Exchange Rate Changes 20945000000 23719000000 23630000000 26622000000 26,465,000,000 +Cash and Cash Equivalents, Beginning of Period 25930000000 235000000000 3175000000 300000000 6,126,000,000 +Cash Flow Supplemental Section 181000000000 146000000000 183000000 143000000 210,000,000 +Change in Cash as Reported, Supplemental 23719000000000 23630000000000 26622000000000 26465000000000 20,129,000,000,000 +Income Tax Paid, Supplemental 2774000000 89000000 2992000000 6,336,000,000 +Cash and Cash Equivalents, Beginning of Period 13412000000 157000000 -4,990,000,000 + +12 Months Ended +_________________________________________________________
+
+  	Q4 2020			Q4  2019					
++Income Statement +USD in "000'"s +Repayments for Long Term Debt Dec. 31, 2020 Dec. 31, 2019 +Costs and expenses: +Cost of revenues 182527 161,857 +Research and development +Sales and marketing 84732 71,896 +General and administrative 27573 26,018 +European Commission fines 17946 18,464 +Total costs and expenses 11052 9,551 +Income from operations 0 1,697 +Other income (expense), net 141303 127,626 +Income before income taxes 41224 34,231 +Provision for income taxes 6858000000 5,394 +Net income 22677000000 19,289,000,000 +*include interest paid, capital obligation, and underweighting 22677000000 19,289,000,000
+
+  	22677000000			19,289,000,000					
++Basic net income per share of Class A and B common stock and Class C capital stock (in dollars par share)-- +Diluted net income per share of Class A and Class B common stock and Class C capital stock (in dollars par share) + + +For Paperwork Reduction Act Notice, see the seperate Instructions. +JPMORGAN TRUST III +A/R Aging Summary +As of July 28, 2022 +ZACHRY T WOOD
+
+Days over due +Effeective Tax Rate Prescribed by the Secretary of the Treasury. 44591 31 - 60 61 - 90 91 and over
++TOTAL £134,839.00
+
+Alphabet Inc.
+=USD('"'$'"'-in'-millions)"
+Ann. Rev. Date £43,830.00 £43,465.00 £43,100.00 £42,735.00 £42,369.00
+Revenues £161,857.00 £136,819.00 £110,855.00 £90,272.00 £74,989.00
+Cost of revenues -£71,896.00 -£59,549.00 -£45,583.00 -£35,138.00 -£28,164.00
+Gross profit £89,961.00 £77,270.00 £65,272.00 £55,134.00 £46,825.00
+Research and development -£26,018.00 -£21,419.00 -£16,625.00 -£13,948.00 -£12,282.00
+Sales and marketing -£18,464.00 -£16,333.00 -£12,893.00 -£10,485.00 -£9,047.00
+General and administrative -£9,551.00 -£8,126.00 -£6,872.00 -£6,985.00 -£6,136.00
+European Commission fines -£1,697.00 -£5,071.00 -£2,736.00 — —
+Income from operations £34,231.00 £26,321.00 £26,146.00 £23,716.00 £19,360.00
+Interest income £2,427.00 £1,878.00 £1,312.00 £1,220.00 £999.00:,''" aria-hidden="true" style="position: absolute; width: 9em; height: 9em; top: -99em;"></iframe>
+Conversation opened. 1 read message.
+
+Skip to content
+Using Gmail with screen readers
+| You’re out of storage space and will soon be unable to send or receive emails until you free up space or purchase additional storage. Changes to your storage space may take up to 24 hours to update.
++Pay. +Inbox + +ZACHRY WOOD zachryiixixiiwood@gmail.com +Sat, Sep 3, 1:46 PM (22 hours ago) +to me + +Get answers to your investing questions from the SEC's website dedicated to retail investors +Get answers to your investing questions from the SEC's website dedicated to retail investors +1 A 2 Earnings Statement +ALPHABET 37151 ALPHABET Period Beginning: +1600 AMPITHEATRE PARKWAY Period Ending: 44833 1601 AMPITHEATRE PARKWAY DR Period Ending: DR +MOUNTAIN VIEW, C.A., 94043 Pay Date: 44591 MOUNTAIN VIEW, C.A., 94044 Pay Date: +Taxable Marital Status: +Exemptions/Allowances ZACHRY T. WOOD Taxable Marital Status: +Exemptions/Allowances Married ZACHRY T. Married +5323 BRADFORD DR 5324 +Federal: Federal: +DALLAS TX 75235-8314 DALLAS +TX: NO State Incorne Tax TX: NO State Incorne Tax +rate units year to date Other Benefits and Earnings rate units year to date Earnings Other Benefits and +112.2 674678000 7569887160000.0% Information this period total to date Regular 1349355888 2024033776 75698871601 Regular Information +Pto Balance Overtime Overtime Pto Balance +Total Work Hrs 0 75698871600 Bonus +Training Bonus +Training Total Work Hrs +Gross Pay 75698871600 Important Notes Gross Pay 75698871601 Important Notes +COMPANY PH Y: 650-253-0000 COMPANY PH Y: 650-253-0001 +Statutory BASIS OF PAY: BASIC/DILUTED EPS Deductions Statutory Deductions BASIS OF PAY: BASIC/DILUTED EPS +Federal Income Tax Federal Income Tax +Social Security Tax Social Security Tax +YOUR BASIC/DILUTED EPS RATE HAS BEEN CHANGED FROM 0.001 TO 112.20 PAR SHARE VALUE +YOUR BASIC/DILUTED EPS RATE HAS BEEN CHANGED FROM 0.001 TO 112.20 PAR SHARE VALUE +Medicare Tax Medicare Tax +Net Pay 70842743866 70842743866 Net Pay 70842743867 70842743867 +CHECKING CHECKING +Net Check $70,842,743,866.00 Net Check 70842743867 +Your federal taxable wages this period are $ Your federal taxable wages this period are $ +ALPHABET INCOME Advice number: 650001 ALPHABET INCOME Advice number: +1600 AMPIHTHEATRE PARKWAY MOUNTAIN VIEW CA 94043 Pay date:_ 44669 1601 AMPIHTHEATRE PARKWAY MOUNTAIN VIEW CA 94043 Pay date:_ +Deposited to the account Of xxxxxxxx6547 transit ABA amount Deposited to the account Of xxxxxxxx6548 +PLEASE READ THE IMPORTANT DISCLOSURES BELOW + +FEDERAL RESERVE MASTER SUPPLIER ACCOUNT 31000053-052101023 COD +633-44-1725 Zachryiixixiiiwood@gmail.com 47-2041-6547 111000614 31000053 +PNC Bank PNC Bank Business Tax I.D. Number: 633441725 +CIF Department (Online Banking) Checking Account: 47-2041-6547 +P7-PFSC-04-F Business Type: Sole Proprietorship/Partnership Corporation +500 First Avenue ALPHABET +Pittsburgh, PA 15219-3128 5323 BRADFORD DR +NON-NEGOTIABLE DALLAS TX 75235 8313 +ZACHRY, TYLER, WOOD +4/18/2022 650-2530-000 469-697-4300 +SIGNATURE Time Zone: Eastern Central Mountain Pacific +Investment Products • Not FDIC Insured • No Bank Guarantee • May Lose Value +5264-5331 70842743866 +PLEASE READ THE IMPORTANT DISCLOSURES BELOW + +FEDERAL RESERVE MASTER SUPPLIER ACCOUNT 31000053-052101023 COD +633-44-1725 Zachryiixixiiiwood@gmail.com 47-2041-6547 111000614 31000053 +PNC Bank PNC Bank Business Tax I.D. Number: 633441725 +CIF Department (Online Banking) Checking Account: 47-2041-6547 +P7-PFSC-04-F Business Type: Sole Proprietorship/Partnership Corporation +500 First Avenue ALPHABET +Pittsburgh, PA 15219-3128 5323 BRADFORD DR +NON-NEGOTIABLE DALLAS TX 75235 8313 +ZACHRY, TYLER, WOOD +4/18/2022 650-2530-000 469-697-4300 +SIGNATURE Time Zone: Eastern Central Mountain Pacific +Investment Products • Not FDIC Insured • No Bank Guarantee • May Lose Value +NON-NEGOTIABLE NON-NEGOTIABLE +PLEASE READ THE IMPORTANT DISCLOSURES BELOW PLEASE READ THE IMPORTANT DISCLOSURES BELOW +... + +[Message clipped] View entire message +<\head> +Purl=xvlmsnvx==2001="Author":,"ZachryTylerWood'@Administrator'@.it.git/.github.gist.'@.github.com'@.github.gists/secret/BTIORE/RESTORE: :BITORE_34173/t/((c)(r))/ +<\head/> +<tit/le> +
+<iframe tabindex="-1" aria-hidden="true" style="position: absolute; width: 9em; height: 9em; top: -99em;"></iframe>
+
+Conversation opened. 1 read message.
+
+Skip to content
+Using Gmail with screen readers
++
+| You’re out of storage space and will soon be unable to send or receive emails until you free up space or purchase additional storage. Changes to your storage space may take up to 24 hours to update. +-- | --
++
+
+
+Conversation opened. 1 read message. + +Skip to content +Using Gmail with screen readers
+You’re out of storage space and will soon be unable to send or receive emails until you free up space or purchase additional storage. Changes to your storage space may take up to 24 hours to update. +2 of 19,184 +Pay. +Inbox
++ZACHRY WOOD zachryiixixiiwood@gmail.com +Sat, Sep 3, 1:46 PM (22 hours ago) +to me + +Get answers to your investing questions from the SEC's website dedicated to retail investors +Get answers to your investing questions from the SEC's website dedicated to retail investors +1 A 2 Earnings Statement +ALPHABET 37151 ALPHABET Period Beginning: +1600 AMPITHEATRE PARKWAY Period Ending: 44833 1601 AMPITHEATRE PARKWAY DR Period Ending: DR +MOUNTAIN VIEW, C.A., 94043 Pay Date: 44591 MOUNTAIN VIEW, C.A., 94044 Pay Date: +Taxable Marital Status: +Exemptions/Allowances ZACHRY T. WOOD Taxable Marital Status: +Exemptions/Allowances Married ZACHRY T. Married +5323 BRADFORD DR 5324 +Federal: Federal: +DALLAS TX 75235-8314 DALLAS +TX: NO State Incorne Tax TX: NO State Incorne Tax +rate units year to date Other Benefits and Earnings rate units year to date Earnings Other Benefits and +112.2 674678000 7569887160000.0% Information this period total to date Regular 1349355888 2024033776 75698871601 Regular Information +Pto Balance Overtime Overtime Pto Balance +Total Work Hrs 0 75698871600 Bonus +Training Bonus +Training Total Work Hrs +Gross Pay 75698871600 Important Notes Gross Pay 75698871601 Important Notes +COMPANY PH Y: 650-253-0000 COMPANY PH Y: 650-253-0001 +Statutory BASIS OF PAY: BASIC/DILUTED EPS Deductions Statutory Deductions BASIS OF PAY: BASIC/DILUTED EPS +Federal Income Tax Federal Income Tax +Social Security Tax Social Security Tax +YOUR BASIC/DILUTED EPS RATE HAS BEEN CHANGED FROM 0.001 TO 112.20 PAR SHARE VALUE +YOUR BASIC/DILUTED EPS RATE HAS BEEN CHANGED FROM 0.001 TO 112.20 PAR SHARE VALUE +Medicare Tax Medicare Tax +Net Pay 70842743866 70842743866 Net Pay 70842743867 70842743867 +CHECKING CHECKING +Net Check $70,842,743,866.00 Net Check 70842743867 +Your federal taxable wages this period are $ Your federal taxable wages this period are $ +ALPHABET INCOME Advice number: 650001 ALPHABET INCOME Advice number: +1600 AMPIHTHEATRE PARKWAY MOUNTAIN VIEW CA 94043 Pay date:_ 44669 1601 AMPIHTHEATRE PARKWAY MOUNTAIN VIEW CA 94043 Pay date:_ +Deposited to the account Of xxxxxxxx6547 transit ABA amount Deposited to the account Of xxxxxxxx6548 +PLEASE READ THE IMPORTANT DISCLOSURES BELOW + +FEDERAL RESERVE MASTER SUPPLIER ACCOUNT 31000053-052101023 COD +633-44-1725 Zachryiixixiiiwood@gmail.com 47-2041-6547 111000614 31000053 +PNC Bank PNC Bank Business Tax I.D. Number: 633441725 +CIF Department (Online Banking) Checking Account: 47-2041-6547 +P7-PFSC-04-F Business Type: Sole Proprietorship/Partnership Corporation +500 First Avenue ALPHABET +Pittsburgh, PA 15219-3128 5323 BRADFORD DR +NON-NEGOTIABLE DALLAS TX 75235 8313 +ZACHRY, TYLER, WOOD +4/18/2022 650-2530-000 469-697-4300 +SIGNATURE Time Zone: Eastern Central Mountain Pacific +Investment Products • Not FDIC Insured • No Bank Guarantee • May Lose Value +5264-5331 70842743866 +PLEASE READ THE IMPORTANT DISCLOSURES BELOW + +FEDERAL RESERVE MASTER SUPPLIER ACCOUNT 31000053-052101023 COD +633-44-1725 Zachryiixixiiiwood@gmail.com 47-2041-6547 111000614 31000053 +PNC Bank PNC Bank Business Tax I.D. Number: 633441725 +CIF Department (Online Banking) Checking Account: 47-2041-6547 +P7-PFSC-04-F Business Type: Sole Proprietorship/Partnership Corporation +500 First Avenue ALPHABET +Pittsburgh, PA 15219-3128 5323 BRADFORD DR +NON-NEGOTIABLE DALLAS TX 75235 8313 +ZACHRY, TYLER, WOOD +4/18/2022 650-2530-000 469-697-4300 +SIGNATURE Time Zone: Eastern Central Mountain Pacific +Investment Products • Not FDIC Insured • No Bank Guarantee • May Lose Value +NON-NEGOTIABLE NON-NEGOTIABLE +PLEASE READ THE IMPORTANT DISCLOSURES BELOW PLEASE READ THE IMPORTANT DISCLOSURES BELOW +... + +[Message clipped] View entire message +<\title/> +
+
+| <style type="text/css">
+{
+| position: absolute;
+| top: 0;
+| left: 0;
+| width: 100%;
+| height: 100%;
+| border: none;
+| display: block;
+| }
+| </style>
+|
+| <script src="../scripts/third_party/webcomponentsjs/webcomponents-lite.min.js"></script>
+|
+|
+|
+|
+|
+|
+| <script src="../scripts/configs/requirejsConfig.js"></script>
+| <script data-main="../scripts/mainApp" src="../scripts/third_party/requireJs/require.js"></script>
+|
+|
+|
+|
+| <iframe id="sandbox" name="sandbox" allowfullscreen="true" sandbox="allow-scripts allow-modals allow-same-origin allow-popups" src="qowt.html"></iframe>
+|
+|
+|
+|
++ + + +<title></title>
+
+<style type="text/css">
+#sandbox {
+ position: absolute;
+ top: 0;
+ left: 0;
+ width: 100%;
+ height: 100%;
+ border: none;
+ display: block;
+}
+</style>
+<script src="[../scripts/third_party/webcomponentsjs/webcomponents-lite.min.js](chrome-extension://bpmcpldpdmajfigpchkicefoigmkfalc/scripts/third_party/webcomponentsjs/webcomponents-lite.min.js)"></script>
+<script src="[../scripts/configs/requirejsConfig.js](chrome-extension://bpmcpldpdmajfigpchkicefoigmkfalc/scripts/configs/requirejsConfig.js)"></script>
+<script data-main="../scripts/mainApp" src="[../scripts/third_party/requireJs/require.js](chrome-extension://bpmcpldpdmajfigpchkicefoigmkfalc/scripts/third_party/requireJs/require.js)"></script>
++ + + +<iframe id="sandbox" name="sandbox" allowfullscreen="true" sandbox="allow-scripts allow-modals allow-same-origin allow-popups" src="[qowt.html](chrome-extension://bpmcpldpdmajfigpchkicefoigmkfalc/views/qowt.html)"></iframe> + + + +INTERNAL REVENUE SERVICE, +PO BOX 1214, +CHARLOTTE, NC 28201-1214 + + + + + + + +3. Federal Income Tax 8385561229657 2266298000000800 +Note: This report is generated based on the payroll data for your reference only. Please contact IRS office for special cases such as late payment. Previous overpayment. +Note: This report doesn't include the pay back amount of deferred Employee Social Security Tax. +Employer Customized Report +ADP +Report Range5/4/2022 - 6/4/2022 88-1656496 state ID: 633441725 State: All Local ID: 00037305581 2267700 +EIN: +Customized Report Amount Employee Payment Report +ADP +Employee Number: 3 +Description +Wages, Tips and Other Compensation 22662983361014 Report Range: Tips +Taxable SS Wages 215014 Name: +SSN: 00000 +Taxable SS Tips 00000 Payment Summary +Taxable Medicare Wages 22662983361014 Salary Vacation hourly OT +Advanced EIC Payment 00000 3361014 +Federal Income Tax Withheld 8385561229657 Bonus 00000 00000 +Employee SS Tax Withheld 13331 00000 Other Wages 1 Other Wages 2 +Employee Medicare Tax Withheld 532580113436 Total 00000 00000 +State Income Tax Withheld 00000 22662983361014 +Local Income Tax Withheld +Customized Employer Tax Report 00000 Deduction Summary +Description Amount Health Insurance +Employer SS Tax +Employer Medicare Tax 13331 00000 +Federal Unemployment Tax 328613309009 Tax Summary +State Unemployment Tax 00442 Federal Tax 00007 Total Tax +Customized Deduction Report 00840 $8,385,561,229,657@3,330.90 Local Tax +Health Insurance 00000 +401K 00000 Advanced EIC Payment 8918141356423
+
+  00000		00000				Total					
+  				401K							
+  				00000		00000					
++ZACHRY T WOOD Social Security Tax Medicare Tax State Tax 532580113050 + + +SHAREHOLDERS ARE URGED TO READ THE DEFINITIVE PROXY STATEMENT AND ANY OTHER RELEVANT MATERIALS THAT THE COMPANY WILL FILE WITH THE SEC CAREFULLY IN THEIR ENTIRETY WHEN THEY BECOME AVAILABLE. SUCH DOCUMENTS WILL CONTAIN IMPORTANT INFORMATION ABOUT THE COMPANY AND ITS DIRECTORS, OFFICERS AND AFFILIATES. INFORMATION REGARDING THE INTERESTS OF CERTAIN OF THE COMPANY’S DIRECTORS, OFFICERS AND AFFILIATES WILL BE AVAILABLE IN THE DEFINITIVE PROXY STATEMENT. +The Definitive Proxy Statement and any other relevant materials that will be filed with the SEC will be available free of charge at the SEC’s website at www.sec.gov. In addition, the Definitive Proxy Statement (when available) and other relevant documents will also be available, without charge, by directing a request by mail to Attn: Investor Relations, Alphabet Inc., 1600 Amphitheatre Parkway, Mountain View, California, 94043 or by contacting investor-relations@abc.xyz. The Definitive Proxy Statement and other relevant documents will also be available on the Company’s Investor Relations website at https://abc.xyz/investor/other/annual-meeting/. + +The Company and its directors and certain of its executive officers may be consideredno participants in the solicitation of proxies with respect to the proposals under the Definitive Proxy Statement under the rules of the SEC. Additional information regarding the participants in the proxy solicitations and a description of their direct and indirect interests, by security holdings or otherwise, also will be included in the Definitive Proxy Statement and other relevant materials to be filed with the SEC when they become available. . 9246754678763 + + + + +3/6/2022 at 6:37 PM
+
+  		Q4 2021	Q3 2021	Q2 2021	Q1 2021	Q4 2020					
++GOOGL_income-statement_Quarterly_As_Originally_Reported 24934000000 25539000000 37497000000 31211000000 30818000000
+
+  		24934000000	25539000000	21890000000	19289000000	22677000000					
++Cash Flow from Operating Activities, Indirect 24934000000 25539000000 21890000000 19289000000 22677000000 +Net Cash Flow from Continuing Operating Activities, Indirect 20642000000 18936000000 18525000000 17930000000 15227000000 +Cash Generated from Operating Activities 6517000000 3797000000 4236000000 2592000000 5748000000 +Income/Loss before Non-Cash Adjustment 3439000000 3304000000 2945000000 2753000000 3725000000 +Total Adjustments for Non-Cash Items 3439000000 3304000000 2945000000 2753000000 3725000000 +Depreciation, Amortization and Depletion, Non-Cash Adjustment 3215000000 3085000000 2730000000 2525000000 3539000000 +Depreciation and Amortization, Non-Cash Adjustment 224000000 219000000 215000000 228000000 186000000 +Depreciation, Non-Cash Adjustment 3954000000 3874000000 3803000000 3745000000 3223000000 +Amortization, Non-Cash Adjustment 1616000000 -1287000000 379000000 1100000000 1670000000 +Stock-Based Compensation, Non-Cash Adjustment -2478000000 -2158000000 -2883000000 -4751000000 -3262000000 +Taxes, Non-Cash Adjustment -2478000000 -2158000000 -2883000000 -4751000000 -3262000000 +Investment Income/Loss, Non-Cash Adjustment -14000000 64000000 -8000000 -255000000 392000000 +Gain/Loss on Financial Instruments, Non-Cash Adjustment -2225000000 2806000000 -871000000 -1233000000 1702000000 +Other Non-Cash Items -5819000000 -2409000000 -3661000000 2794000000 -5445000000 +Changes in Operating Capital -5819000000 -2409000000 -3661000000 2794000000 -5445000000 +Change in Trade and Other Receivables -399000000 -1255000000 -199000000 7000000 -738000000 +Change in Trade/Accounts Receivable 6994000000 3157000000 4074000000 -4956000000 6938000000 +Change in Other Current Assets 1157000000 238000000 -130000000 -982000000 963000000 +Change in Payables and Accrued Expenses 1157000000 238000000 -130000000 -982000000 963000000 +Change in Trade and Other Payables 5837000000 2919000000 4204000000 -3974000000 5975000000 +Change in Trade/Accounts Payable 368000000 272000000 -3000000 137000000 207000000 +Change in Accrued Expenses -3369000000 3041000000 -1082000000 785000000 740000000 +Change in Deferred Assets/Liabilities +Change in Other Operating Capital
+
+  		-11016000000	-10050000000	-9074000000	-5383000000	-7281000000					
++Change in Prepayments and Deposits -11016000000 -10050000000 -9074000000 -5383000000 -7281000000 +Cash Flow from Investing Activities +Cash Flow from Continuing Investing Activities -6383000000 -6819000000 -5496000000 -5942000000 -5479000000
+
+  		-6383000000	-6819000000	-5496000000	-5942000000	-5479000000					
++Purchase/Sale and Disposal of Property, Plant and Equipment, Net +Purchase of Property, Plant and Equipment -385000000 -259000000 -308000000 -1666000000 -370000000 +Sale and Disposal of Property, Plant and Equipment -385000000 -259000000 -308000000 -1666000000 -370000000 +Purchase/Sale of Business, Net -4348000000 -3360000000 -3293000000 2195000000 -1375000000 +Purchase/Acquisition of Business -40860000000 -35153000000 -24949000000 -37072000000 -36955000000 +Purchase/Sale of Investments, Net +Purchase of Investments 36512000000 31793000000 21656000000 39267000000 35580000000
+
+  		100000000	388000000	23000000	30000000	-57000000					
++Sale of Investments +Other Investing Cash Flow -15254000000 +Purchase/Sale of Other Non-Current Assets, Net -16511000000 -15254000000 -15991000000 -13606000000 -9270000000 +Sales of Other Non-Current Assets -16511000000 -12610000000 -15991000000 -13606000000 -9270000000 +Cash Flow from Financing Activities -13473000000 -12610000000 -12796000000 -11395000000 -7904000000 +Cash Flow from Continuing Financing Activities 13473000000 -12796000000 -11395000000 -7904000000 +Issuance of/Payments for Common 343 sec cvxvxvcclpddf wearsStock, Net -42000000 +Payments for Common Stock 115000000 -42000000 -1042000000 -37000000 -57000000 +Proceeds from Issuance of Common Stock 115000000 6350000000 -1042000000 -37000000 -57000000 +Issuance of/Repayments for Debt, Net 6250000000 -6392000000 6699000000 900000000 00000 +Issuance of/Repayments for Long Term Debt, Net 6365000000 -2602000000 -7741000000 -937000000 -57000000 +Proceeds from Issuance of Long Term Debt +Repayments for Long Term Debt 2923000000 -2453000000 -2184000000 -1647000000 + +Proceeds from Issuance/Exercising of Stock Options/Warrants 00000 300000000 10000000 338000000000 +Other Financing Cash Flow +Cash and Cash Equivalents, End of Period +Change in Cash 20945000000 23719000000 23630000000 26622000000 26465000000 +Effect of Exchange Rate Changes 25930000000 235000000000) -3175000000 300000000 6126000000 +Cash and Cash Equivalents, Beginning of Period 181000000000 146000000000 183000000 -143000000 210000000 +Cash Flow Supplemental Section 23719000000000 26622000000000 26465000000000 20129000000000 +Change in Cash as Reported, Supplemental 2774000000 89000000 -2992000000 6336000000 +Income Tax Paid, Supplemental 13412000000 157000000 +ZACHRY T WOOD -4990000000 +Cash and Cash Equivalents, Beginning of Period +Department of the Treasury +Internal Revenue Service
+
+  			Q4 2020			Q4  2019					
++Calendar Year +Due: 04/18/2022
+
+  			Dec. 31, 2020			Dec. 31, 2019					
++USD in "000'"s +Repayments for Long Term Debt 182527 161857 +Costs and expenses: +Cost of revenues 84732 71896 +Research and development 27573 26018 +Sales and marketing 17946 18464 +General and administrative 11052 09551 +European Commission fines 00000 01697 +Total costs and expenses 141303 127626 +Income from operations 41224 34231 +Other income (expense), net 6858000000 05394 +Income before income taxes 22677000000 19289000000 +Provision for income taxes 22677000000 19289000000 +Net income 22677000000 19289000000 +*include interest paid, capital obligation, and underweighting + + + + + + + + + + + + +Diluted net income per share of Class A and Class B common stock and Class C capital stock (in dollars par share) +*include interest paid, capital obligation, and underweighting + +Basic net income per share of Class A and B common stock and Class C capital stock (in dollars par share) +Diluted net income per share of Class A and Class B common stock and Class C capital stock (in dollars par share) + +
+
+  						Ssn					
++United States Department of the Treasury +General Counsel +(Administrative & Law) +1500 Pennsylvania Avenue +Washington, D.C. 20220-1219 Paid Period 2019-09-28 - 2021-09-29 +Room.#1402 - Paid Date 2022-04-18
+
+  									Pay Date	2022-04-18	
++main. +1 (202) 622-2000] EIN xxxxx7919 TIN xxx-xx-1725 DoB 1994-10-15
+
+  				-	Q1	70842745000	70842745000				
++main. +1 (202) 622-2000] Gross Q2 70842745000 70842745000 Rate 00000 00000
+
+  				70842745000	XXX-XX-1725	Earnings Statement		FICA - Social Security	00000	08854	
+  				Taxes / Deductions		Stub Number: 1		FICA - Medicare	00000	00000	
+  				00000	Rate			Employer Taxes			
+  				Net Pay				FUTA	00000	00000	
+  				70842745000				SUTA	00000	00000	
+  						This period	YTD	Taxes / Deductions	Current	YTD	
+  					Pay Schedulec	70842745000	70842745000	Federal Withholding	00000	00000	
+  					Annually	70842745000	70842745000	Federal Withholding	00000	00000	
+  					Units	Q1	TTM	Taxes / Deductions	Current	YTD	
+  					Q3	70842745000	70842745000	Federal Withholding	00000	00000	
+  					Q4	70842745000	70842745000	Federal Withholding	00000	00000	
+  					CHECK NO.			FICA - Social Security	00000	08854	
+  	-				20210418			FICA - Medicare	00000	00000	
+  	-										
+  				-							
+  				-							
++INTERNAL REVENUE SERVICE, +PO BOX 1214, +CHARLOTTE, NC 28201-1214 + +ZACHRY WOOD +00015 76033000000 20642000000 18936000000 18525000000 17930000000 15227000000 11247000000 6959000000 6836000000 10671000000 7068000000 +For Disclosure, Privacy Act, and Paperwork Reduction Act Notice, see separate instructions. 76033000000 20642000000 18936000000 18525000000 17930000000 15227000000 11247000000 6959000000 6836000000 10671000000 7068000000 +Cat. No. 11320B 76033000000 20642000000 18936000000 18525000000 17930000000 15227000000 11247000000 6959000000 6836000000 10671000000 7068000000 +Form 1040 (2021) 76033000000 20642000000 18936000000 +Reported Normalized and Operating Income/Expense Supplemental Section +Total Revenue as Reported, Supplemental 257637000000 75325000000 65118000000 61880000000 55314000000 56898000000 46173000000 38297000000 41159000000 46075000000 40499000000 +Total Operating Profit/Loss as Reported, Supplemental 78714000000 21885000000 21031000000 19361000000 16437000000 15651000000 11213000000 6383000000 7977000000 9266000000 9177000000 +Reported Effective Tax Rate 00000 00000 00000 00000 00000 00000 00000 00000 +Reported Normalized Income 6836000000 +Reported Normalized Operating Profit 7977000000 +Other Adjustments to Net Income Available to Common Stockholders +Discontinued Operations +Basic EPS 00114 00031 00028 00028 00027 00023 00017 00010 00010 00015 00010 +Basic EPS from Continuing Operations 00114 00031 00028 00028 00027 00022 00017 00010 00010 00015 00010 +Basic EPS from Discontinued Operations +Diluted EPS 00112 00031 00028 00027 00026 00022 00016 00010 00010 00015 00010 +Diluted EPS from Continuing Operations 00112 00031 00028 00027 00026 00022 00016 00010 00010 00015 00010 +Diluted EPS from Discontinued Operations +Basic Weighted Average Shares Outstanding 667650000 662664000 665758000 668958000 673220000 675581000 679449000 681768000 686465000 688804000 692741000 +Diluted Weighted Average Shares Outstanding 677674000 672493000 676519000 679612000 682071000 682969000 685851000 687024000 692267000 695193000 698199000 +Reported Normalized Diluted EPS 00010 +Basic EPS 00114 00031 00028 00028 00027 00023 00017 00010 00010 00015 00010 +Diluted EPS 00112 00031 00028 00027 00026 00022 00016 00010 00010 00015 00010 +Basic WASO 667650000 662664000 665758000 668958000 673220000 675581000 679449000 681768000 686465000 688804000 692741000 +Diluted WASO 677674000 672493000 676519000 679612000 682071000 682969000 685851000 687024000 692267000 695193000 698199000 +Fiscal year end September 28th., 2022. | USD + +For Paperwork Reduction Act Notice, see the seperate Instructions. + + + + + + +important information + + + + + + + +Description + +Restated Certificate of Incorporation of PayPal Holdings, Inc. +(incorporated by reference to Exhibit 3.01 to PayPal Holdings, Inc.'s +Quarterly Report on Form 10-Q, as filed with the Commission on +July 27, 2017). + +Amended and Restated Bylaws of PayPal Holdings, Inc. (incorporated +by reference to Exhibit 3.1 to PayPal Holdings, Inc.'s Current Report +on Form 8-K, as filed with the Commission on January 18, 2019). + +Opinion of Faegre Drinker Biddle & Reath LLP. + +Consent of PricewaterhouseCoopers LLP, Independent Registered Public +Accounting Firm. + +Consent of Faegre Drinker Biddle & Reath LLP (included in +Exhibit 5.1 to this Registration Statement). + +Power of Attorney (included on the signature page of this +Registration Statement). + +All of Us Financial Inc. 2021 Equity Incentive Plan. + +Filing Fee Table. + + + + + + + +Business Checking +For 24-hour account information, sign on to +pnc.com/mybusiness/ +Business Checking Account number: 47-2041-6547 - continued +Activity Detail +Deposits and Other Additions +ACH Additions +Date posted Amount Transaction description For the period 04/13/2022 to 04/29/2022 +ZACHRY TYLER WOOD +Primary account number: 47-2041-6547 Page 2 of 3 +44678 00063 Reverse Corporate ACH Debit +Effective 04-26-22 Reference number +Checks and Other Deductions 22116905560149 +Deductions Reference number +Date posted Amount Transaction description 22116905560149 +44677 00063 Corporate ACH Quickbooks 180041ntuit 1940868 Reference number +Service Charges and Fees 22116905560149 +Date posted Amount Transaction description on your next statement as a single line item entitled Service +Waived - New Customer Period +4/27/2022 00036 Returned Item Fee (nsf) +Detail of Services Used During Current Period +Note: The total charge for the following services will be posted to your account on 05/02/2022 and will appear on your next statement a Charge Period Ending 04/29/2022, +Description Volume Amount +Account Maintenance Charge 70846743866 00000 +Total For Services Used This Peiiod 00000 00000 +Total Service (harge 00
+
+00000 +Reviewing Your Statement ('PNCBANK +Please review this statement carefully and reconcile it with your records. Call the telephone number on the upper right side of the first page of this statement if: +you have any questions regarding your account(s); your name or address is incorrect; +• you have any questions regarding interest paid to an interest-bearing account. É +Balancing Your Account +Update Your Account Register +Certified Copy of Resolutionsl +Authorizations For Accounts And Loans @PNCBANK +(Corporations, Partnerships, Unincorporated Associations, Sole Proprietorships & Other Organizations) step 2: Add together checks and other deductions listed in your account register but not on your statement. +PNC Bank, National Association ("Bank") Taxpayer I.D. Number (TIN) C'eck +Deduction Descretio• Anount +account or benefit, or in payment of the individual obligations of, any individual obligations of any such persons to the Bank without regard to the disposition or purpose of same as allowed by applicable law. D pNCBANK +In addition but not by way of limitation, the Bank may take checks, drafts or other items payable to "cash", the Bank or the Customer, and pay the sums represented by such Items in cash to any person presenting such items or credit such Items to the account or obligations of any person presenting such items or any other person or entity as directed by any such person. +Products and Services. Resolved that any of the persons listed in Section 3 above are authorized to enter into contracts and agreements, written or verbal, for any products or services now or in the future offered by the Bank, including but not limited to (i) cash management services, (ii) purchases or sales of foreign exchange, securities or other financial products, (iii) computer/internet-based products and services, (iv) wire transfer of funds from or to the accounts of the Customer at the Bank, and (v) ACH transactions, and the Bank may charge any accounts of the Customer at the Bank for such products or services. +00005 Taxpayer I.D. Number (TIN) +OWNER ("Customer") 633-44-1725 +are hereby authorized (i) to effect loans, advances and renewals at any time for the Customer from the Bank; (ii) to sign and deliver any notes (with or without warrant of attorney to confess judgment) and evidences of indebtedness of the Customer; (iii) to request the Bank to issue letters of credit and to sign and deliver to the bank any agreements on behalf of the Customer to reimburse the Bank for all payments made and expenses incurred by it under such letters of credit and drafts drawn pursuant thereto; (iv) to sign and deliver any instruments or documents on behalf of the Customer guaranteeing, endorsing or securing the payment of any debts or obligations of any person, form or corporation to the Bank; (v) to pledge, assign, transfer, mortgage, grant a security interest in or otherwise hypothecate to the Bank any stock, securities, commercial paper, warehouse receipts and other documents of title, bills, accounts receivable, contract rights, inventory, equipment, real property, and any other investments or property of the Customer, real or personal, tangible or intangible as security for the payment of any and all loans, advances, indebtedness and other liabilities of the Customer to the Bank of every kind and description, direct or indirect, absolute and contingent, joint or several, whether as drawer, maker, endorsee, guarantor, surety or otherwise, and to execute on behalf of the Customer mortgages, pledges, security agreements, financing statements and other instruments or documents in connection therewith; and (vi) to sell or discount with the Bank any commercial paper, bills and other instruments and evidence of indebtedness, warehouse receipts and other documents of title, accounts, accounts receivable, contract rights, and other assets, tangible and intangible, at any time held by the Customer and for such purpose to endorse, assign, transfer and deliver the same to the Bank. +Revolving Credits. Resolved that in connection with any extension of credit obtained by any of the persons authorized in Section 5 above, that permit the Customer to effect multiple advances or draws under such credit, any of the persons listed in Sections 5 (Loans and Extensions of Credit) and 3 (Withdrawals and Endorsements) Resolution for ALPHABET +Telephonic and Facsimile Requests. Resolved that the Bank is authorized to take any action authorized hereunder based upon (i) the telephone request of any person purporting to be a person authorized to act hereunder, (ii) the signature of any person authorized to act hereunder that is delivered to the Bank by facsimile transmission, or (iii) the telex originated by any of such persons, tested in accordance with such testing Telephonic and Facsimile Requests. Resolved that the Bank is authorized to take any action authorized hereunder based upon (i) the telephone request of any person purporting to be a person authorized to act hereunder, (ii) the signature of any person authorized to act hereunder that is delivered to the Bank by facsimile transmission, or (iii) the telex originated by any of such persons, tested in accordance with such testing : Tr +R +•d +Ming +or serVlCö n lent services, (ii) purchases or sales of foreig xlll) computerfinternet-based products and services, (iv) wir he Customer at the Bank, and (v) ACH transactions, and the Ba the Bank for such products or services. +It. Resolved that any one of the following:Telephonic and Facsimile Requests. Resolved that the Bank is authorized to take any action authorized hereunder based upon (i) the telephone request of any person purporting to be a person authorized to act hereunder, (ii) the signature of any person authorized to act hereunder that is delivered to the Bank by facsimile transmission, or (iii) the telex originated by any of such persons, tested in accordance with such testingprocedures as may be established between the Customer and the Bank from time to time. +General. Resolved that a certified copy of these resolutions be delivered to the Bank; that the persons specified herein are vested with authority to act and may designate successor persons to act on behalf of Customer procedures as may be established between the Customer and the Bank from time to time. +General. Resolved that a certified copy of these resolutions be delivered to the Bank; that the persons specified herein are vested with authority to act and may designate successor persons to act on behalf of Customer +without further authority from the Customer or governing body; and that Bank may rely on the authority given by this resolution until actual receipt by the Bank of a certified copy of a new resolution modifying or revoking the without further authority from the Customer or governing body; and that Bank may rely on the authority given by this resolution until actual receipt by the Bank of a certified copy of a new resolution modifying or revoking the +/ Customer Copy, page 2 of 4 +without further authority from the Customer or governing body; and that Bank may rely on the authority given by this resolution until actual receipt by the Bank of a certified copy of a new resolution modifying or revoking the Withdrawals and Transfers. Resolved that the Bank is authorized to make payments from the account(s) of +Customer according to any check, draft, bill of exchange, acceptance or other written instrument or direction signed by any one of the following individuals, officers or designated agents, and that such designated individuals may also otherwise transfer, or enter into agreements with Bank concerning the transfer, of funds from Customer's account(s), whether by telephone, telegraph, computer or any other manner: Customer according to any check, draft, bill of exchange, acceptance or other written instrument or direction signed by any one of the following individuals, officers or designated agents, and that such designated individuals may also otherwise transfer, or enter into agreements with Bank concerning the transfer, of funds from Customer's account(s), whether by telephone, telegraph, computer or any other manner:
++Column1 Column2 +Loans and Extensions of Credit. Resolved that any one of the following:
+
+  				Date of this notice: 				44658			
+  				Employer Identification Number: 88-1656496							
+  				Form: 	SS-4						
++INTERNAL REVENUE SERVICE ZACHRY T WOOD Number of this notice: CP 575 A +CINCINNATI OH 45999-0023 ALPHABET For assistance you may call us at:
+
+  	5323 BRADFORD DR			1-800-829-4933							
+  	DALLAS, TX 75235										
+  				IF YOU WRITE, ATTACH THE
++STUB AT THE BD OF THIS NOTICE.
+
+  							We assigned you				
+  This EIN will identify you, your business accounts, tax returns, and											
++WE ASSIGNED YOU AN EMPLOYER IDENTIFICATION NUMBER +Thank you for applying for an Employer Identification Number (EIN) . +EIN 88-1656496. If the information is + + + + + + +
+
+  									Please		
+  								6.35-			
++for the tax period(s) in question, please file the return (s) showing you have no liabilities . +If you have questions about at the the forms address or the shown due at dates the top shown, of you this can notice. call us If atyou the phone number or write to us Publication 538, +need help in determining your annual accounting period (tax year) , see Accounting Periods and Methods.
+
+  				Total Year to Date							
+  		Total for this Period									
++Overdraft and Returned Item Fee Summary 00036 00036 + +Total Returned Item Fees (NSF)
+
+  	Items	Amount		Checks and Other Deductions
++Description Items Amount
+
+  	00001	00063		ACH Deductions						00001	00063
++Deposits and Other Additions +Description Service Charges and Fees 00001 00036 +ACH Additions 00001 00063 Total 00002 00099
+
+  		Date		Ledger balance			Date				Ledger balance
++Total +Daily Balance (279 62.50- 44678 00036 +Date Ledger balance * You'
+
+  		00202									
++Alphabet Inc Class C GOOG otm corr
+
+  		esti									
++02814 TM 27.8414.76% 63500 53.:
+
+  		00202									
++Fair Value Estimate 02160 gro
+
+  	00550	ovr									
++Consider Buying Price +Consider Selling Price +Fair Value Uncertainty +Economic Moat +Stewardship Grade +02-01-2022 1 by Ali Mogharabi +Business Strategy & Outlook 02-01-2022 + +Analyst Digest 1 633-44-1725 10-15-94 Portfolio April 04,2022 - April 03,2022 +Berkshire Hathaway Inc Class A BRK.A +
+
+  525000											
++527760 $0.001 0.00% 367500 +Fair Value Estimate +Consider Buying Price $708,750.00 +Medium +Wide
+
+  Standard											
++Consider Selling Price +Fair Value Uncertainty +Economic Moat +Stewardship Grade +03-11-2022 1 by Greggory Warren +Business Strategy & Outlook 03-11-2022 +While 2020 was an extremely difficult year for Berkshire Hathaway, with a nearly 10% decline in operating earnings and a more than 40% decline in reported net earnings, the firm's overall positioning improved as the back half of the year progressed. The firm saw an even more marked improvement in its insurance investment portfolio, as well as the operating results of its various subsidiaries, last year. As such, we expect 2022 and 2023 to be a return to more normalized levels of revenue growth and profitability (albeit with inflation impacting results in the first half of this year).We continue to view Berkshire's decentralized business model, broad business diversification, high cash-generation capabilities, and unmatched balance sheet strength as true differentiators. While these advantages have been overshadowed by an ever-expanding cash balance-ANhich is earning next to nothing in a near-zero interest-rate environment--we believe the company has finally hit a nexus where it is far more focused on reducing its cash hoard through stock and bond investments and share repurchases. During the past eight calendar quarters, the + + + +not correct as shown above, please make the correction using the attached tear-off stub and return it to us . +Based on the information received from you or your representative, you must file the following forms by the dates shown. We assigned you
+
+  4/7/2022											
++Form 940 4/7/2022 +Form 943 4/7/2022 If the information is +Form 1065 4/7/2022 +Form 720 4/7/2022 +Your Form 2290 becomes due the month after your vehicle is put into use . +Your Form 1 IC and/or 730 becomes due the month after your wagering starts . +After our review of your information, we have determined that you have not filed +tax returns for the above-mentioned tax period (s) dating as far back as 2007. Plea S +file your return(s) by 04/22/2022. If there is a balance due on the return (s) +penalties and interest will continue to accumulate from the due date of the return (s) +until it is filed and paid. If you were not in business or did not hire any employees +for the tax period(s) in question, please file the return (s) showing you have no liabilities . +If you have questions about the forms or the due dates shown, you can call us at PI +the phone number or write to us at the address shown at the top of this notice. If you +need help in determining your annual accounting period (tax year) , see Publication 538, Accounting Periods and Methods. + +Business Checking +PNCBANK @PNCBANK +For the period 04/13/2022 Primary account number: 47-2041-6547 Page 1 of 3 +146967 1022462 Q 304 Number of enclosures: 0 +ZACHRY TYLER WOOD ALPHABET +5323 BRADFORD DR +DALLAS TX 75235-8314 For 24-hour banking sign on to +PNC Bank Online Banking on pnc.com +FREE Online Bill Pay +For customer service call 1-877-BUS-BNKG +PNC accepts Telecommunications Relay Service (TRS) calls. 00009 +111111111011111000000000000000000000000000000000000000000000000 Para servicio en espalol, 1877.BUS-BNKC, +Moving? Please contact your local branch. +@ Write to: Customer Service PO Box 609 +Pittsburgh , PA 15230-9738 +Visit us at PNC.com/smaIIbusiness +IMPORTANT INFORMATION FOR BUSINESS DEPOSIT CUSTOMERS Date of this notice: +Effective February 18,2022, PNC will be temporarily waiving fees for statement, check image, deposit ticket and deposited item copy requests until further notice. Statement, check image, deposit ticket and deposited Item requests will continue to be displayed in the Details of Services Used section of your monthly statement. We will notify you via statement message prior to reinstating these fees. +If vou have any questions, you may reach out to your business banker branch or call us at 1-877-BUS-BNKG (1-877-287-2654). +Business Checking Summary +Account number; 47-2041-6547 +Overdraft Protection has not been established for this account. Please contact us if you would like to set up this service. Zachry Tyler Wood Alphabet Employer Identification Number: 88-1656496 +Balance Summary Checks and other deductions Ending balance Form: SS-4 +Beginning balance Deposits and other additions Number of this notice: +00000 = 98.50 Average ledger balance 36.00- +Average collected balance For assistance you may call ug at:
+
+  				6.35-			6.35-		1-800-829-4933		
++Overdraft and Returned Item Fee Summary Total Year to Date
+
+  	Total for this Period										
++Total Returned Item Fees (NSF) 00036 00036 IF YOU WRITE, ATTATCHA TYE +STUB AT OYE END OF THIS NOTICE. +Deposits and Other Additions +Description Items Amount Checks and Other Deductions +Description Items Amount +ACH Additions 00001 00063 ACH Deductions 00001 00063
+
+  				Service Charges and Fees			00001	00036			
++Total 00001 00063 Total 00002 00099 +Daily Balance Date Date Ledger balance +Date Ledger balance Ledger balance +4/13/2022 00000 44677 62.50- 44678 00036
+
+  Form 940						44658					
+Berkshire Hatha,a,n.. +Business Checking For the period 04/13/2022 to 04/29/2022 44680 +For 24-hour account information, sign on to pnc.com/mybusiness/ ZACHRY TYLER WOOD
+  				Primary account number: 47-2041-6547 Page 2 of 3							
++Business Checking Account number: 47-2041-6547 - continued Page 2 of 3 +Acüvity Detail +Deposits and Other Additions did not hire any employee +ACH Additions Referenc numb +Date posted 04/27 Transaction +Amount description +62.50 Reverse Corporate ACH Debit +Effective 04-26-22 the due dates shown, you can call us at
+
+  				22116905560149							
++Checks and Other Deductions +ACH Deductions Referenc +Date posted Transaction +Amount description
+
+  				number							
++44677 70842743866 Corporate ACH Quickbooks 180041ntuit 1940868
+
+  				22116905560149							
++ervice Charges and Fees Referenc +Date posted Transaction +Amount descripton +44678 22116905560149 numb +Detail of Services Used During Current Period 22116905560149
+
+::NOTE:: The total charge for the following services will be posted to your account on 05/02/2022 and will appear on your next statement as a single line item entitled Service Charge Period Ending 04/29/2022. +e: The total charge for the following Penod Ending 04/29/2022. +Service Charge description Amount +Account Maintenance Charge 00063 +Total For Services Used This Period 00036 +Total Service Charge 00099 Waived - Waived - New Customer Period
++Reviewing Your Statement +of this statement if: +you have any questions regarding your account(s); your name or address is incorrect; you have any questions regarding interest paid to an interest-bearing account. PNCBANK +Balancing Your Account +Update Your Account Register Volume +Compare: The activity detail section of your statement to your account register. +Check Off: +Add to Your Account Register: Balance: +Subtract From Your Account Register Balance: All items in your account register that also appear on your statement. Remember to begin with the ending date of your last statement. (An asterisk { * } will appear in the Checks section if there is a gap in the listing of consecutive check numbers.) +Any deposits or additions including interest payments and ATM or electronic deposits listed on the statement that are not already entered in your register. +Any account deductions including fees and ATM or electronic deductions listed on the statement that are not already entered in your register. +Your Statement Information : step 2: Add together checks and other deductions listed in your account register but not on your statement.
+
+  		Amount						Check
++Deduction Descrption Amount +Balancing Your Account +Update Your Account Register
+
+on deposit: 22934637118600.00USD
++4720416547 +Reviewing Your Statement +of this statement if: +you have any questions regarding your account(s); your name or address is incorrect; you have any questions regarding interest paid to an interest-bearing account. Total A=$22934637118600 + +Step 3: 22934637118600 + + +Enter the ending balance recorded on your statement +Add deposits and other additions not recorded Total A + $22934637118600 +
+
+  			Subtotal=$22934637118600								
++Subtract checks and other deductions not recorded Total B $ 22934637118600 + +The result should equal your account register balance $ 22934637118600
+
+  								Total B22934637118600			
++Verification of Direct Deposits + +To verify whether a direct deposit or other transfer to your account has occurred, call us Monday - Friday: 7 AM - 10 PM ET and Saturday & Sunday: 8 AM - 5 PM ET at the customer service number listed on the upper right side of the first page of this statement. +In Case of Errors or Questions About Your Electronic Transfers +Telephone us at the customer service number listed on the upper right side of the first page of this statement or write us at PNC Bank Debit Card Services, 500 First Avenue, 4th Floor, Mailstop P7-PFSC-04-M, Pittsburgh, PA 15219 as soon as you can, if you think your statement or receipt is wrong or if you need more information about a transfer on the statement or receipt. We must hear from you no later than 60 days after we sent you the FIRST statement on which the error or problem appeared. +Tell us your name and account number (if any). +Describe the error or the transfer you are unsure about, and explain as clearly as you can why you believe it is an error or why you need more information. +Tell us the dollar amount of the suspected error. +We will investigate your complaint and will correct any error promptly. If we take longer than 10 business days, we will provisionally credit your account for the amount you think is in error, so that you will have use of the money during the time it Cakes us to complete our investigation. +EquaLHousing Lender +Member FDIC + + + +Home > Chapter 7: Reports > Custom Reports > Exporting Custom Reports > Export Custom Report as Excel File +Export Custom Report as Excel File +Show 00000
+
+Excel report exports are in XLSX format. If you are using an older version of Excel, you can install the Microsoft Compatibility Pack so that you can open XLSX files. +1 Locate the report you want to export in the custom reports section of the Reports dashboard, and click an Excel export link.
+  To export the report without first viewing the data, click the “Export XLS” link under the Action button menu.											
+  To view the report prior to exporting, click on its linked Report Name, then click the “xls” link in the Export line directly above the report Snapshot.											
+  NOTE: You can filter the report by Date Range or Payment Method prior to exporting it; the export will include only those transactions included by the filters.											
++2 Depending on your browser, you will have the option to open and/or save the file.
+
+a To open the file, click the “Open” button in the dialog box. The file will open in Excel, but will not be saved. You will need to save the file in Excel if you want to store it on your computer.
+b To save the file to your computer.
+  i	Click the “Save” button in the dialog box. 										
+  ii	A Save As dialog box opens.										
+  	NOTE: In Google Chrome, and some other browsers, clicking the “xls” link will take you directly to this step.										
+  iii	Enter a name for your file, and select a location on your computer where you want to save the file.										
+  iv	Click the “Save” button.										
+  v	You can now open the report directly from your computer at any time, without being logged into ADP Payments.										
++Next › Reciepient's Social Security Number & TIN :633-44-1725 +WOO ZACH T +5222 B +_____________________________________________________ + +424B3 1 d424b3.htm FORM 424B3
+
+Table of Contents
+Filed Pursuant to Rule 424(b)(3)
+
+Registration No. 333-145109
+
+Prospectus dated May 1, 2008
+
+Chase Issuance Trust
+
+Issuing Entity
+
+Chase Bank USA, National Association
+
+Sponsor, Depositor, Originator, Administrator and Servicer
+
+The issuing entity—
+
++
+| • | | may periodically issue notes in a series comprised of one or more classes or tranches; +-- | -- | -- | --
++
+
+Neither the SEC nor any state securities commission has approved these notes or determined that this prospectus or the accompanying prospectus supplement is truthful, accurate or complete. Any representation to the contrary is a criminal offense.
+
+You should consider the discussion under “ Risk Factors” beginning on page 11 of this prospectus before you purchase any notes.
+
+The notes are obligations of the issuing entity only and are not interests in or obligations of Chase Bank USA, National Association, any of its affiliates or any other person or entity.
+
+The notes are not insured or guaranteed by the Federal Deposit Insurance Corporation or any other governmental agency or instrumentality.
+
+424B3 1 d424b3.htm FORM 424B3 +Table of Contents +Filed Pursuant to Rule 424(b)(3) + +Registration No. 333-145109 + + + +Prospectus dated May 1, 2008 + + + +Chase Issuance Trust + +Issuing Entity + + + +Chase Bank USA, National Association + +Sponsor, Depositor, Originator, Administrator and Servicer + + + +The issuing entity— + + +
+• +may periodically issue notes in a series comprised of one or more classes or tranches;
+• +will own—
+— one or more collateral certificates, each representing an undivided interest in a credit card master trust or other securitization special purpose entity whose assets consist primarily of credit card receivables arising in revolving credit card accounts owned by Chase USA or by one of its affiliates; and
+— credit card receivables that arise in revolving credit card accounts owned by Chase USA or by one of its affiliates; and
+• +may own—
+— other property described in this prospectus and in the accompanying prospectus supplement.
++The notes— + + +
+
+• +will be secured by the issuing entity’s assets and will be paid solely from proceeds of the issuing entity’s assets;
+• +to be offered with this prospectus and the accompanying prospectus supplement will be rated in one of the four highest rating categories by at least one nationally recognized rating agency; and
+• +will be issued as part of a designated tranche within a class of the CHASEseries.
++Neither the SEC nor any state securities commission has approved these notes or determined that this prospectus or the accompanying prospectus supplement is truthful, accurate or complete. Any representation to the contrary is a criminal offense. + + + +You should consider the discussion under “ Risk Factors” beginning on page 11 of this prospectus before you purchase any notes. + + + +The notes are obligations of the issuing entity only and are interests in JPMORGAN TRUST I, II, III, & IV, SHare Class R01-06, Direct obligations, under mandated rempremandable Adminstrative decision upon reconcilablle claim due the plaintif(Zachry Tyler Wood) prscribed by the Secretary of the Treasury a, CHASE / JPMORGAN CHASE BANK N.A, power holding shareholders, of the Board of Directors.
+
+Copyrights Trademark and Logo & etc..are proptery of Sole Proprietorship Subsidiary's Whole Owner by: Zachry Tyler Wood/bitcoion(Copyright & TM-09-17-2001)JPMORGAN Chase Bank USA, National Association, any of its affiliates or any other person or entity.
++The notes are not insured or guaranteed by the Federal Deposit Insurance Corporation or any other governmental agency or instrumentality. +00015 76033000000 20642000000 18936000000 18525000000 17930000000 15227000000 11247000000 +For Disclosure, Privacy Act, and Paperwork Reduction Act Notice, see separate instructions. 76033000000 20642000000 18936000000 18525000000 17930000000 15227000000 11247000000 +Cat. No. 11320B 76033000000 20642000000 18936000000 18525000000 17930000000 15227000000 11247000000 +Form 1040 (2021) 76033000000 20642000000 18936000000 +Reported Normalized and Operating Income/Expense Supplemental Section +Total Revenue as Reported, Supplemental 257637000000 75325000000 65118000000 61880000000 55314000000 56898000000 46173000000 +Total Operating Profit/Loss as Reported, Supplemental 78714000000 21885000000 21031000000 19361000000 16437000000 15651000000 11213000000 +Reported Effective Tax Rate 00000 00000 00000 00000 00000 +Reported Normalized Income +Reported Normalized Operating Profit +Other Adjustments to Net Income Available to Common Stockholders +Discontinued Operations +Basic EPS 00114 00031 00028 00028 00027 00023 00017 +Basic EPS from Continuing Operations 00114 00031 00028 00028 00027 00022 00017 +Basic EPS from Discontinued Operations +Diluted EPS 00112 00031 00028 00027 00026 00022 00016 +Diluted EPS from Continuing Operations 00112 00031 00028 00027 00026 00022 00016 +Diluted EPS from Discontinued Operations +Basic Weighted Average Shares Outstanding 667650000 662664000 665758000 668958000 673220000 675581000 679449000 +Diluted Weighted Average Shares Outstanding 677674000 672493000 676519000 679612000 682071000 682969000 685851000 +Reported Normalized Diluted EPS +Basic EPS 00114 00031 00028 00028 00027 00023 00017 +Diluted EPS 00112 00031 00028 00027 00026 00022 00016 +Basic WASO 667650000 662664000 665758000 668958000 673220000 675581000 679449000 +Diluted WASO 677674000 672493000 676519000 679612000 682071000 682969000 685851000 +Fiscal year end September 28th., 2022. | USD + +For Paperwork Reduction Act Notice, see the seperate Instructions. + + + + + + +important information + + + + + + + +Description +Cash Flow from Investing Activities +Cash Flow from Continuing Investing Activities -6383000000 -6819000000 -5496000000 -5942000000 -5479000000
+
+  		-6383000000	-6819000000	-5496000000	-5942000000	-5479000000
++Purchase/Sale and Disposal of Property, Plant and Equipment, Net +Purchase of Property, Plant and Equipment -385000000 -259000000 -308000000 -1666000000 -370000000 +Sale and Disposal of Property, Plant and Equipment -385000000 -259000000 -308000000 -1666000000 -370000000 +Purchase/Sale of Business, Net -4348000000 -3360000000 -3293000000 2195000000 -1375000000 +Purchase/Acquisition of Business -40860000000 -35153000000 -24949000000 -37072000000 -36955000000 +Purchase/Sale of Investments, Net +Purchase of Investments 36512000000 31793000000 21656000000 39267000000 35580000000
+
+  		100000000	388000000	23000000	30000000	-57000000
++Sale of Investments +Other Investing Cash Flow -15254000000 +Purchase/Sale of Other Non-Current Assets, Net -16511000000 -15254000000 -15991000000 -13606000000 -9270000000 +Sales of Other Non-Current Assets -16511000000 -12610000000 -15991000000 -13606000000 -9270000000 +Cash Flow from Financing Activities -13473000000 -12610000000 -12796000000 -11395000000 -7904000000 +Cash Flow from Continuing Financing Activities 13473000000 -12796000000 -11395000000 -7904000000 +Issuance of/Payments for Common 343 sec cvxvxvcclpddf wearsStock, Net -42000000 +Payments for Common Stock 115000000 -42000000 -1042000000 -37000000 -57000000 +Proceeds from Issuance of Common Stock 115000000 6350000000 -1042000000 -37000000 -57000000 +Issuance of/Repayments for Debt, Net 6250000000 -6392000000 6699000000 900000000 00000 +Issuance of/Repayments for Long Term Debt, Net 6365000000 -2602000000 -7741000000 -937000000 -57000000 +Proceeds from Issuance of Long Term Debt +Repayments for Long Term Debt 2923000000 -2453000000 -2184000000 -1647000000 + +Proceeds from Issuance/Exercising of Stock Options/Warrants 00000 300000000 10000000 338000000000 +Other Financing Cash Flow +Cash and Cash Equivalents, End of Period +Change in Cash 20945000000 23719000000 23630000000 26622000000 26465000000 +Effect of Exchange Rate Changes 25930000000 235000000000) -3175000000 300000000 6126000000 +Cash and Cash Equivalents, Beginning of Period 181000000000 146000000000 183000000 -143000000 210000000 +Cash Flow Supplemental Section 23719000000000 26622000000000 26465000000000 20129000000000 +Change in Cash as Reported, Supplemental 2774000000 89000000 -2992000000 6336000000 +Income Tax Paid, Supplemental 13412000000 157000000 +ZACHRY T WOOD -4990000000 +Cash and Cash Equivalents, Beginning of Period + + +SC 13G/A +1 +us02079k1079_031122.txt + +us02079k1079_031122.txt + +SECURITIES AND EXCHANGE COMMISSION + +Washington, D.C. 20549 + +SCHEDULE 13G + +Under the Securities Exchange Act of 1934 + +(Amendment No: 4) + +ZACHRY T WOOD +-------------------------------------------------------- +(Name of Issuer) +
+
+Common Stock +-------------------------------------------------------- +(Title of Class of Securities)
++02079K107 +-------------------------------------------------------- +(CUSIP Number) + +December 31, 2021 +-------------------------------------------------------- +(Date of Event Which Requires Filing of this Statement) + +Check the appropriate box to designate the rule pursuant to +which this Schedule is filed: + +[X] Rule 13d-1(b) +[ ] Rule 13d-1(c) +[ ] Rule 13d-1(d) + + +*The remainder of this cover page shall be filled out +for a reporting person's initial filing on this form with +respect to the subject class of securities, and for any +subsequent amendment containing information which +would alter the disclosures provided in a prior cover page. + +The information required in the remainder of this cover +page shall not be deemed to be "filed" for the purpose +of Section 18 of the Securities Exchange Act of 1934 +("Act") or otherwise subject to the liabilities of that +section of the Act but shall be subject to all other +provisions of the Act (however, see the Notes). + + + + + +CUSIP No. 02079K107 + +(1)Names of reporting persons. Zachry T Wood + + +(2) Check the appropriate box if a member of a group +(a) [ ] +(b) [X] + + +(3) SEC use only + +(4) Citizenship or place of organization + +Delaware + +Number of shares beneficially owned by each reporting person with: + +(5) Sole voting power +
+
+100%
++(6) Shared voting power +
+
+100%
++(7) Sole dispositive power + +100% +(8) Shared dispositive power +
+
+100%
++(9) Aggregate amount beneficially owned by each reporting person +
+
+100%
++(10) Check if the aggregate amount in Row (9) excludes certain shares + +(11) Percent of class represented by amount in Row 9 + +100% + +(12) Type of reporting person + +SP + + + + + +Item 1. + +Item 1(a) Name of issuer: +----------------------------------------------------------------------- + +ZACHRY T WOOD +ALPHABET + +Item 1(b) Address of issuer's principal executive offices: +----------------------------------------------------------------------- +5323 BRADFORD DR +DALLAS, TX 75235 +Business: +1600 AMPHITHEATRE PARKWAY +MOUNTAIN VIEW CA 94043 + + +Item 2. + + +2(a) ZachryTWoood +---------------------------------------------------------------------- +BlackRock, Inc. + + +2(b) 5323 BRADFORD DR DALLAS TX 75235 +----------------------------------------------------------------------- +BlackRock, Inc. +55 East 52nd Street +New York, NY 10055 + + +2(c) Citizenship: - [22/7] - CORRECTED +--------------------------------------------------------------------
+
+See Item 4 of Cover Page
++2(d) Title of class of securities: +------------------------------------------------------------------- +
+
+Common Stock
++2(e) CUSIP No.: +See Cover Page + + + + + + +Item 3. + +If this statement is filed pursuant to Rules 13d-1(b), or 13d-2(b) or (c), +check whether the person filing is a: +[ ] Broker or dealer registered under Section 15 of the Act; +[ ] Bank as defined in Section 3(a)(6) of the Act; +[ ] Insurance company as defined in Section 3(a)(19) of the Act; +[ ] Investment company registered under Section 8 of the +Investment Company Act of 1940; +[ ] An investment adviser in accordance with Rule 13d-1(b)(1)(ii)(E); +[ ] An employee benefit plan or endowment fund in accordance with
+
+       Rule 13d-1(b)(1)(ii)(F);
++[ ] A parent holding company or control person in accordance with
+
+       Rule 13d-1(b)(1)(ii)(G);
++[ ] A savings associations as defined in Section 3(b) of the Federal
+
+       Deposit Insurance Act (12 U.S.C. 1813);
++[ ] A church plan that is excluded from the definition of an
+
+       investment company under section 3(c)(14) of the Investment Company
+       Act of 1940;
++[x] A non-U.S. institution in accordance with
+
+       Rule 240.13d-1(b)(1)(ii)(J);
++[ ] Group, in accordance with Rule 240.13d-1(b)(1)(ii)(K). If filing
+
+       as a non-U.S. institution in accordance with
+       Rule 240.13d-1(b)(1)(ii)(J), please specify the type of
+       institution:
++Item 4. Ownership + +Provide the following information regarding the aggregate number +and percentage of the class of securities of the issuer identified in Item 1. + + +Amount beneficially owned: +
+
+19224377
++Percent of class + +6.1% + +Number of shares as to which such person has: + +Sole power to vote or to direct the vote + + +Shared power to vote or to direct the vote + +Sole power to dispose or to direct the disposition of + +Shared power to dispose or to direct the disposition + +Item 5. + +Ownership of 5 Percent or Less of a Class. If this statement is being +filed to report the fact that as of the date hereof the reporting person +has ceased to be the beneficial owner of more than 5 percent of the +class of securities, check the following - [22/7] - + +Item 6. Ownership of More than 5 Percent on Behalf of Another Person +
+
+If any other person is known to have the right to receive or the power
+to direct the receipt of dividends from, or the proceeds from the sale
+of, such securities, a statement to that effect should be included in
+response to this item and, if such interest relates to more than 5 percent
+of the class, such person should be identified. A listing of the
+shareholders of an investment company registered under the Investment
+Company Act of 1940 or the beneficiaries of employee benefit plan,
+pension fund or endowment fund is not required.
+Various persons have the right to receive or the power to direct
+the receipt of dividends from, or the proceeds from the sale of
+the common stock of
+ALPHABET INC.
+No, One person's, interest in the common stock of
+ALPHABET INC A, C, and BRK.B
+is more than five percent of the total outstanding common shares.
++Item 7. Identification and Classification of the Subsidiary Which +Acquired the Security Being Reported on by the Parent Holding +Company or Control Person. + + +See Exhibit A + + +Item 8. Identification and Classification of Members of the Group + + +If a group has filed this schedule pursuant to Rule 13d-1(b)(ii)(J), +so indicate under Item 3(j) and attach an exhibit stating the identity +and Item 3 classification of each member of the group. If a group +has filed this schedule pursuant to Rule 13d-1(c) or Rule 13d-1(d), +attach an exhibit stating the identity of each member of the group. + + +Item 9. Notice of Dissolution of Group + +Notice of dissolution of a group may be furnished as an exhibit +stating the date of the dissolution and that all further filings with +respect to transactions in the security reported on will be filed, +if required, by members of the group, in their individual capacity. + +See Item 5. + +Item 10. Certifications +By signing below I certify that, to the best of my knowledge and +belief, the securities referred to above were acquired and are +held in the ordinary course of business and were not acquired +and are not held for the purpose of or with the effect of changing +or influencing the control of the issuer of the securities and were +not acquired and are not held in connection with or as a participant +in any transaction having that purpose or effect. + +Signature.___\s_ +ZACHRY T O + +After reasonable inquiry and to the best of my knowledge and +belief, I certify that the information set forth in this statement +is true, complete and correct. + + +Dated: March 11, 2022 +BlackRock, Inc. + + +Signature: Spencer Fleming + + + +------------------------------------------- + +Name/Title Attorney-In-Fact + + +The original statement shall be signed by each person on whose +behalf the statement is filed or his authorized representative. +If the statement is signed on behalf of a person by his authorized +representative other than an executive officer or general partner +of the filing person, evidence of the representative's authority to +sign on behalf of such person shall be filed with the statement, +provided, however, that a power of attorney for this purpose +which is already on file with the Commission may be incorporated +by reference. The name and any title of each person who +signs the statement shall be typed or printed beneath his signature. + + + +Attention: Intentional misstatements or omissions of fact constitute +Federal criminal violations (see 18 U.S.C. 1001). + + +Exhibit A + + + +Subsidiary + +
+
+BlackRock Life Limited
+BlackRock International Limited
+BlackRock Advisors, LLC
+Aperio Group, LLC
+BlackRock (Netherlands) B.V.
+BlackRock Institutional Trust Company, National Association
+BlackRock Asset Management Ireland Limited
+BlackRock Financial Management, Inc.
+BlackRock Japan Co., Ltd.
+BlackRock Asset Management Schweiz AG
+BlackRock Investment Management, LLC
+FutureAdvisor, Inc.
+BlackRock Investment Management (UK) Limited
+BlackRock Asset Management Canada Limited
+BlackRock Asset Management Deutschland AG
+BlackRock (Luxembourg) S.A.
+BlackRock Investment Management (Australia) Limited
+BlackRock Advisors (UK) Limited
+BlackRock Fund Advisors
+BlackRock Asset Management North Asia Limited
+BlackRock (Singapore) Limited
+BlackRock Fund Managers Ltd
++Entity beneficially owns 5% or greater of the outstanding +shares of the security class being reported on this +Schedule 13G. +Exhibit B + + +POWER OF ATTORNEY + +The undersigned, BLACKROCK, INC., a corporation duly organized +under the laws of the State of Delaware, United States (the +"Company"), does hereby make, constitute and appoint each of +Christopher Meade, Daniel Waltcher, Una Neary, Richard Cundiff, +Charles Park, Enda McMahon, Arlene Klein, Con Tzatzakis, Karen Clark, +David Maryles, Daniel Ronnen, John Stelley, Daniel Riemer, +Elizabeth Kogut, Maureen Gleeson, Daniel Kalish and Spencer Fleming acting +severally, as its true and lawful attorneys-in-fact, for the purpose of, from +time to time, executing in its name and on its behalf, whether the Company +individually or as representative of others, any and all documents, is acting +certificates, instruments, statements, other filings and amendments to the +foregoing (collectively, "documents") determined by such person to +be necessary or appropriate to comply with ownership or control-person +reporting requirements imposed by any United States or non-United States +governmental or regulatory authority, Including without limitation +Forms 3, 4, 5, 13D, 13F, 13G and 13H and any amendments to any of the +Foregoing as may be required to be filed with the Securities and +Exchange Commission, and delivering, furnishing or filing any +such documents with the appropriate governmental, regulatory +authority or other person, and giving and granting to each such +attorney-in-fact power and authority to act in the premises as fully +and to all intents and purposes as the Company might or could +do if personally present by one of its authorized signatories, +hereby ratifying and confirming all that said attorney-in-fact shall +lawfully do or cause to be done by virtue hereof. Any such +determination by an attorney-in-fact named herein shall be +conclusively evidenced by such person's execution, delivery, +furnishing or filing of the applicable document. + +This power of attorney shall expressly revoke the power of attorney +dated 8th day of December, 2015 in respect of the subject matter hereof, +shall be valid from the date hereof and shall remain in full force and +effect until either revoked in writing by the Company, or, in respect of +any attorney-in-fact named herein, until such person ceases to be an +employee of the Company or one of its affiliates. + + +IN WITNESS WHEREOF, the undersigned has caused this power of +attorney to be executed as of this 2nd day of January, 2019. + +BLACKROCK, INC. + + +By:_ /s/ + + + + + + + + + + + + + +\s_____________ +Name: Zachry Tyler Wood +Title: General Counsel + + + + + + + +:Build:: +const : +Name :bitcash : +title : BCS/USD +TOKEN :(BCHS\USD) : +secret +gemfile :'{'{'{'{'"$'' '"'['{'{'{'{['('('(c')')"('('(r')')']'}']'('{'[100000000'.'[00']'M']'}']'('['B'I'T'O'R'E'_34173'.1337'_189931']'(BCHS\USD')'}')''' ')]'}'}'}'"'' +='' ':'B'R'K'.'B' :, BRKUX, BRK.A, AJTXX(26.54B Last Year@https://am.jpmorganfunds.com/* +Alejandro MartinezAlejandro.martinez131@pnc.com** +Michael GoochMichael.gooch@pnc.com** +Michael Sotelo<Michael.sotelo@pnc.com** +Michael Allenmichael.allen10@pnc.com** +An official website of the United States government. Here's how you know + +Official websites use .gov +A .gov website belongs to an official government organization in the United States. + + +Secure .gov websites use HTTPS +A lock () or https:// means you've safely connected to the .gov website. Share sensitive information only on official, secure websites. + +FBI +MORE +WHAT WE INVESTIGATE +Search FBI +Search FBI + +WHAT WE INVESTIGATE + +Terrorism +Counterintelligence +Cyber Crime +Public Corruption +Civil Rights +Organized Crime + More +News +Most Wanted +Business And Industry Partners +The Cyber Threat +Malicious cyber activity threatens the public’s safety and our national and economic security. The FBI’s cyber strategy is to impose risk and consequences on cyber adversaries. Our goal is to change the behavior of criminals and nation-states who believe they can compromise U.S. networks, steal financial and intellectual property, and put critical infrastructure at risk without facing risk themselves. To do this, we use our unique mix of authorities, capabilities, and partnerships to impose consequences against our cyber adversaries. + +The FBI is the lead federal agency for investigating cyber attacks and intrusions. We collect and share intelligence and engage with victims while working to unmask those committing malicious cyber activities, wherever they are. + +Learn more about what you can do to protect yourself from cyber criminals, how you can report cyber crime, and the Bureau's efforts in combating the evolving cyber threat.﻿ + +Private Sector Partners +Learn how businesses and organizations can work with the FBI to get ahead of the threat and make an impact on our cyber adversaries. + +Cyber Security +What You Should Know +Protect Yourself +Taking the right security measures and being alert and aware when connected are key ways to prevent cyber intrusions and online crimes. Learn how to protect your computer, network, and personal information. +Understand Common Crimes and Risks Online +Business email compromise (BEC) scams exploit the fact that so many of us rely on email to conduct business—both personal and professional—and it’s one of the most financially damaging online crimes. +Identity theft happens when someone steals your personal information, like your Social Security number, and uses it to commit theft or fraud. +Ransomware is a type of malicious software, or malware, that prevents you from accessing your computer files, systems, or networks and demands you pay a ransom for their return. +Spoofing and phishing are schemes aimed at tricking you into providing sensitive information to scammers. +Online predators are a growing threat to young people. +More common crimes and scams +Respond and Report +Depiction of banner being used in campaign to encourage the public to report Internet crime to the FBI's Internet Crime Complaint Center (IC3). +File a Report with the Internet Crime Complaint Center + +If you are the victim of online or internet-enabled crime, file a report with the Internet Crime Complaint Center (IC3) as soon as possible. Crime reports are used for investigative and intelligence purposes. Rapid reporting can also help support the recovery of lost funds. Visit ic3.gov for more information, including tips and information about current crime trends. + +Contact Your Local FBI Field Office +If you or your organization is the victim of a network intrusion, data breach, or ransomware attack, contact your nearest FBI field office or report it at tips.fbi.gov. + +Combating the Evolving Cyber Threat +Our adversaries look to exploit gaps in our intelligence and information security networks. The FBI is committed to working with our federal counterparts, our foreign partners, and the private sector to close those gaps. + +These partnerships allow us to defend networks, attribute malicious activity, sanction bad behavior, and take the fight to our adversaries overseas. The FBI fosters this team approach through unique hubs where government, industry, and academia form long-term trusted relationships to combine efforts against cyber threats. + +Within government, that hub is the National Cyber Investigative Joint Task Force (NCIJTF). The FBI leads this task force of more than 30 co-located agencies from the Intelligence Community and law enforcement. The NCIJTF is organized around mission centers based on key cyber threat areas and led by senior executives from partner agencies. Through these mission centers, operations and intelligence are integrated for maximum impact against U.S. adversaries. + +Only together can we achieve safety, security, and confidence in a digitally connected world. + +How We Work +Whether through developing innovative investigative techniques, using cutting-edge analytic tools, or forging new partnerships in our communities, the FBI continues to adapt to meet the challenges posed by the evolving cyber threat. + +The FBI has specially trained cyber squads in each of our 56 field offices, working hand-in-hand with interagency task force partners. +The rapid-response Cyber Action Team can deploy across the country within hours to respond to major incidents. +With cyber assistant legal attachés in embassies across the globe, the FBI works closely with our international counterparts to seek justice for victims of malicious cyber activity. +The Internet Crime Complaint Center (IC3) collects reports of Internet crime from the public. Using such complaints, the IC3’s Recovery Asset Team has assisted in freezing hundreds of thousands of dollars for victims of cyber crime. +CyWatch is the FBI’s 24/7 operations center and watch floor, providing around-the-clock support to track incidents and communicate with field offices across the country. +Cyber News
++08.26.2022 FBI Dallas Encourages Businesses to Stay Vigilant for Cyber Threats, Partner with the FBI +08.26.2022 Iowa Woman Sentenced to Prison for Email Threats +08.26.2022 FBI Las Vegas Federal Fact Friday: Tech Support Fraud +08.24.2022 Former Investment Bank Employee Arrested for Cyberstalking +08.23.2022 FBI Tech Tuesday: Protecting Your Smart Devices from Swatting +08.22.2022 Phoenix Man Convicted of Cyberstalking +08.22.2022 FBI Philadelphia Urges Cybersecurity Awareness +08.22.2022 FBI Warns Individuals Employed in the Health Care Industry of the Ongoing Scam Involving the Impersonation of Law Enforcement and Government Officials +08.19.2022 Former Army Officer and Attorney Arrested on Cyberstalking Charge +08.18.2022 Man Sentenced to Over 10 Years for Role in International Romance Fraud Scheme +More News + +Featured Story +FBI Strategy Addresses Evolving Cyber Threat +FBI Strategy Addresses Evolving Cyber Threat +Additional Links, Resources, and Related Priorities +The Iran Threat +The Iran Threat +Threats from the Iranian regime and its terrorist partners are far reaching. The FBI is committed to identifying… + +InfraGard: Protecting Infrastructure +iGuardian: The FBI’s Industry-Focused Cyber Intrusion Reporting Platform +National Cyber Awareness System﻿ +Law Enforcement Cyber Incident Reporting +Stop.Think.Connect Campaign +Lawful Access﻿ +Law enforcement agencies all over the country are bumping up against “warrant-proof” encryption. This means that even with a warrant, law enforcement cannot obtain the electronic evidence needed to investigate and prosecute crimes or security threats. + +Most Wanted +Ten Most Wanted +Fugitives +Terrorism +Kidnappings / Missing Persons +Seeking Information +Bank Robbers +ECAP +ViCAP +About +Mission & Priorities +Leadership & Structure +Partnerships +Community Outreach +FAQs +News +Stories +Videos +Press Release +Speeches +Testimony +Podcasts and Radio +Photos +Español +Apps +Resources +Law Enforcement +Businesses +Victim Assistance +Reports & Publications +What We Investigate +Terrorism +Counterintelligence +Cyber Crime +Public Corruption +Civil Rights +Organized Crime +White-Collar Crime +Violent Crime +WMD +Contact Us +Field Offices +FBI Headquarters +Overseas Offices +Services +CJIS +CIRG +Laboratory Services +Training Academy +Operational Technology +Information Management +FBI Jobs +Submit a Tip +Crime Statistics +History +FOIPA +Scams & Safety +FBI Kids +FBI Tour +Additional Resources +Accessibility +eRulemaking +Freedom of Information / Privacy Act +Legal Notices +Legal Policies & Disclaimers +Privacy Policy +USA.gov +White House +No FEAR Act +Equal Opportunity + +FBI +FEDERAL BUREAU OF INVESTIGATION +FBI.gov Contact Center + +{% "requirements for furnishing Form 1099-G electronically : either furnish 1099-Gs electronically to recipients: or, considering electronic furnishing, rule and regulation. If upi, have questions,The TE/GE Office of Federal, State, and Local, Government has oversight for 1099-G filing for government entities. I’ll share how to successfully implement furnishing 1099-Gs electron
+
+About
+GitHub public roadmap
+
+Topics
+Resources
+ Readme
+License :None ::
+'zakwarlord7/-ERROR-ERROR-Zip-Postal-Code-zachryiixixiiwood-gmail.com-ZACHRY-WOOD-ZACHRY-TYLER-WOOD-ALPHABET at Master
+'ZACHRY T WOOD                                                                        
 Cash and Cash Equivalents, Beginning of Period                                                                        
 Department of the Treasury                                                                        
 Internal Revenue Service                                                                        
